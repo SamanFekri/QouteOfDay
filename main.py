@@ -34,7 +34,18 @@ with open("README.md", "w") as f:
 
 # commit the changes to the repo
 repo_path = os.getenv("REPO_PATH") # path to the repo
+print("Pulling from Git ...")
 os.system(f"git -C {repo_path} pull" )
+print("Done")
+print()
+
+print("Add and commiting ...")
 os.system(f"git -C {repo_path} add ." )
 os.system(f"git -C {repo_path} commit -m 'update quote of the day for {date.today().strftime('%d %B, %Y')}'" )
+print("Done")
+print()
+
+print("Pushing the new commit to git ...")
 os.system(f"git -C {repo_path} push" )
+print("Done")
+print()

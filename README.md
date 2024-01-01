@@ -1,1 +1,1 @@
-"Every day is a new beginning 🌞 and a chance to make beautiful memories 💫✨. Embrace the challenges as opportunities and always keep a positive mindset 😊❤️."
+"Believe you can and you're halfway there." 🌟💪🏼✨
