@@ -1,3 +1,4 @@
+import os
 from openai import OpenAI
 from dotenv import load_dotenv
 from datetime import date
@@ -5,9 +6,10 @@ from datetime import date
 load_dotenv()
 
 client = OpenAI()
+# reset session of client
 
 # Define the prompt for the quote of the day
-prompt = "Give me a random positive quote of the day with emojies"
+prompt = "Give me a random positive quote of the day with emojies related to the quote" 
 
 # send the prompt to the API
 completion = client.chat.completions.create(
@@ -21,7 +23,7 @@ print(completion.choices[0].message.content)
 
 template = f"""
 # Quote of the day
-### 📅 {date.today().strftime("%A, %B %d, %Y")}
+### 📅 {date.today().strftime("%A, %d %B, %Y")}
 ------
 {completion.choices[0].message.content}
 """
@@ -29,3 +31,10 @@ template = f"""
 # write the respone to README.md
 with open("README.md", "w") as f:
     f.write(completion.choices[0].message.content)
+
+# commit the changes to the repo
+repo_path = os.getenv("REPO_PATH") # path to the repo
+os.system(f"git -C {repo_path} pull" )
+os.system(f"git -C {repo_path} add ." )
+os.system(f"git -C {repo_path} commit -m 'update quote of the day for {date.today().strftime('%d %B, %Y')}'" )
+os.system(f"git -C {repo_path} push" )
