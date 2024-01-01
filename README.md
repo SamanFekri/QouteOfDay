@@ -1,1 +1,1 @@
-"The only way to do great work is to love what you do. 💪💖"
+"Every day is a new beginning 🌞 and a chance to make beautiful memories 💫✨. Embrace the challenges as opportunities and always keep a positive mindset 😊❤️."
