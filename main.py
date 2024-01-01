@@ -30,7 +30,7 @@ template = f"""
 
 # write the respone to README.md
 with open("README.md", "w") as f:
-    f.write(completion.choices[0].message.content)
+    f.write(template)
 
 # commit the changes to the repo
 repo_path = os.getenv("REPO_PATH") # path to the repo
