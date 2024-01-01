@@ -1,5 +1,6 @@
 from openai import OpenAI
 from dotenv import load_dotenv
+from datetime import date
 
 load_dotenv()
 
@@ -16,4 +17,15 @@ completion = client.chat.completions.create(
   ]
 )
 
+print(completion.choices[0].message.content)
 
+template = f"""
+# Quote of the day
+### 📅 {date.today().strftime("%A, %B %d, %Y")}
+------
+{completion.choices[0].message.content}
+"""
+
+# write the respone to README.md
+with open("README.md", "w") as f:
+    f.write(completion.choices[0].message.content)
