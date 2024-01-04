@@ -2,4 +2,4 @@
 # Quote of the day
 ### 📅 Thursday, 04 January, 2024
 ------
-"Believe you can and you're halfway there. 💪✨"
+"Every day may not be good, but there is something good in every day." 🌞🌻🌈

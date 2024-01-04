@@ -9,7 +9,7 @@ client = OpenAI()
 # reset session of client
 
 # Define the prompt for the quote of the day
-prompt = "Give me a random positive quote of the day with emojies related to the quote" 
+prompt = "Give me a random positive quote of the day with emojies related to the quote based on event of the day" 
 
 # send the prompt to the API
 completion = client.chat.completions.create(
