@@ -1,5 +1,5 @@
 
 # Quote of the day
-### 📅 Wednesday, 03 January, 2024
+### 📅 Thursday, 04 January, 2024
 ------
-"Believe you can and you're halfway there." 💪🌟🙌
+"Believe you can and you're halfway there. 💪✨"
