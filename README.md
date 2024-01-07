@@ -1,5 +1,5 @@
 
 # Quote of the day
-### 📅 Saturday, 06 January, 2024
+### 📅 Sunday, 07 January, 2024
 ------
-"Believe you can and you're halfway there." 💪✨🌟 #PositiveVibes
+"Every day is a new beginning 🌅. Take a deep breath and start again. Remember, you are capable of amazing things 💪✨!"
