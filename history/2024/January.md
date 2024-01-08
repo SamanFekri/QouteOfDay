@@ -5,3 +5,10 @@
 ### Quote of the day
 "Every day may not be good, but there is something good in every day." 🌞💫😊
 -----
+## Monday, 08 January, 2024
+### Events
+- USA: The Consumer Electronics Show (CES) begins in Las Vegas, showcasing the latest technological innovations and devices.
+- Iran: The Fajr Film Festival commences in Tehran, celebrating Iranian cinema and showcasing local and international films.
+### Quote of the day
+"Believe in yourself and you will be unstoppable! 💪🌟"
+-----
