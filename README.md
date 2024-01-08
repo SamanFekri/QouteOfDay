@@ -2,8 +2,11 @@
 ------
 ### Events
 ------
-- USA: The Consumer Electronics Show (CES) begins in Las Vegas, showcasing the latest technological innovations and devices.
-- Iran: The Fajr Film Festival commences in Tehran, celebrating Iranian cinema and showcasing local and international films.
+- Event in the USA on January 8:
+  - The Golden Globe Awards ceremony takes place, honoring the best in film and television.
+
+- Event in Iran on January 8:
+  - The Iranian government commemorates the anniversary of the 1979 Islamic Revolution, which led to the overthrow of the Shah and the establishment of an Islamic republic.
 ### Positive Qoute
 ------
-"Believe in yourself and you will be unstoppable! 💪🌟"
+"Every day is a new beginning 🌅 Embrace the possibilities that lie ahead and make it the best day ever! 🌟"
