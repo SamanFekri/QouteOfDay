@@ -1,5 +1,5 @@
 
 # Quote of the day
-### 📅 Sunday, 07 January, 2024
+### 📅 Monday, 08 January, 2024
 ------
-"Every accomplishment starts with the decision to try." 💪🌟🌈
+"Every day is a fresh start. Embrace the challenges with a 😃, tackle them with a 💪, and celebrate your victories with a 🎉."
