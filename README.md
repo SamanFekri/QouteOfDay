@@ -2,8 +2,8 @@
 ------
 ### Events
 ------
-- In the USA on January 9th, the Golden Globe Awards ceremony took place, honoring outstanding achievements in television and film.
-- In Iran on January 9th, the Fajr International Film Festival kicked off, showcasing national and international films and promoting cultural exchange.
+- USA: 09 January 2022 - The Golden Globe Awards ceremony takes place in Los Angeles, honoring achievements in films and television.
+- Iran: 09 January 1979 - Massive protests erupt in Iran against the American-backed Shah Mohammad Reza Pahlavi, leading to the Iranian Revolution.
 ### Positive Qoute
 ------
-"Believe you can and you're halfway there." 🌟💪🏼✨
+"Believe you can and you're halfway there." 💪✨
