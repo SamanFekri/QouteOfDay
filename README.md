@@ -1,12 +1,9 @@
-### 📅 Monday, 08 January, 2024
+### 📅 Tuesday, 09 January, 2024
 ------
 ### Events
 ------
-- Event in the USA on January 8:
-  - The Golden Globe Awards ceremony takes place, honoring the best in film and television.
-
-- Event in Iran on January 8:
-  - The Iranian government commemorates the anniversary of the 1979 Islamic Revolution, which led to the overthrow of the Shah and the establishment of an Islamic republic.
+- In the USA on January 9th, the Golden Globe Awards ceremony took place, honoring outstanding achievements in television and film.
+- In Iran on January 9th, the Fajr International Film Festival kicked off, showcasing national and international films and promoting cultural exchange.
 ### Positive Qoute
 ------
-"Every day is a new beginning 🌅 Embrace the possibilities that lie ahead and make it the best day ever! 🌟"
+"Believe you can and you're halfway there." 🌟💪🏼✨
