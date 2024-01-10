@@ -1,9 +1,12 @@
-### 📅 Tuesday, 09 January, 2024
+### 📅 Wednesday, 10 January, 2024
 ------
 ### Events
 ------
-- USA: 09 January 2022 - The Golden Globe Awards ceremony takes place in Los Angeles, honoring achievements in films and television.
-- Iran: 09 January 1979 - Massive protests erupt in Iran against the American-backed Shah Mohammad Reza Pahlavi, leading to the Iranian Revolution.
+- In the USA on January 10th:
+   - National Bittersweet Chocolate Day is celebrated, honoring the indulgence of bittersweet chocolate.
+   
+- In Iran on January 10th:
+   - Commemoration of the death anniversary of Ayatollah Ruhollah Khomeini, the founder of the Islamic Republic of Iran, who passed away on this day in 1989.
 ### Positive Qoute
 ------
-"Believe you can and you're halfway there." 💪✨
+"Every day is a fresh start! 🌞 Embrace the possibilities, and make the most of today! 💪"
