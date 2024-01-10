@@ -46,3 +46,10 @@
 ### Quote of the day
 "Every day is a fresh start! 🌞 Embrace the possibilities, and make the most of today! 💪"
 -----
+## Wednesday, 10 January, 2024
+### Events
+- On January 10, the USA  - The United Nations Security Council meeting is held to discuss global peace and security matters.
+- On January 10, Iran - The Iranian government announces the successful launch of a domestically-built satellite into space.
+### Quote of the day
+"Believe you can and you're halfway there" - Theodore Roosevelt 🌟💪🏼🌈
+-----
