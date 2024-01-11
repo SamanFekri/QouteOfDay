@@ -2,8 +2,8 @@
 ------
 ### Events
 ------
-- USA: The opening of the International Consumer Electronics Show (CES), one of the largest trade shows in the world, showcasing innovative consumer technology products and services in Las Vegas.
-- Iran: The commemoration of the National Day of Nuclear Technology, celebrating Iran's advancements and achievements in nuclear technology and research.
+- USA: National Human Trafficking Awareness Day is observed on January 11th every year. It aims to shed light on the issue of human trafficking and raise awareness about its prevention.
+- Iran: National Police Day is celebrated on January 11th in Iran. This day commemorates the foundation of Iran's first modern police force and honors the efforts and dedication of the country's police personnel.
 ### Positive Qoute
 ------
-"Success is not final, failure is not fatal: it is the courage to continue that counts." 💪🌟
+"Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle" 💪✨🌟
