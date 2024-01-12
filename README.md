@@ -2,8 +2,8 @@
 ------
 ### Events
 ------
-- USA: The Golden Globe Awards ceremony takes place honoring outstanding achievements in film and television.
-- Iran: The Fajr Film Festival is held, showcasing Iranian cinema and recognizing notable contributions to the industry.
+- January 12, USA: The Golden Globes award ceremony takes place, honoring outstanding achievements in film and television.
+- January 12, Iran: The Iranian Revolutionary Guard Corps conducts a military exercise, showcasing their military capabilities and readiness.
 ### Positive Qoute
 ------
-"Believe you can and you're halfway there." 🌟💪👏
+"Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle." 💪🌟🔥
