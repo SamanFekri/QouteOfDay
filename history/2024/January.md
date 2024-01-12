@@ -67,3 +67,10 @@
 ### Quote of the day
 "Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle" 💪✨🌟
 -----
+## Friday, 12 January, 2024
+### Events
+- USA: The Golden Globe Awards ceremony takes place honoring outstanding achievements in film and television.
+- Iran: The Fajr Film Festival is held, showcasing Iranian cinema and recognizing notable contributions to the industry.
+### Quote of the day
+"Believe you can and you're halfway there." 🌟💪👏
+-----
