@@ -88,3 +88,10 @@
 ### Quote of the day
 "Believe you can and you're halfway there." 💪🌟🌈
 -----
+## Saturday, 13 January, 2024
+### Events
+- In the USA: The National Football League (NFL) playoff games are held, with teams competing for a spot in the Super Bowl.
+- In Iran: The International Fajr Film Festival, showcasing Iranian and international films, begins in Tehran.
+### Quote of the day
+"Every day is a new opportunity to shine ✨💫"
+-----
