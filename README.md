@@ -1,9 +1,9 @@
-### 📅 Friday, 12 January, 2024
+### 📅 Saturday, 13 January, 2024
 ------
 ### Events
 ------
-- January 12, USA: The Golden Globes award ceremony takes place, honoring outstanding achievements in film and television.
-- January 12, Iran: The Iranian Revolutionary Guard Corps conducts a military exercise, showcasing their military capabilities and readiness.
+- In the USA, on January 13th, the NFL Divisional Playoffs may occur.
+- In Iran, January 13th is celebrated as the National Day of Cinema.
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle." 💪🌟🔥
+"Believe you can and you're halfway there." 💪🌟🌈
