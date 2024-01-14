@@ -2,18 +2,9 @@
 ------
 ### Events
 ------
-- On January 14, the US celebrated National Dress Up Your Pet Day, where pet owners across the country showcased their creative side by dressing up their furry friends in amusing outfits.
-- On January 14, Iran observed the National Day of Mourning, a day of remembrance for the victims of the Ukrainian International Airlines Flight 752 tragedy, which crashed shortly after takeoff from Tehran on January 8, 2020.
+- **Women's March**: The Women's March is an annual event that usually takes place in January, around the anniversary of the first Women's March on January 21, 2017. While the date may vary slightly each year, if January 14 falls close to this anniversary, it's possible that Women's Marches, or related events promoting women's rights and intersectional feminism, could be happening across various cities in the USA.
+  
+Please note that specific events can differ from year to
 ### Positive Qoute
 ------
-"The only way to do great work is to love what you do." - Steve Jobs 👩‍💻
-
-"Believe you can and you're halfway there." - Theodore Roosevelt 🌟
-
-"Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful." - Albert Schweitzer 🌈
-
-"Your time is limited, don't waste it living someone else's life." - Steve Jobs ⏳
-
-"Be the change you wish to see in the world." - Mahatma Gandhi 🌍
-
-"The future belongs to those who believe in the beauty of their dreams." - Eleanor Roosevelt 🌠
+"Every day is a new beginning. Take a deep breath, smile, and start again. 😊🌅🍃"
