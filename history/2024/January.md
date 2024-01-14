@@ -120,3 +120,9 @@ Please note that specific events can differ from year to
 ### Quote of the day
 "Every day is a new beginning. Take a deep breath, smile, and start again. 😊🌅🍃"
 -----
+## Sunday, 14 January, 2024
+### Events
+- Martin Luther King Jr. Day Parade in Miami, Florida
+### Quote of the day
+"Every day is a second chance. 😊🌅 Believe in the magic of new beginnings!"
+-----

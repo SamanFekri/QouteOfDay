@@ -62,7 +62,7 @@ if __name__ == "__main__":
     today = date.today()
 
     # Ask for the the 3 events that happened in this date
-    prompt = f"What are one event in usa this date? (date={today.strftime('%d %B')}) use bullet points"
+    prompt = f"What are one event in usa this date? (date={today.strftime('%d %B')}) use bullet points just give the event no more"
     logging.info(f"Prompt: {prompt}")
     # ask the GPT model
     events = askFromGpt(prompt)
