@@ -126,3 +126,9 @@ Please note that specific events can differ from year to
 ### Quote of the day
 "Every day is a second chance. 😊🌅 Believe in the magic of new beginnings!"
 -----
+## Sunday, 14 January, 2024
+### Events
+- January 14, 1954: Marilyn Monroe married baseball star Joe DiMaggio at San Francisco City Hall.
+### Quote of the day
+"The only way to do great work is to love what you do. If you haven't found it yet, keep looking. Don't settle. 🌟💼🚀 As with all matters of the heart, you'll know when you find it." – Steve Jobs
+-----
