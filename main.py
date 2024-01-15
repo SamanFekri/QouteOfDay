@@ -68,7 +68,7 @@ if __name__ == "__main__":
     events = askFromGpt(prompt)
 
     # Ask for the quote of the day
-    prompt = f"Give me a random positive quote of the day with emojies related to the quote change every day"
+    prompt = f"Give me a random positive quote of the day with emojies (Nothing more that qoute)"
     logging.info(f"Prompt: {prompt}")
     # ask the GPT model
     quote = askFromGpt(prompt)
