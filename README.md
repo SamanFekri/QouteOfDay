@@ -2,9 +2,7 @@
 ------
 ### Events
 ------
-- Martin Luther King Jr. Day (observed on the third Monday of January, which often falls on or near January 15, his actual birthday)
+- Martin Luther King Jr. Day (celebrated on the third Monday of January, which sometimes falls on January 15th)
 ### Positive Qoute
 ------
-"Every day is a new opportunity to grow and smile. Keep looking up! 🌱🌞🚀" 
-
-Remember, this quote doesn't change here automatically every day. For a new quote, feel free to ask again tomorrow!
+"Every day may not be good, but there is something good in every day. 😊🌟"
