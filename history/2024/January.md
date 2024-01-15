@@ -132,3 +132,11 @@ Please note that specific events can differ from year to
 ### Quote of the day
 "The only way to do great work is to love what you do. If you haven't found it yet, keep looking. Don't settle. 🌟💼🚀 As with all matters of the heart, you'll know when you find it." – Steve Jobs
 -----
+## Monday, 15 January, 2024
+### Events
+- Martin Luther King Jr. Day (observed on the third Monday of January, which often falls on or near January 15, his actual birthday)
+### Quote of the day
+"Every day is a new opportunity to grow and smile. Keep looking up! 🌱🌞🚀" 
+
+Remember, this quote doesn't change here automatically every day. For a new quote, feel free to ask again tomorrow!
+-----

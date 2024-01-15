@@ -1,8 +1,10 @@
-### 📅 Sunday, 14 January, 2024
+### 📅 Monday, 15 January, 2024
 ------
 ### Events
 ------
-- January 14, 1954: Marilyn Monroe married baseball star Joe DiMaggio at San Francisco City Hall.
+- Martin Luther King Jr. Day (observed on the third Monday of January, which often falls on or near January 15, his actual birthday)
 ### Positive Qoute
 ------
-"The only way to do great work is to love what you do. If you haven't found it yet, keep looking. Don't settle. 🌟💼🚀 As with all matters of the heart, you'll know when you find it." – Steve Jobs
+"Every day is a new opportunity to grow and smile. Keep looking up! 🌱🌞🚀" 
+
+Remember, this quote doesn't change here automatically every day. For a new quote, feel free to ask again tomorrow!
