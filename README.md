@@ -2,7 +2,7 @@
 ------
 ### Events
 ------
-- Martin Luther King Jr. Day (celebrated on the third Monday of January, which can fall on the 16th)
+- Martin Luther King Jr. Day (observed on the third Monday of January each year)
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again. 😊🌟✨"
+"Believe you can and you're halfway there. 💫🌟"
