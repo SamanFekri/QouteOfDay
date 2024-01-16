@@ -1,8 +1,8 @@
-### 📅 Monday, 15 January, 2024
+### 📅 Tuesday, 16 January, 2024
 ------
 ### Events
 ------
-- Martin Luther King Jr. Day (celebrated on the third Monday of January, which sometimes falls on January 15th)
+- Martin Luther King Jr. Day (observed on the third Monday of January)
 ### Positive Qoute
 ------
-"Every day may not be good, but there is something good in every day. 😊🌟"
+"Believe you can and you're halfway there. 🚀✨"
