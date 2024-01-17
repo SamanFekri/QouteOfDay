@@ -2,11 +2,8 @@
 ------
 ### Events
 ------
-- Martin Luther King Jr. Day: This is a federal holiday in the United States celebrated on the third Monday in January, which often falls on or near January 17th, the birthday of Dr. Martin Luther King Jr. Here are some key points about the event:
-
-  - Commemoration of Civil Rights Leader: The day is set aside to honor the life and achievements of Dr. Martin Luther King Jr., who played a pivotal role in the American civil rights movement.
-
-  - Nationwide Observ
+- Martin Luther King Jr. Day: A federal holiday observed on the third Monday of January each year, which, in some years, falls on January 17th. This day celebrates the life and achievements of Martin Luther King Jr., an influential American civil rights leader.
+- National Day of Service: Often coinciding with Martin Luther King Jr. Day, this event encourages Americans to engage in volunteer service in honor of King’s commitment to community service and social justice.
 ### Positive Qoute
 ------
-Chase your dreams with vigorous steps and embrace life's surprises with a smile. 🌟 Keep shining, never stop learning, and remember that every sunrise offers a new chance to be amazing! 🌅✨🚀
+"Every sunrise brings a new chance to shine bright! 🌅✨ Embrace the day with an open heart and a spirit that can't be dampened! 🌟🌈💪"

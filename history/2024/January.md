@@ -216,3 +216,10 @@ Remember, this quote doesn't change here automatically every day. For a new quot
 ### Quote of the day
 Chase your dreams with vigorous steps and embrace life's surprises with a smile. 🌟 Keep shining, never stop learning, and remember that every sunrise offers a new chance to be amazing! 🌅✨🚀
 -----
+## Wednesday, 17 January, 2024
+### Events
+- Martin Luther King Jr. Day: A federal holiday observed on the third Monday of January each year, which, in some years, falls on January 17th. This day celebrates the life and achievements of Martin Luther King Jr., an influential American civil rights leader.
+- National Day of Service: Often coinciding with Martin Luther King Jr. Day, this event encourages Americans to engage in volunteer service in honor of King’s commitment to community service and social justice.
+### Quote of the day
+"Every sunrise brings a new chance to shine bright! 🌅✨ Embrace the day with an open heart and a spirit that can't be dampened! 🌟🌈💪"
+-----
