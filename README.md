@@ -2,8 +2,9 @@
 ------
 ### Events
 ------
-- Martin Luther King Jr. Day: A federal holiday observed on the third Monday of January each year, which, in some years, falls on January 17th. This day celebrates the life and achievements of Martin Luther King Jr., an influential American civil rights leader.
-- National Day of Service: Often coinciding with Martin Luther King Jr. Day, this event encourages Americans to engage in volunteer service in honor of King’s commitment to community service and social justice.
+- Martin Luther King Jr. Day (observed): This is a federal holiday in the United States that honors civil rights leader Dr. Martin Luther King Jr. It is observed on the third Monday of January each year, which is around the time of King's birthday on January 15.
+
+Please note that specific events can vary from year to year, and since my knowledge cut-off is March 2023, I can't provide details about events occurring on January 17, 2024 or beyond
 ### Positive Qoute
 ------
-"Every sunrise brings a new chance to shine bright! 🌅✨ Embrace the day with an open heart and a spirit that can't be dampened! 🌟🌈💪"
+"Chase your dreams with unstoppable determination 🌟, and remember that every small step forward is a leap towards success 💪✨."
