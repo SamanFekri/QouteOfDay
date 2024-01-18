@@ -1,10 +1,12 @@
-### 📅 Wednesday, 17 January, 2024
+### 📅 Thursday, 18 January, 2024
 ------
 ### Events
 ------
-- Martin Luther King Jr. Day (observed): This is a federal holiday in the United States that honors civil rights leader Dr. Martin Luther King Jr. It is observed on the third Monday of January each year, which is around the time of King's birthday on January 15.
+As of my last update, there are no universally recognized annual events that are specifically tied to January 18th in the United States. However, here are a few types of events that could potentially occur on that date:
 
-Please note that specific events can vary from year to year, and since my knowledge cut-off is March 2023, I can't provide details about events occurring on January 17, 2024 or beyond
+- **Martin Luther King Jr. Day Observances:** While the actual holiday falls on the third Monday of January, related events and celebrations might extend to surrounding days, including January 18th, if it is near that weekday.
+  
+- **Government Activities:** Local government meetings,
 ### Positive Qoute
 ------
-"Chase your dreams with unstoppable determination 🌟, and remember that every small step forward is a leap towards success 💪✨."
+"Spread kindness like confetti and watch the world sparkle with joy! ✨😊💖"
