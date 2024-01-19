@@ -1,11 +1,10 @@
-### 📅 Thursday, 18 January, 2024
+### 📅 Friday, 19 January, 2024
 ------
 ### Events
 ------
-- January 18 marks the annual celebration of Martin Luther King Jr. Day, which is observed on the third Monday of January each year to honor the civil rights leader's birthday (January 15, 1929). While the actual date might not always fall on January 18, if it does, it includes various events such as:
-    - Parades and marches in major cities
-    - Educational programs and services dedicated to King's legacy
-    - Volunteer service initiatives as it is also regarded
+- January 19, 2023 doesn't have a specific annual event that is widely recognized across the United States. 
+- However, January 19 is the birthdate of the famous American author Edgar Allan Poe (born January 19, 1809). Some local societies dedicated to Poe might commemorate the date.
+- In the proximity of this date, Martin Luther King Jr. Day is observed, which is a federal holiday marking the birthday of Martin Luther King Jr. It is observed on the
 ### Positive Qoute
 ------
-"Every day is a fresh beginning, every sunrise a new chance to dance with your dreams. 💫🌅 Embrace the possibilities! 🌼✨"
+"Every sunrise is a new page in the diary of your life, write a beautiful story today! 🌅✨📖🖊️"
