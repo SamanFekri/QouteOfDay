@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- January 19, 2023 doesn't have a specific annual event that is widely recognized across the United States. 
-- However, January 19 is the birthdate of the famous American author Edgar Allan Poe (born January 19, 1809). Some local societies dedicated to Poe might commemorate the date.
-- In the proximity of this date, Martin Luther King Jr. Day is observed, which is a federal holiday marking the birthday of Martin Luther King Jr. It is observed on the
+- Presidential Inauguration Day: Every four years on January 20th, the United States observes the inauguration of the president and vice president, but when the 20th falls on a Sunday, the public ceremony is often held on the 19th, with the official oath-taking occurring in private on the 20th. However, this event is not annual and only occurs in years following a presidential election.
+
+- Martin Luther King Jr. Day: While not specifically on January 19th,
 ### Positive Qoute
 ------
-"Every sunrise is a new page in the diary of your life, write a beautiful story today! 🌅✨📖🖊️"
+"Every sunrise 🌅 is a new chapter in your story waiting to be written. Unleash your inner light and let it shine bright! ✨📖✍️"
