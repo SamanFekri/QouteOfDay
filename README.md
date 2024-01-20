@@ -2,10 +2,9 @@
 ------
 ### Events
 ------
-- Presidential Inauguration Day: Every four years, on January 20th, the United States holds the inauguration ceremony for the President-elect to officially become the President of the United States.
-  - Oath of office: The President-elect takes the oath of office as prescribed by the U.S. Constitution.
-  - Inaugural address: The newly sworn-in President delivers the inaugural address, outlining their vision and intentions for their term.
-  - Inaugural parade: A parade typically follows the
+- Presidential Inauguration: Every four years, on January 20, the United States holds the inauguration of the president-elect, who has won the election held the previous November. This event signifies the peaceful transfer of power and the start of a new presidential term.
+  - Oath of Office: The president-elect takes the oath of office, usually administered by the Chief Justice of the Supreme Court.
+  - Inaugural Address: Following the oath, the new President delivers the inaugural address, outlining
 ### Positive Qoute
 ------
-"Every sunrise 🌅 brings a new chance to smile 😊 and create your own rainbow 🌈 amidst the stormy weathers of life. Keep shining! ✨"
+"Chase your dreams like the moon follows the sun across the sky 🌟🌙. Remember, even on cloudy days, the stars are still shining above the clouds! ✨☁️ Keep sparkling, no matter what! 💫🚀"
