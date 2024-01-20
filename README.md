@@ -1,10 +1,11 @@
-### 📅 Friday, 19 January, 2024
+### 📅 Saturday, 20 January, 2024
 ------
 ### Events
 ------
-- Presidential Inauguration Day: Every four years on January 20th, the United States observes the inauguration of the president and vice president, but when the 20th falls on a Sunday, the public ceremony is often held on the 19th, with the official oath-taking occurring in private on the 20th. However, this event is not annual and only occurs in years following a presidential election.
-
-- Martin Luther King Jr. Day: While not specifically on January 19th,
+- Presidential Inauguration Day: Every four years, on January 20th, the United States holds the inauguration ceremony for the President-elect to officially become the President of the United States.
+  - Oath of office: The President-elect takes the oath of office as prescribed by the U.S. Constitution.
+  - Inaugural address: The newly sworn-in President delivers the inaugural address, outlining their vision and intentions for their term.
+  - Inaugural parade: A parade typically follows the
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new chapter in your story waiting to be written. Unleash your inner light and let it shine bright! ✨📖✍️"
+"Every sunrise 🌅 brings a new chance to smile 😊 and create your own rainbow 🌈 amidst the stormy weathers of life. Keep shining! ✨"
