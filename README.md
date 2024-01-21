@@ -2,12 +2,8 @@
 ------
 ### Events
 ------
-- January 21, 2019: Martin Luther King Jr. Day
-  - A federal holiday in the United States marking the birthday of Dr. Martin Luther King Jr.
-  - It is observed on the third Monday of January each year, which is around the time of King's birthday, January 15.
-  - This day is marked by many events such as parades, community service, and educational programs to honor the legacy of the civil rights leader.
-
-Please note that specific events can
+- Presidential Inauguration (every four years): On January 21st, when it follows a Presidential election year, the United States holds the inauguration for the President and Vice President. Notably, if the 20th is on a Sunday, the public inauguration may be held on the 21st.
+- Women's March: The first Women's March took place on January 21, 2017, the day after President Donald Trump's inauguration, in various cities across the United States to
 ### Positive Qoute
 ------
-"Every day is a fresh start, a new opportunity to bloom 🌼. Keep planting seeds of kindness, and watch your garden of happiness grow 🌱😊."
+"Every sunrise is a new page of your story waiting to be written. Embrace the opportunity with joy and courage! 🌅😊✨"
