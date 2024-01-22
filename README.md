@@ -1,9 +1,12 @@
-### 📅 Sunday, 21 January, 2024
+### 📅 Monday, 22 January, 2024
 ------
 ### Events
 ------
-- Presidential Inauguration (every four years): On January 21st, when it follows a Presidential election year, the United States holds the inauguration for the President and Vice President. Notably, if the 20th is on a Sunday, the public inauguration may be held on the 21st.
-- Women's March: The first Women's March took place on January 21, 2017, the day after President Donald Trump's inauguration, in various cities across the United States to
+As of my last knowledge update in April 2023, specific events on January 22nd in any given year in the USA can vary widely, from historical commemorations to modern-day happenings. Here's a list of the types of events that might occur on that date:
+
+- **Anniversary of Roe v. Wade**: January 22, 1973, was the date of the landmark Supreme Court decision that legalized abortion nationwide. Events surrounding this might include:
+  - Memorial services
+ 
 ### Positive Qoute
 ------
-"Every sunrise is a new page of your story waiting to be written. Embrace the opportunity with joy and courage! 🌅😊✨"
+"Every sunrise is a new page in the book of life; write it with joy, color it with love, and bookmark it with unforgettable moments. 🌅❤️✨"
