@@ -2,11 +2,9 @@
 ------
 ### Events
 ------
-As of my last knowledge update in April 2023, specific events on January 22nd in any given year in the USA can vary widely, from historical commemorations to modern-day happenings. Here's a list of the types of events that might occur on that date:
+As of my last update in early 2023, one significant event that is annually marked on January 22nd in the United States is:
 
-- **Anniversary of Roe v. Wade**: January 22, 1973, was the date of the landmark Supreme Court decision that legalized abortion nationwide. Events surrounding this might include:
-  - Memorial services
- 
+- National Sanctity of Human Life Day: This day was first proclaimed by President Ronald Reagan in 1984. January 22 was chosen to coincide with the anniversary of the Supreme Court's decision in Roe v. Wade, which legalized abortion in the United States in 1973. The day is observed particularly by groups and individuals who oppose abortion and advocate
 ### Positive Qoute
 ------
-"Every sunrise is a new page in the book of life; write it with joy, color it with love, and bookmark it with unforgettable moments. 🌅❤️✨"
+"Embrace the journey with a heart full of hope and eyes fixed on the horizon. 🌟 Every step you take is a chance to grow, to love, to live. Keep shining! ✨🚀❤️"
