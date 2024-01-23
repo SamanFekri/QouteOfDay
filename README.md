@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff date in early 2023, there isn't a specific recurring national event in the United States that is uniquely associated with January 23rd each year. However, there may be local events, historical occurrences, or specific happenings planned for that date in 2023 or any other year. Here are a few examples of events or observances that could occur on that date:
+- National Pie Day: Celebrated annually in the United States on January 23, National Pie Day is an unofficial national holiday created simply to celebrate the pie. It is a day for baking, cooking, and enjoying various kinds of pies, with many pie shops and bakeries offering special deals or pie-related promotions.
 
-- **Local community events:** Depending on the year, there might be concerts, festivals, workshops
+Please note that events can vary by year, and some events may be one-time occurrences. It's always a good idea to check local listings or official sources for any specific events happening on
 ### Positive Qoute
 ------
-"Believe in the magic within you, and watch the world transform around you. ✨🌟💖"
+"Every sunrise 🌅 is an invitation to brighten someone's day. Let your smile 😊 be the light that guides the way!"
