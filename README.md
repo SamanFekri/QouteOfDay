@@ -2,9 +2,13 @@
 ------
 ### Events
 ------
-- National Opposite Day: This informal holiday encourages people to have fun by saying the opposite of what they really mean. It's not an official national holiday but is a popular concept in American culture, particularly among children.
-- National Irish Coffee Day: This day celebrates the popular cocktail combining coffee, Irish whiskey, sugar, and cream. Coffee enthusiasts and cocktail lovers often enjoy Irish Coffee on this day.
-- National Florida Day: Recognized in the National Day Calendar, this day celebrates the Sunshine State,
+As of my last update in early 2023, here are some events that may take place in the USA on January 25:
+
+- National Plan for Vacation Day: This day is celebrated on the last Tuesday of January, aiming to encourage Americans to plan their vacation days for the whole year.
+
+- Florida Keys Celtic Festival: This festival usually happens around mid-to-late January in Marathon, Florida, featuring Celtic bands, Highland athletics, and other cultural events.
+
+- Saint Paul Winter Carnival: Depending on
 ### Positive Qoute
 ------
-"Every sunrise brings new hope and fresh beginnings. Embrace the day with an open heart and a joyful spirit! 🌅✨💖"
+"Every sunrise 🌅 is an invitation to brighten someone's day. Let your smile 😊 change the world, but don't let the world change your smile. Keep shining! ✨"
