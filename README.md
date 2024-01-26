@@ -1,14 +1,9 @@
-### 📅 Thursday, 25 January, 2024
+### 📅 Friday, 26 January, 2024
 ------
 ### Events
 ------
-As of my last update in early 2023, here are some events that may take place in the USA on January 25:
-
-- National Plan for Vacation Day: This day is celebrated on the last Tuesday of January, aiming to encourage Americans to plan their vacation days for the whole year.
-
-- Florida Keys Celtic Festival: This festival usually happens around mid-to-late January in Marathon, Florida, featuring Celtic bands, Highland athletics, and other cultural events.
-
-- Saint Paul Winter Carnival: Depending on
+- January 26th is not a federal public holiday in the United States, so there are no annual nationwide events specifically tied to this day that are recognized across the country.
+- However, on January 26, 2023, the United States observed International Holocaust Remembrance Day, which honors the victims of the Holocaust. It is a day marked by educational programs and commemorative events. This date was chosen because it is the anniversary of the liberation of Auschwitz-Birkenau, the largest Nazi
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is an invitation to brighten someone's day. Let your smile 😊 change the world, but don't let the world change your smile. Keep shining! ✨"
+"Every day is a fresh start, an opportunity to bloom and shine 🌟🌺. Embrace the light within and let it guide you to greatness 💫✨."
