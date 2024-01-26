@@ -2,8 +2,11 @@
 ------
 ### Events
 ------
-- January 26th is not a federal public holiday in the United States, so there are no annual nationwide events specifically tied to this day that are recognized across the country.
-- However, on January 26, 2023, the United States observed International Holocaust Remembrance Day, which honors the victims of the Holocaust. It is a day marked by educational programs and commemorative events. This date was chosen because it is the anniversary of the liberation of Auschwitz-Birkenau, the largest Nazi
+One notable event that occurred on January 26 in the United States was:
+
+- In 2020: The tragic death of basketball legend Kobe Bryant, his daughter Gianna, and seven others in a helicopter crash in Calabasas, California. The event shocked fans and the nation as a whole, leading to tributes and commemorations across the country and around the world.
+
+Please note that January 26 is not associated with a recurring national event or holiday in the United States. Specific events that
 ### Positive Qoute
 ------
-"Every day is a fresh start, an opportunity to bloom and shine 🌟🌺. Embrace the light within and let it guide you to greatness 💫✨."
+"Every sunrise is a new page in your story, make it a great one today! 🌅✨💪 #NewBeginnings #Positivity #CarpeDiem"
