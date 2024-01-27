@@ -2,9 +2,7 @@
 ------
 ### Events
 ------
-- **International Holocaust Remembrance Day:** January 27th marks the anniversary of the liberation of Auschwitz-Birkenau, the largest Nazi death camp. It is a day dedicated to remembering the victims of the Holocaust. In the United States, various events such as memorial services, educational programs, and museum exhibits take place to honor the memory of the Holocaust victims.
-
-Please note that the specific events can vary each year, and there may be other local or national events on that date. It would be
+- International Holocaust Remembrance Day: January 27 is designated by the United Nations as International Holocaust Remembrance Day, commemorating the victims of the Holocaust. It marks the anniversary of the liberation of the Auschwitz-Birkenau concentration camp in 1945. In the United States, various events such as memorial services, educational programs, and exhibitions may take place to honor the memory of Holocaust victims.
 ### Positive Qoute
 ------
-"Embrace each day with a grateful heart and a hopeful spirit, for the wonders of life await those who believe. 💫✨🌟"
+"Every new day is a blank canvas 🎨, ready to be painted with our brightest colors of hope and happiness 🌟. Keep shining and share your light with the world! 💫🌈"
