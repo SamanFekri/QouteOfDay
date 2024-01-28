@@ -1,8 +1,10 @@
-### 📅 Saturday, 27 January, 2024
+### 📅 Sunday, 28 January, 2024
 ------
 ### Events
 ------
-- International Holocaust Remembrance Day: January 27 is designated by the United Nations as International Holocaust Remembrance Day, commemorating the victims of the Holocaust. It marks the anniversary of the liberation of the Auschwitz-Birkenau concentration camp in 1945. In the United States, various events such as memorial services, educational programs, and exhibitions may take place to honor the memory of Holocaust victims.
+- National Data Privacy Day: January 28th is recognized in the United States as National Data Privacy Day. It is an international effort to empower individuals and encourage businesses to respect privacy, safeguard data, and enable trust.
+  
+- Space Shuttle Challenger Disaster Anniversary: On January 28, 1986, the Space Shuttle Challenger broke apart 73 seconds into its flight, leading to the deaths of all seven crew members. This date marks the anniversary of the tragedy and is often commemorated with remembrance
 ### Positive Qoute
 ------
-"Every new day is a blank canvas 🎨, ready to be painted with our brightest colors of hope and happiness 🌟. Keep shining and share your light with the world! 💫🌈"
+"Every sunrise brings a new opportunity to shine. Embrace the day with an open heart and a smile. 😊🌅✨"
