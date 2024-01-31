@@ -2,11 +2,14 @@
 ------
 ### Events
 ------
-- **Super Blue Blood Moon (2018)**: A rare lunar event, this Super Blue Blood Moon was visible in parts of the USA on January 31, 2018, combining a supermoon, blue moon, and a total lunar eclipse.
+As of my last update, here are a few possible recurring events and occurrences that might happen in the United States on January 31st:
 
-- **National Inspire Your Heart With Art Day**: This annual event is observed on January 31, encouraging people across the USA to appreciate and participate in the various forms of art.
+- **Super Blue Blood Moon (2018 specific)**:
+  - Rare lunar event that last took place on January 31, 2018.
+  - Combination of a supermoon, blue moon, and total lunar eclipse.
 
-Please note that events can vary from year to year, and
+- **Tax Filing Season**:
+  - IRS may open the tax filing season for individuals to submit their previous year's tax
 ### Positive Qoute
 ------
-"Every sunrise brings new hope and endless possibilities. Let's embrace the day with joy and gratitude! 🌅☀️🙌"
+"Embrace the day with open arms and a heart full of gratitude 🌅💖 Every moment is a new beginning filled with endless possibilities! Keep shining ✨🚀"
