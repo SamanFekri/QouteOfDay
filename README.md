@@ -2,8 +2,7 @@
 ------
 ### Events
 ------
-- Groundhog Day: An annual event held on February 2nd across the United States, where it is tradition to watch the behavior of a groundhog emerging from its burrow. According to folklore, if the groundhog sees its shadow due to clear weather, it will retreat back into its den, and there will be six more weeks of winter. If it does not see its shadow because of cloudiness, spring will arrive early.
-- National Signing Day for college football: Although not a public
+- Groundhog Day: An annual event held on February 2nd in the United States where it is believed that the groundhog (a rodent) predicts the weather. According to folklore, if the groundhog sees its shadow when it emerges from its burrow, there will be six more weeks of winter; if it doesn't, there will be an early spring. The most famous celebration takes place in Punxsutawney, Pennsylvania, with Punxsutawney Phil the groundhog
 ### Positive Qoute
 ------
-"Every sunrise brings new hope and bright beginnings. Embrace the day with a grateful heart! 🌅✨💖"
+"🌟 Believe in the magic of new beginnings and the power of dreams. ✨ Your potential is limitless, and your journey is just beginning. Keep shining bright! 🚀🌈"
