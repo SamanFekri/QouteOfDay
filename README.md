@@ -2,10 +2,9 @@
 ------
 ### Events
 ------
-- National Pizza Day: Celebrated annually on February 9th, this event honors one of the most popular foods in the United States, pizza. It's a day when many pizzerias offer deals and discounts.
-- National Bagel Day: Previously celebrated on January 15, this day was shifted to February 9th in 2020 to avoid clashing with National Pizza Day. It celebrates the rich history and enjoyment of bagels.
-
-Please note that this information is based on recurring events
+- National Pizza Day: An unofficial holiday celebrated across the United States on February 9th, where many pizzerias offer deals or specials to honor the day.
+- National Toothache Day: An awareness day dedicated to dental health and the importance of proper oral care, falling on February 9th.
+- National Bagel Day (formerly on February 9th, but recently has been moved to January 15th): A day to celebrate the bagel, a popular breakfast and sandwich bread option
 ### Positive Qoute
 ------
-"Embrace the sunshine within your soul and let your spirit soar! 🌞💖✨"
+"Every sunrise 🌅 is a new chapter in your story waiting to be written with joy and love 💖. Keep turning the pages with a smile 😊 and let your spirit soar! 🚀"
