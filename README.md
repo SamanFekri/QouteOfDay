@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-- National Home Warranty Day: Recognizes the value and importance of home warranties. It's a day when homeowners are reminded to understand and manage their home warranty plans.
+- **National Wear Red Day**: An annual event on the first Friday of February, which in some years falls on February 10th. This event is part of the American Heart Association's Go Red for Women campaign to raise awareness about cardiovascular disease in women.
 
-- National Umbrella Day: Celebrates the invention that helps to keep us dry from the rain, protects us from the sun, and has become a fashionable accessory.
+- **Westminster Kennel Club Dog Show**: Depending on the year, the Westminster Dog Show may start around this date. It's one of the oldest and most prestigious dog shows in the United States.
 
-- National Cream Cheese Brownie Day: A day for dessert lovers to indulge in a delicious combination of cream cheese and chocolate by enjoying cream cheese brownies.
-
-Please note that
+- **New York Fashion Week**:
 ### Positive Qoute
 ------
-"Every sunrise 🌅 brings a new page to write your story. Embrace the day with a grateful heart 💖 and an unstoppable spirit! 💪😊"
+"Every day is a fresh start; the possibilities are endless 🌅✨ Be the energy you want to attract! 🤗💫"
