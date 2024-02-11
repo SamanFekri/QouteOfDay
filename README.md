@@ -2,9 +2,14 @@
 ------
 ### Events
 ------
-- National Inventors' Day: Celebrated annually on February 11th in the United States, National Inventors' Day honors the contributions of inventors and promotes creativity and innovation. The date was chosen in recognition of the birthday of Thomas Edison, one of America's most prolific inventors.
+As of the knowledge cutoff in 2023, one of the annual events that occur in the United States on February 11 is:
 
-Please note that the aforementioned event is a standing observance on February 11th in the United States. There might be other events, such as concerts, sports games, or local celebrations planned for that specific
+- National Inventors' Day: 
+  - Celebrates the contribution of inventors to national welfare and development.
+  - Coincides with the birthday of Thomas Edison, a famous American inventor.
+  - Encourages innovation and creativity across the country.
+
+Please note that each year could bring different events, and the above is an example of a recurring event on
 ### Positive Qoute
 ------
-"Every morning brings new potential, but if you dwell on the misfortunes of the day before, you tend to overlook tremendous opportunities. 🌅✨ Keep shining, no matter what! 😊💪"
+"Every step forward is a victory, no matter how small 🚶‍♂️✨. Keep shining and embrace the journey! 🌟🌈"
