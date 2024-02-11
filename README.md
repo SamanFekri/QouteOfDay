@@ -1,12 +1,10 @@
-### 📅 Saturday, 10 February, 2024
+### 📅 Sunday, 11 February, 2024
 ------
 ### Events
 ------
-- **National Wear Red Day**: An annual event on the first Friday of February, which in some years falls on February 10th. This event is part of the American Heart Association's Go Red for Women campaign to raise awareness about cardiovascular disease in women.
+- National Inventors' Day: Celebrated annually on February 11th in the United States, National Inventors' Day honors the contributions of inventors and promotes creativity and innovation. The date was chosen in recognition of the birthday of Thomas Edison, one of America's most prolific inventors.
 
-- **Westminster Kennel Club Dog Show**: Depending on the year, the Westminster Dog Show may start around this date. It's one of the oldest and most prestigious dog shows in the United States.
-
-- **New York Fashion Week**:
+Please note that the aforementioned event is a standing observance on February 11th in the United States. There might be other events, such as concerts, sports games, or local celebrations planned for that specific
 ### Positive Qoute
 ------
-"Every day is a fresh start; the possibilities are endless 🌅✨ Be the energy you want to attract! 🤗💫"
+"Every morning brings new potential, but if you dwell on the misfortunes of the day before, you tend to overlook tremendous opportunities. 🌅✨ Keep shining, no matter what! 😊💪"
