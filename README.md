@@ -1,15 +1,10 @@
-### 📅 Sunday, 11 February, 2024
+### 📅 Monday, 12 February, 2024
 ------
 ### Events
 ------
-As of the knowledge cutoff in 2023, one of the annual events that occur in the United States on February 11 is:
+- Lincoln's Birthday: February 12th is the birthday of Abraham Lincoln, the 16th President of the United States. While not a federal holiday, Lincoln's Birthday is a state holiday in several states, and various events, such as reenactments, wreath-laying ceremonies, and educational activities, may take place to honor his legacy.
 
-- National Inventors' Day: 
-  - Celebrates the contribution of inventors to national welfare and development.
-  - Coincides with the birthday of Thomas Edison, a famous American inventor.
-  - Encourages innovation and creativity across the country.
-
-Please note that each year could bring different events, and the above is an example of a recurring event on
+- Darwin Day: February 12th is also Darwin Day, which celebrates the birth of Charles Darwin, the influential naturalist, and scientist
 ### Positive Qoute
 ------
-"Every step forward is a victory, no matter how small 🚶‍♂️✨. Keep shining and embrace the journey! 🌟🌈"
+"Chase your dreams like the stars illuminate the night sky—endlessly and brightly. ✨💫 Believe in your journey, for each step forward is a sparkle added to your path. 🌟🚀"
