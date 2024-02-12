@@ -198,3 +198,11 @@ Please note that each year could bring different events, and the above is an exa
 ### Quote of the day
 "Chase your dreams like the stars illuminate the night sky—endlessly and brightly. ✨💫 Believe in your journey, for each step forward is a sparkle added to your path. 🌟🚀"
 -----
+## Monday, 12 February, 2024
+### Events
+- **Abraham Lincoln's Birthday:** The 12th of February is the birthday of Abraham Lincoln, the 16th President of the United States, born in 1809. While it is not a federal holiday, Lincoln's birthday is officially recognized and observed by individual states and in some cases with special events or activities.
+
+- **Darwin Day:** February 12th is also celebrated as Darwin Day, commemorating the birthday of Charles Darwin, the naturalist known for his contributions to the
+### Quote of the day
+"Every sunrise offers a new page to write your story. Fill it with color and kindness! 🌅✍️❤️🌈"
+-----

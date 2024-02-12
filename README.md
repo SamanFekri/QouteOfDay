@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- Lincoln's Birthday: February 12th is the birthday of Abraham Lincoln, the 16th President of the United States. While not a federal holiday, Lincoln's Birthday is a state holiday in several states, and various events, such as reenactments, wreath-laying ceremonies, and educational activities, may take place to honor his legacy.
+- **Abraham Lincoln's Birthday:** The 12th of February is the birthday of Abraham Lincoln, the 16th President of the United States, born in 1809. While it is not a federal holiday, Lincoln's birthday is officially recognized and observed by individual states and in some cases with special events or activities.
 
-- Darwin Day: February 12th is also Darwin Day, which celebrates the birth of Charles Darwin, the influential naturalist, and scientist
+- **Darwin Day:** February 12th is also celebrated as Darwin Day, commemorating the birthday of Charles Darwin, the naturalist known for his contributions to the
 ### Positive Qoute
 ------
-"Chase your dreams like the stars illuminate the night sky—endlessly and brightly. ✨💫 Believe in your journey, for each step forward is a sparkle added to your path. 🌟🚀"
+"Every sunrise offers a new page to write your story. Fill it with color and kindness! 🌅✍️❤️🌈"
