@@ -3,13 +3,10 @@
 ### Events
 ------
 - Valentine's Day
-  - A holiday where people express affection with greetings and gifts to loved ones
-  - Couples often exchange cards, flowers, and chocolates
-  - Restaurants and businesses offer special Valentine's Day promotions and menus
-  - Some people choose to celebrate with friends or practice self-love and self-care activities 
-  - Engagement proposals are popular on this date
-  - Schools may host Valentine's Day events or activities for students
-  - Theme parks and attractions may have Valentine-themed
+  - A holiday where people express love and affection to significant others, family, and friends
+  - Common traditions include exchanging cards, flowers, chocolates, and gifts
+  - Romantic dinners and dates are popular
+  - Some schools and organizations might host Valentine's Day-themed events or activities
 ### Positive Qoute
 ------
-"Spread love and joy like confetti. 🎉 Let your smile change the world, but don't let the world change your smile. 😊 Keep shining! ✨"
+"Chase your dreams with the determination of the sun chasing the horizon. Every day brings a new light of opportunities! ☀️✨🌱 #StayPositive #ChaseDreams"
