@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- **Susan B. Anthony Day**: February 15 is a commemorative day in the United States to celebrate the birthday of Susan B. Anthony, a prominent figure in the women's suffrage movement.
-
-Please note that events can vary widely from year to year, and the specific events happening on February 15 may differ based on the year. For the exact events of a particular year, it would be best to check a current calendar of events or news sources.
+- Susan B. Anthony Day: Celebrated on February 15th, this day honors the birth of Susan Brownell Anthony, a prominent American civil rights leader who played a pivotal role in the women's suffrage movement.
+- Singles Awareness Day (SAD): Recognized on February 15th, the day after Valentine's Day, this is a humorous holiday for single people to celebrate or to commiserate in their single status.
+- National Gumdrop Day: On February 15th,
 ### Positive Qoute
 ------
-"Every dawn brings new light, new possibilities, and the chance to bloom. 🌅🌸 Embrace the day with an open heart and let your spirit soar! 🚀❤️"
+"Every sunrise brings a new opportunity to shine! Chase your dreams with vigor and passion 🌅✨💪 #StayPositive #EmbraceTheDay"
