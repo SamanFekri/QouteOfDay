@@ -1,11 +1,14 @@
-### 📅 Sunday, 18 February, 2024
+### 📅 Monday, 19 February, 2024
 ------
 ### Events
 ------
-- Daytona 500: The annual NASCAR Cup Series motor race is traditionally held on Presidents' Day weekend in February at the Daytona International Speedway in Daytona Beach, Florida, either on or close to February 18.
-- Presidents' Day Sales: Retailers across the United States offer special sales and promotions tied to the Presidents' Day holiday, which often falls near February 18.
+- **Presidents' Day (Washington's Birthday):**
+   - Celebrated on the third Monday of February, which may fall on or around the 19th
+   - A federal holiday in honor of George Washington, the first President of the United States
+   - Observed by government offices, banks, and schools with closures
+   - Retail sales and promotions are common
 
-Please note that specific events on February 18 can vary from year to year, and not all events occur annually or on the
+Please note that specific events can vary from year to year, and without a specific year mentioned, it's challenging to
 ### Positive Qoute
 ------
-"Every sunrise is an invitation to brighten someone's day. 😊🌅 Spread kindness like confetti! 🎉💖"
+"Every sunrise brings new opportunities, so rise like the sun and shine bright! 🌅✨💪"
