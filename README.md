@@ -2,8 +2,15 @@
 ------
 ### Events
 ------
-- Presidents' Day (also known as Washington's Birthday): This federal holiday is celebrated on the third Monday of February, which often falls on or around February 20. It honors the birthdays of George Washington, the first President of the United States, and Abraham Lincoln, as well as the lives and achievements of other past presidents.
-- Great Backyard Bird Count: This event occasionally coincides with February 20, depending on the year. It is a citizen science project where people from all over the
+- Presidents Day (also known as Washington's Birthday): 
+  - Federal holiday in the United States celebrated on the third Monday of February
+  - Honors all past presidents of the United States, although originally established to honor George Washington
+  - Many government offices, schools, and businesses are closed
+  - Retail sales and promotions are common
+  - Parades and community events may take place in some areas
+  - Some historical sites and museums may have special programs or free entry
+
+Please
 ### Positive Qoute
 ------
-"Every new day is a blank canvas, ready for a masterpiece. Create yours with passion and joy! 🎨🌅❤️"
+"Embrace each day with a heart full of gratitude and a smile that radiates kindness. 😊🌟 Spread love wherever you go, and watch the world bloom around you. 🌸💕 #PositivityWins"
