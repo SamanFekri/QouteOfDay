@@ -2,11 +2,8 @@
 ------
 ### Events
 ------
-- **Texas Independence Day:** An annual celebration in Texas, United States, commemorating the adoption of the Texas Declaration of Independence on March 2, 1836, which declared independence from Mexico and created the Republic of Texas.
-
-- **Read Across America Day:** An initiative on March 2 by the National Education Association (NEA) centered around encouraging children and young adults to read. This date was chosen to coincide with the birthday of Dr. Seuss, a famous children's book author.
-
-
+- Texas Independence Day: March 2nd marks the celebration of Texas Independence Day, commemorating the adoption of the Texas Declaration of Independence on March 2, 1836. This event declared Texas's independence from Mexico and created the Republic of Texas.
+- Read Across America Day: Also known as Dr. Seuss Day, this day falls on March 2nd in honor of the birthday of Theodor Seuss Geisel, better known as Dr. Seuss. It is a nationwide reading
 ### Positive Qoute
 ------
-"Every sunrise is an invitation to brighten someone's day. 🌅 Spread kindness like confetti! 🎉"
+"Believe in the magic of new beginnings. 🌟 Every day is a chance to create your own story. 📖✨ Embrace it with an open heart ❤️ and a fearless spirit 💪!"
