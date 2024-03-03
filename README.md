@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-- **Iditarod Trail Sled Dog Race**: This annual event in Alaska can sometimes begin on March 3, depending on the year. It commemorates a 1925 serum run to Nome to combat a diphtheria epidemic.
+As of my last update, specific events occurring on March 3rd in any given year in the USA can vary widely. Here are a few types of events that might happen on March 3rd:
 
-- **National Anthem Day**: March 3 marks the day when "The Star-Spangled Banner" was adopted as the national anthem of the United States in 1931.
-
-- **Read Across America Day**: While typically celebrated on March 2 in
+- **National Observances:**
+  - National Anthem Day: March 3rd marks the day when "The Star-Spangled Banner" was adopted as the United States' national anthem in 1931.
+  - National I Want You to be Happy Day: A day encouraging people to
 ### Positive Qoute
 ------
-"Each day brings new beginnings and endless possibilities. Embrace the adventure with a smile! 😊🌟✨"
+"Every morning brings new potential, but it's up to us to make something of it. 🌅✨ Embrace the day with an open heart and a brave soul, for happiness is a journey, not a destination. 😊🚀"
