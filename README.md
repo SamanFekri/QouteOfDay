@@ -2,9 +2,11 @@
 ------
 ### Events
 ------
-- **National Grammar Day**: Established by Martha Brockenbrough, founder of the Society for the Promotion of Good Grammar, National Grammar Day is celebrated on March 4th in the United States. The day promotes awareness and understanding of proper grammar.
+- Presidential Inauguration (prior to 1933): March 4th was historically the date on which the President of the United States was inaugurated. This tradition continued until the 20th Amendment to the Constitution changed the date to January 20th, starting in 1937.
+  
+- National Grammar Day: March 4th is also National Grammar Day in the United States, a day established to recognize and celebrate the importance of proper grammar usage in communication.
 
-Please note that the specific events can vary year by year, and there might be other local events, fundraisers, or celebrations that occur on March 4th in various places across the United States. For the most current and detailed list of events,
+Note: Specific events that
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new chapter in your story waiting to be written. 🖋️ Embrace the possibilities and shine bright! ✨"
+"Every sunrise is an invitation to brighten someone's day. ☀️🌱 Spread kindness like confetti! 🎉💖"
