@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-As of my last knowledge update in March 2023, specific details about events that will occur on a given date, such as March 5th, in any particular year can't be predicted far in advance. However, some annual events that might typically happen around this time in the USA include:
+- **Iditarod Trail Sled Dog Race**: Known as "The Last Great Race on Earth," the Iditarod usually kicks off with a ceremonial start in Anchorage, Alaska on the first Saturday in March, followed by the official restart in Willow the next day, which occasionally falls on March 5th. Mushers and their dog teams embark on a 1,000-mile journey to Nome, often facing harsh conditions.
 
-- Mardi Gras (also known as Fat Tuesday): Occurs the day before Ash Wednesday, the start of Lent in the Christian calendar. If March 5 falls on or near this date,
+- **CIAA Basketball Tournament**: The Central Intercolleg
 ### Positive Qoute
 ------
-"Chase your dreams like the stars chase the night 🌠, for even if you stumble, you'll land among the wonders of your own making ✨."
+"Every day is a new beginning, take a deep breath, smile, and start again. 😊🌅🌱"
