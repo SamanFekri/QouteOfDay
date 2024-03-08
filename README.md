@@ -2,7 +2,9 @@
 ------
 ### Events
 ------
-- International Women's Day: Though not a public holiday, various events are held across the United States on March 8th to celebrate International Women's Day. This can include marches, speeches, rallies, and other events focusing on women's rights and achievements.
+- International Women's Day: While not exclusive to the USA, International Women's Day is observed on March 8th every year. It's a global day celebrating the social, economic, cultural, and political achievements of women. Events across the country can include marches, rallies, panel discussions, networking events, and more, all focused on women's rights and gender equality.
+
+- National School Breakfast Week: Typically held during the first full week of March, National School Breakfast Week might include special events or
 ### Positive Qoute
 ------
-"Every sunrise brings new hope and endless possibilities. Embrace the day with an open heart and a daring spirit. 🌅✨💪 #StayPositive #NewBeginnings"
+"Every sunrise brings new hope and endless possibilities. Embrace the day with a smile and let your heart be light. 🌅✨😊"
