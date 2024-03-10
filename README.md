@@ -2,11 +2,9 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff date in March 2023, here are some events that have historically taken place or occur annually on March 10th in the United States:
-
-- **Daylight Saving Time begins**: While this does not happen every year exactly on March 10, it often occurs around this date. In years when it does fall on this date, it's when clocks are set forward one hour, typically at 2:00 AM local time.
+- **Harriet Tubman Day**: This day pays tribute to Harriet Tubman, an African American abolitionist and political activist who was born into slavery. She helped many enslaved people escape to freedom via the Underground Railroad.
   
-- **National Women and Girls HIV
+Please note that events can change year by year, so it's always a good idea to check for the most up-to-date information about specific events taking place on a given date.
 ### Positive Qoute
 ------
-"Every sunrise is a new page in your story – make it a beautiful one! 🌅✨📖 #NewBeginnings #BeInspired"
+"Every sunrise 🌅 is an invitation to brighten someone's day with a smile 😊 and kindness 💖. Shine on!"
