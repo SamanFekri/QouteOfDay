@@ -1,10 +1,10 @@
-### 📅 Sunday, 10 March, 2024
+### 📅 Monday, 11 March, 2024
 ------
 ### Events
 ------
-- **Harriet Tubman Day**: This day pays tribute to Harriet Tubman, an African American abolitionist and political activist who was born into slavery. She helped many enslaved people escape to freedom via the Underground Railroad.
-  
-Please note that events can change year by year, so it's always a good idea to check for the most up-to-date information about specific events taking place on a given date.
+- **Daylight Saving Time begins** (Sometimes): In most parts of the United States, Daylight Saving Time typically starts on the second Sunday in March, which can sometimes fall on March 11th. On this date, at 2 a.m., clocks are set forward one hour to "spring forward" and allow for more evening daylight in the coming months.
+
+- **National 311 Day**: March 11 is recognized in some communities as National 311 Day to promote the non-emergency
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is an invitation to brighten someone's day with a smile 😊 and kindness 💖. Shine on!"
+"Embrace the beauty of your journey with a smile 😊, for each step forward is a dance with destiny 💫. Keep shining, keep climbing 🌟!"
