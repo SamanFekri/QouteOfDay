@@ -2,8 +2,9 @@
 ------
 ### Events
 ------
-- **Daylight Saving Time begins**: On Sunday, March 13, 2022, clocks were set forward one hour at 2:00 AM to begin Daylight Saving Time (DST) in most parts of the United States. This event occurs annually on the second Sunday in March. However, please note that not all US states or territories participate in Daylight Saving Time. For instance, Hawaii and most of Arizona do not observe DST. 
-- **Selection Sunday for NCAA Basketball**:
+- Daylight Saving Time begins: In the USA, Daylight Saving Time typically begins at 2:00 AM on the second Sunday in March, which in some years falls on March 13. On this day, clocks are set forward one hour, effectively moving an hour of daylight from the morning to the evening. Not all states observe this change, with notable exceptions being Arizona (except for the Navajo Nation) and Hawaii.
+
+Please note that events can vary from year to year, and other
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and embrace each day with a grateful heart. 💖🌅 Every sunrise is a canvas of possibilities painted with the colors of hope. ✨🎨"
+"Every sunrise 🌅 is a new chapter in your story filled with hope and endless possibilities. Embrace it with all your heart ❤️ and let your spirit soar 🚀!"
