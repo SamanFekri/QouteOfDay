@@ -1,10 +1,11 @@
-### 📅 Wednesday, 13 March, 2024
+### 📅 Thursday, 14 March, 2024
 ------
 ### Events
 ------
-- Daylight Saving Time begins: In the USA, Daylight Saving Time typically begins at 2:00 AM on the second Sunday in March, which in some years falls on March 13. On this day, clocks are set forward one hour, effectively moving an hour of daylight from the morning to the evening. Not all states observe this change, with notable exceptions being Arizona (except for the Navajo Nation) and Hawaii.
+- Pi Day: Celebrated on March 14th (3/14), this event is an annual celebration of the mathematical constant π (pi), which is approximately equal to 3.14159. The date is chosen because the digits correspond to the first three digits of π. Pi Day is often marked by:
 
-Please note that events can vary from year to year, and other
+  - Mathematical discussions, contests, and educational events in schools and universities.
+  - Eating pie, as a pun on the word "pi", with many bakeries and pizzer
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new chapter in your story filled with hope and endless possibilities. Embrace it with all your heart ❤️ and let your spirit soar 🚀!"
+"Every sunrise ushers in a new opportunity to shine. Embrace it with open arms and a grateful heart. ☀️🌱💫"

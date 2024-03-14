@@ -221,3 +221,12 @@ Please note that events can vary from year to year, and other
 ### Quote of the day
 "Every sunrise 🌅 is a new chapter in your story filled with hope and endless possibilities. Embrace it with all your heart ❤️ and let your spirit soar 🚀!"
 -----
+## Thursday, 14 March, 2024
+### Events
+- Pi Day: Celebrated on March 14th (3/14), this event is an annual celebration of the mathematical constant π (pi), which is approximately equal to 3.14159. The date is chosen because the digits correspond to the first three digits of π. Pi Day is often marked by:
+
+  - Mathematical discussions, contests, and educational events in schools and universities.
+  - Eating pie, as a pun on the word "pi", with many bakeries and pizzer
+### Quote of the day
+"Every sunrise ushers in a new opportunity to shine. Embrace it with open arms and a grateful heart. ☀️🌱💫"
+-----
