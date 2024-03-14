@@ -2,10 +2,11 @@
 ------
 ### Events
 ------
-- Pi Day: Celebrated on March 14th (3/14), this event is an annual celebration of the mathematical constant π (pi), which is approximately equal to 3.14159. The date is chosen because the digits correspond to the first three digits of π. Pi Day is often marked by:
-
-  - Mathematical discussions, contests, and educational events in schools and universities.
-  - Eating pie, as a pun on the word "pi", with many bakeries and pizzer
+- **Pi Day**: March 14, often written as 3/14 in the United States, is celebrated as Pi Day because the date resembles the first three digits of the mathematical constant π (pi), which is approximately 3.14. It's a day often marked by:
+   - Math enthusiasts celebrating the significance of the number π.
+   - Educational events focusing on mathematics and geometry.
+   - Pi-themed activities in schools.
+   - Pie eating, as "pie" is a hom
 ### Positive Qoute
 ------
-"Every sunrise ushers in a new opportunity to shine. Embrace it with open arms and a grateful heart. ☀️🌱💫"
+"Every sunrise 🌅 is a new page in the book of life. Fill it with beautiful moments 🌼, kind acts 💖, and endless possibilities 💫!"
