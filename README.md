@@ -1,10 +1,10 @@
-### 📅 Friday, 15 March, 2024
+### 📅 Saturday, 16 March, 2024
 ------
 ### Events
 ------
-- The Ides of March: While not a widely celebrated event in the United States, the Ides of March is known historically as the date of Julius Caesar's assassination in 44 BC. Some may reference this day in educational contexts or cultural discussions.
-- National Shoe the World Day: An observance day in the U.S. dedicated to bringing awareness and support to those who do not have shoes. People are encouraged to donate shoes to charities on this day.
-- Tax Preparation: As the deadline
+• St. Patrick's Day Parade: Many cities in the USA, such as New York, Boston, and Chicago, hold St. Patrick's Day parades on the weekend closest to March 17th. If March 16th falls close to or on a weekend, it could be the date for these parades, which celebrate Irish culture and heritage with floats, bands, and bagpipers.
+
+• March Madness Selection Sunday: If March 16th falls on a Sunday, it may coincide
 ### Positive Qoute
 ------
-"Every sunrise 🌅 offers a new page in your story of life, filled with hope and endless possibilities. Shine bright today! ✨"
+"Believe in the magic within you, and watch the universe conspire in your favor! ✨🚀❤️"
