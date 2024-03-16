@@ -2,9 +2,8 @@
 ------
 ### Events
 ------
-• St. Patrick's Day Parade: Many cities in the USA, such as New York, Boston, and Chicago, hold St. Patrick's Day parades on the weekend closest to March 17th. If March 16th falls close to or on a weekend, it could be the date for these parades, which celebrate Irish culture and heritage with floats, bands, and bagpipers.
-
-• March Madness Selection Sunday: If March 16th falls on a Sunday, it may coincide
+- St. Patrick's Day Parades: Although St. Patrick's Day is officially on March 17th, many cities in the USA, including Boston, Chicago, and New York, often hold parades and festivities on the weekend closest to the date, which can sometimes fall on March 16th.
+- NCAA Men's Basketball Tournament (March Madness): March Madness often starts in mid-March. March 16th might be one of the days when the first or second round games are played
 ### Positive Qoute
 ------
-"Believe in the magic within you, and watch the universe conspire in your favor! ✨🚀❤️"
+"Every day is a fresh start, an opportunity to turn the ordinary into extraordinary. 🌅✨ Believe in yourself, embrace the adventure, and let your light shine bright! 💪💖"
