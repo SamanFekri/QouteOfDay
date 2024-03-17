@@ -1,9 +1,14 @@
-### 📅 Saturday, 16 March, 2024
+### 📅 Sunday, 17 March, 2024
 ------
 ### Events
 ------
-- St. Patrick's Day Parades: Although St. Patrick's Day is officially on March 17th, many cities in the USA, including Boston, Chicago, and New York, often hold parades and festivities on the weekend closest to the date, which can sometimes fall on March 16th.
-- NCAA Men's Basketball Tournament (March Madness): March Madness often starts in mid-March. March 16th might be one of the days when the first or second round games are played
+- St. Patrick's Day
+  - National holiday celebrating Irish culture and heritage
+  - Parades held in cities across the country
+  - People wear green clothing and accessories
+  - Iconic buildings and landmarks often lit up in green
+  - Celebratory events include Irish music, dancing, and traditional food
+  - Pubs and bars often feature special menus and Irish-themed drinks
 ### Positive Qoute
 ------
-"Every day is a fresh start, an opportunity to turn the ordinary into extraordinary. 🌅✨ Believe in yourself, embrace the adventure, and let your light shine bright! 💪💖"
+"Each day brings new strength and new thoughts. Embrace the possibilities! 💪☀️🌈 #StayPositive #KeepSmiling"
