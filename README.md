@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff date in early 2023, specific events in the United States that are scheduled to occur on March 18th could vary from year to year. Events could include cultural festivals, sports games, concerts, and other community gatherings. Below are examples of events that might occur on March 18th in a given year:
+- **St. Patrick's Day Parades** (continued celebrations): While St. Patrick's Day is on March 17th, many cities hold their parades and festivities on surrounding weekends to accommodate larger crowds. Thus, on March 18th, various U.S. cities might be hosting their St. Patrick’s Day parades, with attendees wearing green, enjoying Irish music and dance, and participating in related cultural events.
 
-- St. Patrick's Day Parades: While St. Patrick's Day is officially on March 17th, some cities may hold their parades and
+- **NCAA Men's Basketball Tournament (March Madness)**: The
 ### Positive Qoute
 ------
-"Keep shining bright like the star you are, and let nothing dim the light within you! ✨💪😊"
+"Chase your dreams with unwavering passion, and remember that each step forward is a win. 🌟 Keep shining, no matter how dark the night may seem. ✨💪😊"
