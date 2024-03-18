@@ -1,15 +1,10 @@
-### 📅 Sunday, 17 March, 2024
+### 📅 Monday, 18 March, 2024
 ------
 ### Events
 ------
-- St. Patrick's Day celebrations
-  - Parades in cities such as New York, Boston, Chicago, and Savannah
-  - Green-dyeing of rivers and fountains, famous example: Chicago River
-  - Irish music and dance performances
-  - Cultural festivals featuring Irish food and drinks
-  - Wearing of green attire and accessories
-  - Special church services for St. Patrick, patron saint of Ireland
-  - Bar and pub events, including drink specials on Irish whiskey
+As of my knowledge cutoff date in early 2023, specific events in the United States that are scheduled to occur on March 18th could vary from year to year. Events could include cultural festivals, sports games, concerts, and other community gatherings. Below are examples of events that might occur on March 18th in a given year:
+
+- St. Patrick's Day Parades: While St. Patrick's Day is officially on March 17th, some cities may hold their parades and
 ### Positive Qoute
 ------
-"Believe in the beauty of your dreams and watch the universe conspire to help you achieve them 💫✨🌟"
+"Keep shining bright like the star you are, and let nothing dim the light within you! ✨💪😊"
