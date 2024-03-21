@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- National Cherry Blossom Festival: While the festival in Washington, D.C., spans several weeks to celebrate the blooming of the cherry blossom trees, some years, peak bloom can occur around March 21st. This event features parades, cultural performances, and other festivities.
-- World Down Syndrome Day: Celebrated on March 21st to raise public awareness and advocate for the rights, inclusion, and well-being of people with Down syndrome.
-- International Day of Forests: Also observed on
+- **National Agriculture Day** - Observed annually on March 21 (or the first day of spring), National Agriculture Day is a day dedicated to recognizing and celebrating the abundance provided by agriculture across the United States. It's a day for Americans to acknowledge and be grateful for the work of farmers, ranchers, and agribusinesses.
+
+- **World Down Syndrome Day** - While this is a global event, it's also recognized in the USA on March 21. This day aims to
 ### Positive Qoute
 ------
-"Every sunrise brings new hope and a fresh start. Embrace the day with a grateful heart! 🌅✨🙌"
+"Every sunrise is a new chapter in your life waiting to be written. 🌅✍️ Embrace the possibility of the unknown and let joy be the ink you write with! 😄📖"
