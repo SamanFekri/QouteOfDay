@@ -2,11 +2,9 @@
 ------
 ### Events
 ------
-As an AI, I don't have real-time data access, but on March 24 in previous years, some notable events include:
+- **March for Our Lives Rally** (2018): On March 24, 2018, hundreds of thousands of protesters gathered in Washington, D.C., and at sister marches across the United States to demand an end to gun violence and mass shootings in schools. This event was organized by students from Marjory Stoneman Douglas High School in Parkland, Florida, where a mass shooting took place on February 14, 2018.
 
-- **March for Our Lives (2018)**: A student-led demonstration in support of gun control legislation took place in Washington, D.C., with sister marches happening across the United States and around the world.
-  
-- **World Tuberculosis Day**: An event designed to build public awareness about the global epidemic of tuberculosis (TB) and efforts to eliminate the disease is
+Note: If you are asking about a recurring or
 ### Positive Qoute
 ------
-"Every step forward is a leap towards greatness! Keep shining, keep smiling 😊✨🚀"
+"Believe in the magic of new beginnings ✨🌱 Every step forward is a step into growth and sunshine ☀️🚀 Never underestimate your power to change and improve! 💪❤️"
