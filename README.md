@@ -2,10 +2,9 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff in early 2023, specific events that will take place on March 26, 2023 (or annually on March 26), may not be broadly documented or readily available at this time. Nevertheless, here are some types of events that might typically occur on that date in the United States, based on annual occurrences and regular scheduling:
+- **Cherry Blossom Festival Opening Ceremony in Washington, D.C.:** The National Cherry Blossom Festival celebrates the gift of cherry blossom trees from Japan to the United States and the enduring friendship between the two countries. The opening ceremony typically includes live entertainment and special presentations. Note that the exact date of the opening ceremony may vary year to year, so always check the current year's schedule.
 
-- **Local festivals or fairs:** Many communities hold annual events which might include craft fairs, food festivals, or cultural celebrations.
-
+- **Earth Hour:** Although not confined to the USA, Earth Hour is a global event that encourages individuals
 ### Positive Qoute
 ------
-"Every new day is a blank canvas 🎨, fill it with colors of joy, love, and laughter 😄. Keep painting your masterpiece of happiness 🌈✨!"
+"Every sunrise is a new page in the story of your life, make it a masterpiece! 🌅✨😊"
