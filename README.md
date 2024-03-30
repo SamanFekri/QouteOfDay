@@ -1,10 +1,10 @@
-### 📅 Friday, 29 March, 2024
+### 📅 Saturday, 30 March, 2024
 ------
 ### Events
 ------
-- **Vietnam War Veterans Day** – On March 29, the United States observes National Vietnam War Veterans Day to honor the men and women who served and sacrificed during the longest conflict in United States history. It is a day of recognition that was officially set by the Vietnam War Veterans Recognition Act of 2017.
-  
-  - **Conferences and Seminars** – There could be various industry-specific conferences, academic seminars, or professional workshops scheduled on this date. These events are usually listed on
+- **National Doctors' Day**: Celebrated annually on March 30th in the United States to recognize physicians for their work and contributions to society and the community. It is a day to thank doctors for their service and to acknowledge the vital role they play in healthcare and patient care.
+
+Please note that specific events occurring on March 30th can vary from year to year; the above is a recurring event that happens each year on this date. If you are looking for a unique or one-time event
 ### Positive Qoute
 ------
-"Every sunrise 🌅 brings new hope, so rise up with a smile 😊 and seize the day with courage! 💪✨"
+"Every sunrise brings a new chance to shine. Embrace it with open arms and a grateful heart. ☀️😊💪"
