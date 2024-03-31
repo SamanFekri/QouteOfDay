@@ -531,3 +531,13 @@ Please note that specific events occurring on March 30th can vary from year to y
 ### Quote of the day
 "Every sunrise is a new page in your story, make it a great one today! 🌅✍️❤️"
 -----
+## Sunday, 31 March, 2024
+### Events
+As of my last update, here are some types of events that could occur on March 31st in the United States, though specific events can change from year to year:
+
+- **César Chávez Day**: 
+  - Observance commemorating the birth and legacy of civil rights and labor movement leader César Chávez in California and some other U.S. states.
+  - It's often marked by educational events, community service, and marches to honor Chávez's
+### Quote of the day
+"Every day is a fresh start, so make it count and spread kindness like confetti! 🌟✨🎈"
+-----

@@ -1,10 +1,12 @@
-### 📅 Saturday, 30 March, 2024
+### 📅 Sunday, 31 March, 2024
 ------
 ### Events
 ------
-- **National Doctors' Day**: Celebrated on March 30th each year in the United States, this day recognizes the contributions of physicians to individual lives and communities. Various health care organizations might host events or show appreciation for doctors on this day.
-- **Opening Day for Major League Baseball (MLB)**: While not always falling exactly on March 30, MLB's Opening Day often occurs around this time. The event marks the beginning of the new baseball season with games scheduled across the country.
+As of my last update, here are some types of events that could occur on March 31st in the United States, though specific events can change from year to year:
 
+- **César Chávez Day**: 
+  - Observance commemorating the birth and legacy of civil rights and labor movement leader César Chávez in California and some other U.S. states.
+  - It's often marked by educational events, community service, and marches to honor Chávez's
 ### Positive Qoute
 ------
-"Every sunrise is a new page in your story, make it a great one today! 🌅✍️❤️"
+"Every day is a fresh start, so make it count and spread kindness like confetti! 🌟✨🎈"
