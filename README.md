@@ -1,13 +1,10 @@
-### 📅 Thursday, 04 April, 2024
+### 📅 Friday, 05 April, 2024
 ------
 ### Events
 ------
-- **April 4th, 1968: Assassination of Martin Luther King Jr.**
-  - Civil rights leader Martin Luther King Jr. was assassinated at the Lorraine Motel in Memphis, Tennessee.
-  - His death led to widespread riots and increased tension in a country already deeply divided over issues of race and equality.
+- **NCAA Men's Basketball Championship Game (Final Four)**: If the date falls within the year's tournament schedule, April 5th could be the date for the NCAA men's basketball championship game.
 
-- **April 4, 2021: Easter Sunday**
-  - In 2021, Easter Sunday, a significant Christian holiday commemorating the resurrection of
+Please note that specific events can vary from year to year, and this list isn't exhaustive. For the most accurate and up-to-date events for a specific date, it's best to check a current calendar or event schedule for the year in question.
 ### Positive Qoute
 ------
-"Every sunrise is an invitation to brighten someone's day. 😊☀️ Spread kindness like confetti! 🎉💖"
+"Every sunrise 🌅 is a new chapter in your story waiting to be written with joy 🎉 and positivity! Keep shining! ✨"
