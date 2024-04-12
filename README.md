@@ -2,9 +2,13 @@
 ------
 ### Events
 ------
-- On April 12, 1861, the American Civil War began with the Confederate attack on Fort Sumter in South Carolina.
-- On April 12, 1945, Franklin D. Roosevelt, the 32nd President of the United States, died in office, and Vice President Harry S. Truman became the 33rd President.
-- On April 12, 1961, while not an event occurring in the USA, it was a significant day in history when Soviet cosmon
+As of my last update, here are some historical events and possible events that have occurred or might occur on April 12th in the United States:
+
+- **American Civil War Begins (1861):**
+  - Confederate forces fired on Fort Sumter in South Carolina, marking the start of the Civil War.
+
+- **Yuri's Night (International Event, including USA):**
+  - Celebrated globally, including in the US, Yuri's Night commemorates Yuri Gagarin becoming the first human
 ### Positive Qoute
 ------
-"Every sunrise brings new hope and fresh possibilities. Embrace the day with a smile and let your spirit soar! 🌅😌✨"
+"Embrace the glorious mess that you are, and let your light shine! ☀️✨🌟 Be a beacon of hope and joy in a world that often forgets to smile. 😊🌈💕"

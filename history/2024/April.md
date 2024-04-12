@@ -212,3 +212,15 @@ As of my knowledge cutoff in March 2023, I won't be able to provide real-time or
 ### Quote of the day
 "Every sunrise brings new hope and fresh possibilities. Embrace the day with a smile and let your spirit soar! 🌅😌✨"
 -----
+## Friday, 12 April, 2024
+### Events
+As of my last update, here are some historical events and possible events that have occurred or might occur on April 12th in the United States:
+
+- **American Civil War Begins (1861):**
+  - Confederate forces fired on Fort Sumter in South Carolina, marking the start of the Civil War.
+
+- **Yuri's Night (International Event, including USA):**
+  - Celebrated globally, including in the US, Yuri's Night commemorates Yuri Gagarin becoming the first human
+### Quote of the day
+"Embrace the glorious mess that you are, and let your light shine! ☀️✨🌟 Be a beacon of hope and joy in a world that often forgets to smile. 😊🌈💕"
+-----
