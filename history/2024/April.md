@@ -204,3 +204,11 @@ As of my knowledge cutoff in March 2023, I won't be able to provide real-time or
 ### Quote of the day
 "Believe in the magic of new beginnings and trust that the best is yet to come! 🌟✨🚀"
 -----
+## Friday, 12 April, 2024
+### Events
+- On April 12, 1861, the American Civil War began with the Confederate attack on Fort Sumter in South Carolina.
+- On April 12, 1945, Franklin D. Roosevelt, the 32nd President of the United States, died in office, and Vice President Harry S. Truman became the 33rd President.
+- On April 12, 1961, while not an event occurring in the USA, it was a significant day in history when Soviet cosmon
+### Quote of the day
+"Every sunrise brings new hope and fresh possibilities. Embrace the day with a smile and let your spirit soar! 🌅😌✨"
+-----

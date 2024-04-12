@@ -1,10 +1,10 @@
-### 📅 Thursday, 11 April, 2024
+### 📅 Friday, 12 April, 2024
 ------
 ### Events
 ------
-As of my knowledge cutoff in March 2023, I won't be able to provide real-time or future events, but I can share an annual event that typically occurs around April 11th in the United States:
-
-- National Pet Day: Celebrated on April 11th annually, National Pet Day is an event dedicated to showing appreciation for pets and promoting pet adoption. People often share photos of their pets on social media, spend extra time with their animals, and many pet shelters and rescues
+- On April 12, 1861, the American Civil War began with the Confederate attack on Fort Sumter in South Carolina.
+- On April 12, 1945, Franklin D. Roosevelt, the 32nd President of the United States, died in office, and Vice President Harry S. Truman became the 33rd President.
+- On April 12, 1961, while not an event occurring in the USA, it was a significant day in history when Soviet cosmon
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and trust that the best is yet to come! 🌟✨🚀"
+"Every sunrise brings new hope and fresh possibilities. Embrace the day with a smile and let your spirit soar! 🌅😌✨"
