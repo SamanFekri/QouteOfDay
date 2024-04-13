@@ -1,14 +1,12 @@
-### 📅 Friday, 12 April, 2024
+### 📅 Saturday, 13 April, 2024
 ------
 ### Events
 ------
-As of my last update, here are some historical events and possible events that have occurred or might occur on April 12th in the United States:
+- **Thomas Jefferson's Birthday**: 
+  - April 13th marks the birthday of Thomas Jefferson, the third president of the United States, born on April 13, 1743. This day is an observance to honor his contributions to the founding of the nation.
+  - Some institutions, particularly the Thomas Jefferson Foundation at Monticello, his Virginia home, often celebrate with events or activities focusing on Jefferson's life and legacy.
 
-- **American Civil War Begins (1861):**
-  - Confederate forces fired on Fort Sumter in South Carolina, marking the start of the Civil War.
-
-- **Yuri's Night (International Event, including USA):**
-  - Celebrated globally, including in the US, Yuri's Night commemorates Yuri Gagarin becoming the first human
+It's important to note that not every year will have
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are, and let your light shine! ☀️✨🌟 Be a beacon of hope and joy in a world that often forgets to smile. 😊🌈💕"
+"Every sunrise brings a new page to write your story. Make it a masterpiece. ☀️📝✨ #PositiveVibes"
