@@ -2,9 +2,11 @@
 ------
 ### Events
 ------
-- Tax Day: April 15 is traditionally the due date for filing individual income tax returns with the Internal Revenue Service (IRS). On this day, many Americans rush to submit their taxes before the deadline.
-- Emancipation Day Observance: If April 15 falls on a weekend or coincides with Emancipation Day (celebrated in Washington D.C. on April 16), Tax Day may be moved to the next working day.
-- Boston Marathon: Usually held on Patriots' Day
+- Tax Day
+  - Deadline for individuals to file their federal income tax returns and make any tax payments
+  - Traditionally, Tax Day falls on April 15th unless it lands on a weekend or a holiday, in which case it is moved to the next business day
+  - Important for taxpayers to ensure all documents are filed, and any owed taxes are paid to avoid penalties and interest
+  - Also, deadline for requesting an extension to file taxes, although any owed taxes are still
 ### Positive Qoute
 ------
-"Every new sunrise brings a fresh chance to dance with joy 🌅💃 Embrace the day with an open heart and a spirit of adventure! 🚀😊"
+"Every sunrise 🌅 brings a new page of opportunity. Write your story with kindness, courage, and a sprinkle of laughter! 😊✨📖"
