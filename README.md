@@ -1,13 +1,10 @@
-### 📅 Sunday, 14 April, 2024
+### 📅 Monday, 15 April, 2024
 ------
 ### Events
 ------
-As of my last knowledge update in March 2023, specific events scheduled for April 14th in any given year may vary. However, April 14th has been home to recurring events and notable historical occurrences in the USA. Here's a general overview using bullet points:
-
-Historical Events (not yearly occurrences):
-- April 14, 1865: President Abraham Lincoln was shot by John Wilkes Booth at Ford's Theatre in Washington, D.C.
-
-- April 14, 191
+- Tax Day: April 15 is traditionally the due date for filing individual income tax returns with the Internal Revenue Service (IRS). On this day, many Americans rush to submit their taxes before the deadline.
+- Emancipation Day Observance: If April 15 falls on a weekend or coincides with Emancipation Day (celebrated in Washington D.C. on April 16), Tax Day may be moved to the next working day.
+- Boston Marathon: Usually held on Patriots' Day
 ### Positive Qoute
 ------
-"Every sunrise brings new hope and a fresh start. Let your dreams soar on the wings of possibility! 🌅✨😊"
+"Every new sunrise brings a fresh chance to dance with joy 🌅💃 Embrace the day with an open heart and a spirit of adventure! 🚀😊"
