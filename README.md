@@ -2,12 +2,9 @@
 ------
 ### Events
 ------
-As of my last update in early 2023, I can mention a recurring event that typically happens on April 16th in the United States:
-
-- **Tax Day** (usually April 15 but can be observed on the next business day if the 15th is a weekend or holiday)
-  - Deadline for individuals to file their federal income tax returns and make tax payments.
-  - Internal Revenue Service (IRS) processes millions of tax filings.
-  - Many accountants and tax preparers
+- **Easter Sunday**: April 16, 2023, is Easter Sunday, which is a significant religious holiday celebrated by Christians across the United States to commemorate the resurrection of Jesus Christ.
+- **Coachella Valley Music and Arts Festival**: In some years, this popular music festival in Indio, California, might extend over two weekends, and one of those could include April 16th. It features musical artists from various genres, as well as art installations and sculptures.
+- **Patri
 ### Positive Qoute
 ------
-"Every sunrise brings new hope, chase your dreams with a heart full of joy! 🌅✨❤️"
+"Spread kindness like confetti 🎉 and watch the world bloom like a garden of joy 🌸✨"
