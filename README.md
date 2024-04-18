@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- **Tax Day** (Typically on April 15, but can be moved to the next business day if it falls on a weekend or holiday – sometimes falls on April 18)
-- **Patriots' Day** (observed on the third Monday in April, primarily in Massachusetts and Maine, commemorates the battles of Lexington and Concord in 1775)
-- **Boston Marathon** (Commonly held in conjunction with Patriots' Day, making it a potential event on April 18
+- **Tax Day (Typically April 15th)**: Although traditionally Tax Day falls on April 15th, if that date happens to be on a weekend or a holiday, the deadline for filing individual tax returns and making tax payments is moved to the next business day. Therefore, some years might have the Tax Day observed on April 18th.
+
+- **Patriots' Day**: This is a state holiday in Massachusetts, Maine, and Wisconsin, commemorating the battles of Lexington and
 ### Positive Qoute
 ------
-"Every day brings new opportunities, just like the sunrise brings new light. Keep shining and be the warmth in someone's day! 💫🌅😊"
+"Every sunrise🌅 is a new chapter in your story waiting to be written with joy🎉 and love❤️!"
