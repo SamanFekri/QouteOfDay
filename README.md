@@ -2,12 +2,9 @@
 ------
 ### Events
 ------
-- **Patriots' Day** (observed on the third Monday in April, which often falls on or around April 19)
-  - A holiday in Massachusetts, Maine, Wisconsin, and parts of Florida to commemorate the battles of Lexington and Concord, the first battles of the American Revolutionary War.
-  - Includes reenactments, parades, and other patriotic activities.
+- Patriots' Day (observed on the third Monday of April, which can fall on April 19): Patriots' Day commemorates the battles of Lexington and Concord, which were the first battles of the American Revolutionary War. This day is most commonly celebrated in Massachusetts and Maine and often involves reenactments, parades, and other festive events.
 
-- **Oklahoma City Bombing Memorial Service** (April 19, annually)
-  - Commemor
+- The Oklahoma City Bombing (April 19, 1995): A domestic terrorist truck bombing on the Alfred P. Murrah Federal Building
 ### Positive Qoute
 ------
-"Every day is a fresh start, embrace it with a smile and let your spirit shine 🌟😊🌅!"
+"Every day is a fresh start, a new opportunity to grow and shine. Embrace it with open arms and a bright smile! 😊🌟💪"
