@@ -1,10 +1,13 @@
-### 📅 Thursday, 18 April, 2024
+### 📅 Friday, 19 April, 2024
 ------
 ### Events
 ------
-- **Tax Day (Typically April 15th)**: Although traditionally Tax Day falls on April 15th, if that date happens to be on a weekend or a holiday, the deadline for filing individual tax returns and making tax payments is moved to the next business day. Therefore, some years might have the Tax Day observed on April 18th.
+- **Patriots' Day** (observed on the third Monday in April, which often falls on or around April 19)
+  - A holiday in Massachusetts, Maine, Wisconsin, and parts of Florida to commemorate the battles of Lexington and Concord, the first battles of the American Revolutionary War.
+  - Includes reenactments, parades, and other patriotic activities.
 
-- **Patriots' Day**: This is a state holiday in Massachusetts, Maine, and Wisconsin, commemorating the battles of Lexington and
+- **Oklahoma City Bombing Memorial Service** (April 19, annually)
+  - Commemor
 ### Positive Qoute
 ------
-"Every sunrise🌅 is a new chapter in your story waiting to be written with joy🎉 and love❤️!"
+"Every day is a fresh start, embrace it with a smile and let your spirit shine 🌟😊🌅!"
