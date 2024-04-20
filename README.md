@@ -2,9 +2,13 @@
 ------
 ### Events
 ------
-- 4/20 or April 20 is unofficially regarded as a holiday for cannabis culture, commonly referred to as "Weed Day" or "National Pot Smoking Day." People who partake in the use of marijuana often gather to celebrate and advocate for the legalization of cannabis on this date.
-  
-- On April 20, 1999, there was a tragic event, the Columbine High School massacre, where two students entered Columbine High School in Littleton, Colorado, and carried
+- **4/20 (April 20th) – Cannabis Culture Observance:**
+  - Informal holiday celebrating cannabis culture
+  - Often includes rallies and gatherings where people consume cannabis at 4:20 PM
+  - Originally popularized by a group of California high school students in the 1970s
+  - Has grown into a worldwide event in many urban centers
+
+- **Patriots' Day (Third Monday in April, sometimes coinciding with April 20th):
 ### Positive Qoute
 ------
-"Every sunrise is an invitation to brighten someone's day. ☀️😊 Embrace the light within and spread kindness like confetti! 🌈✨"
+"Rise like the sun 🌞, shine bright like the stars 🌟, and keep moving forward like the waves🌊. Every day is a chance to shine your light and make a positive impact 💖!"
