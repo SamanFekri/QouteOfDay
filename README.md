@@ -1,11 +1,13 @@
-### 📅 Sunday, 21 April, 2024
+### 📅 Monday, 22 April, 2024
 ------
 ### Events
 ------
-As of my last update in early 2023, there isn't a singular event that is guaranteed to take place on April 21st across the United States, as events can vary widely by year and location. However, here are some possibilities:
-
-- **Earth Day celebrations**: Earth Day is officially on April 22nd, but events and activities may start on the 21st in various communities to promote environmental awareness.
-- **Local festivals**: Depending on the city or state, there might be
+- Earth Day: April 22 is internationally recognized as Earth Day, a day dedicated to environmental awareness and action. Across the United States, various events and activities take place, including:
+  - Clean-up efforts in parks, beaches, and communities.
+  - Educational programs and workshops on recycling, conservation, and sustainable living.
+  - Tree planting ceremonies and community gardening events.
+  - Rallies and marches advocating for policy changes to address climate change and environmental issues.
+  - Screenings of environmentally
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new page of life, waiting to be written with moments of joy 😊, love 💖, and endless possibilities ✨. Embrace it fully and let your spirit soar! 🚀"
+"Every sunrise ☀️ is an invitation to brighten someone's day with a smile 😊 and kindness 💕. Embrace the new beginning and spread joy wherever you go!"
