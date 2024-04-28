@@ -2,13 +2,9 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff date in early 2023, annual events in the USA that might be scheduled for April 28 could vary from year to year. Here are some types of events that could potentially be held on April 28:
+- Take Our Daughters and Sons to Work Day: Celebrated on the fourth Thursday of April every year, which often falls on the 28th. It's a day when parents bring their children to the workplace to expose them to various careers and to spend quality time together.
 
-- **Workers' Memorial Day:**
-  - A day of remembrance and action for workers killed, disabled, injured, or made unwell by their work.
-  - Observances can include memorials, conferences, and community services.
-
-- **Sports Events
+- Workers' Memorial Day (also known as Workers' Mourning Day): This day is observed annually on April 28th to honor and remember those who have been killed, injured, or made ill while on the job
 ### Positive Qoute
 ------
-"Every day is a fresh start, a new opportunity to shine. Embrace your light and let it guide you! ☀️💫✨"
+"Every sunrise 🌅 is an invitation to brighten someone's day. 😊 Spread kindness like confetti! 🎉✨"
