@@ -1,10 +1,10 @@
-### 📅 Sunday, 28 April, 2024
+### 📅 Monday, 29 April, 2024
 ------
 ### Events
 ------
-- Take Our Daughters and Sons to Work Day: Celebrated on the fourth Thursday of April every year, which often falls on the 28th. It's a day when parents bring their children to the workplace to expose them to various careers and to spend quality time together.
+- **White House Correspondents' Dinner**: Often scheduled for the last Saturday in April, it's possible for the White House Correspondents' Association (WHCA) dinner to fall on April 29 if that date is a Saturday. This event brings together journalists, politicians, and celebrities to celebrate the First Amendment and to honor the work of the media.
 
-- Workers' Memorial Day (also known as Workers' Mourning Day): This day is observed annually on April 28th to honor and remember those who have been killed, injured, or made ill while on the job
+Please note that specific events can vary from year to year, and it's always best to check the current year's calendar for the exact schedule of
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is an invitation to brighten someone's day. 😊 Spread kindness like confetti! 🎉✨"
+"Every sunrise is an invitation to brighten someone's day. 🌅 Spread kindness like confetti! 🎉"
