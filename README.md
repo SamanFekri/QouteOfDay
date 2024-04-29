@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- **White House Correspondents' Dinner**: Often scheduled for the last Saturday in April, it's possible for the White House Correspondents' Association (WHCA) dinner to fall on April 29 if that date is a Saturday. This event brings together journalists, politicians, and celebrities to celebrate the First Amendment and to honor the work of the media.
+- **NFL Draft**: The National Football League (NFL) Draft is an annual event that serves as the league's most common source of player recruitment. The 2023 NFL Draft is scheduled to start on April 29 and continue until May 1. This event is where NFL teams select eligible college football players to add to their rosters.
 
-Please note that specific events can vary from year to year, and it's always best to check the current year's calendar for the exact schedule of
+- **World Tai Chi and Qigong Day**: This event is commemorated annually on the last Saturday of April, which falls on April 29 in
 ### Positive Qoute
 ------
-"Every sunrise is an invitation to brighten someone's day. 🌅 Spread kindness like confetti! 🎉"
+"Spread kindness like confetti and watch joy bloom around you! 🌸✨💖"
