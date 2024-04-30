@@ -2,9 +2,11 @@
 ------
 ### Events
 ------
-- **White House Correspondents' Dinner**: Traditionally held on or near the last Saturday of April, this event could fall on April 30 if it aligns with the calendar year. It's a notable night where journalists, politicians, and celebrities gather for a dinner hosted by the White House Correspondents' Association. It features a comedic performance by a notable entertainer and often includes humorous remarks from the President.
+- **National Honesty Day**: Celebrated on April 30th, this event encourages honesty and straightforward communication in politics, relationships, consumer relations, and historical education.
+  
+- **Walpurgis Night**: Although primarily observed in parts of Europe, some people in the US with German or Scandinavian heritage may celebrate Walpurgis Night on April 30th with bonfires and festivities to mark the eve of the feast day of Saint Walpurga.
 
-Keep in mind that specific events can vary from year to year, and not every event
+- **Louisiana festivals**: Some local
 ### Positive Qoute
 ------
-"Embrace the beauty of your journey, and let your light shine for all to see. 🌟🚀 Keep sprinkling positivity wherever you go, and watch the world bloom! 💐✨"
+"Embrace the beauty of your journey and let your spirit soar! 🚀 Believe in the power of your dreams and watch the universe conspire to help you! ✨🌌💫 Keep shining! 😊🌟"
