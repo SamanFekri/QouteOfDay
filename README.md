@@ -1,10 +1,10 @@
-### 📅 Monday, 29 April, 2024
+### 📅 Tuesday, 30 April, 2024
 ------
 ### Events
 ------
-- **NFL Draft**: The National Football League (NFL) Draft is an annual event that serves as the league's most common source of player recruitment. The 2023 NFL Draft is scheduled to start on April 29 and continue until May 1. This event is where NFL teams select eligible college football players to add to their rosters.
+- **White House Correspondents' Dinner**: Traditionally held on or near the last Saturday of April, this event could fall on April 30 if it aligns with the calendar year. It's a notable night where journalists, politicians, and celebrities gather for a dinner hosted by the White House Correspondents' Association. It features a comedic performance by a notable entertainer and often includes humorous remarks from the President.
 
-- **World Tai Chi and Qigong Day**: This event is commemorated annually on the last Saturday of April, which falls on April 29 in
+Keep in mind that specific events can vary from year to year, and not every event
 ### Positive Qoute
 ------
-"Spread kindness like confetti and watch joy bloom around you! 🌸✨💖"
+"Embrace the beauty of your journey, and let your light shine for all to see. 🌟🚀 Keep sprinkling positivity wherever you go, and watch the world bloom! 💐✨"
