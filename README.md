@@ -2,9 +2,14 @@
 ------
 ### Events
 ------
-- Kentucky Derby Festival: The Kentucky Derby is a famous horse race held annually in Louisville, Kentucky, but the celebrations surrounding the event span for two weeks prior to the first Saturday in May. While May 3rd is not the day of the Derby itself, the festival includes many events such as the Great Balloon Race, the Pegasus Parade, and various social gatherings leading up to the race day.
+Here is an example of a typical event that might happen in the USA on May 3rd:
 
-- National Teacher Day: Typically observed on the Tuesday of the first full week in May, National
+- Kentucky Derby Festival Marathon/miniMarathon (May 3, 2023): 
+  * Location: Louisville, Kentucky 
+  * Activities: Running events including a full and half marathon 
+  * Significance: Part of the annual Kentucky Derby Festival celebrations leading up to the Kentucky Derby horse race
+
+Please note, events can change from year to year, and the date you provided may have
 ### Positive Qoute
 ------
-"Every day is a fresh start, a new opportunity to shine 🌟 Embrace the unexpected and let your unique light illuminate the world 🌈💖!"
+"Chase the sunshine 🌞, embrace the journey 🚀, and let your soul sparkle ✨ in a universe of possibilities 💫. Believe in yourself, for you are capable of incredible things 🌟!"
