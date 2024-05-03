@@ -1,13 +1,10 @@
-### 📅 Thursday, 02 May, 2024
+### 📅 Friday, 03 May, 2024
 ------
 ### Events
 ------
-As of my knowledge cutoff in early 2023, specific events scheduled for May 2nd in any given year can vary and may not be consistent annually. However, below are some potential types of events that might occur in the USA on May 2nd:
+- Kentucky Derby Festival: The Kentucky Derby is a famous horse race held annually in Louisville, Kentucky, but the celebrations surrounding the event span for two weeks prior to the first Saturday in May. While May 3rd is not the day of the Derby itself, the festival includes many events such as the Great Balloon Race, the Pegasus Parade, and various social gatherings leading up to the race day.
 
-- Sporting events: Major League Baseball games, NBA playoffs, or MLS soccer matches.
-- Cultural events: Art gallery openings, museum exhibit premieres, or theater performances.
-- Academic events: University lectures, seminars, or conferences.
--
+- National Teacher Day: Typically observed on the Tuesday of the first full week in May, National
 ### Positive Qoute
 ------
-"Embrace each day with a heart full of gratitude and joy, for life is a canvas of limitless possibilities. 🌅✨🎨"
+"Every day is a fresh start, a new opportunity to shine 🌟 Embrace the unexpected and let your unique light illuminate the world 🌈💖!"
