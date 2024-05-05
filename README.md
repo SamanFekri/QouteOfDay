@@ -2,11 +2,9 @@
 ------
 ### Events
 ------
-- Cinco de Mayo celebration: An annual event on May 5th that commemorates the Mexican Army's victory over the French Empire at the Battle of Puebla in 1862. It is observed in various ways, especially in areas with significant Mexican-American populations. Key aspects include:
-  - Parades and street festivals featuring Mexican music, dance, and costumes.
-  - Traditional Mexican food and drink specials at restaurants and bars.
-  - Cultural displays and educational events that highlight Mexican heritage.
-
+- **Cinco de Mayo**: May 5th, or Cinco de Mayo, is an annual celebration held in the United States to honor Mexican-American culture and commemorate the Mexican Army's unlikely victory over French forces at the Battle of Puebla on May 5, 1862. Key points about the event in the U.S. include:
+    - Festivals and street fairs in cities with significant Mexican-American populations, such as Los Angeles, Chicago, and Houston.
+    -
 ### Positive Qoute
 ------
-"Every day is a fresh start, a new opportunity to shine and spread kindness like sunshine! ☀️😊🌟 Keep believing, keep growing, and let your positivity light up the world. 🌼✨"
+"Every sunrise brings new opportunities, just like a blank canvas ready for a masterpiece. Embrace the day with joy and paint your own story! 🌅✨💪"
