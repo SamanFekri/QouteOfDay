@@ -1,10 +1,12 @@
-### 📅 Saturday, 04 May, 2024
+### 📅 Sunday, 05 May, 2024
 ------
 ### Events
 ------
-- **Star Wars Day**: May the 4th is popularly known as Star Wars Day among fans of the Star Wars franchise. The date was chosen for the easy pun on the catchphrase "May the Force be with you" as "May the Fourth be with you." It is an unofficial holiday celebrated with various events such as film screenings, themed gatherings, and special merchandise offers.
+- Cinco de Mayo celebration: An annual event on May 5th that commemorates the Mexican Army's victory over the French Empire at the Battle of Puebla in 1862. It is observed in various ways, especially in areas with significant Mexican-American populations. Key aspects include:
+  - Parades and street festivals featuring Mexican music, dance, and costumes.
+  - Traditional Mexican food and drink specials at restaurants and bars.
+  - Cultural displays and educational events that highlight Mexican heritage.
 
-Please note that while Star Wars Day is widely recognized and celebrated by fans across the United States (and indeed worldwide
 ### Positive Qoute
 ------
-"Every sunrise brings a new opportunity to shine, just like every smile you share enlightens the world around you! 😊🌅 Keep spreading positivity and watch the world glow with you! ✨🌍💖"
+"Every day is a fresh start, a new opportunity to shine and spread kindness like sunshine! ☀️😊🌟 Keep believing, keep growing, and let your positivity light up the world. 🌼✨"

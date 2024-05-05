@@ -80,3 +80,13 @@ Please note that while Star Wars Day is widely recognized and celebrated by fans
 ### Quote of the day
 "Every sunrise brings a new opportunity to shine, just like every smile you share enlightens the world around you! 😊🌅 Keep spreading positivity and watch the world glow with you! ✨🌍💖"
 -----
+## Sunday, 05 May, 2024
+### Events
+- Cinco de Mayo celebration: An annual event on May 5th that commemorates the Mexican Army's victory over the French Empire at the Battle of Puebla in 1862. It is observed in various ways, especially in areas with significant Mexican-American populations. Key aspects include:
+  - Parades and street festivals featuring Mexican music, dance, and costumes.
+  - Traditional Mexican food and drink specials at restaurants and bars.
+  - Cultural displays and educational events that highlight Mexican heritage.
+
+### Quote of the day
+"Every day is a fresh start, a new opportunity to shine and spread kindness like sunshine! ☀️😊🌟 Keep believing, keep growing, and let your positivity light up the world. 🌼✨"
+-----
