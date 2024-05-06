@@ -1,10 +1,10 @@
-### 📅 Sunday, 05 May, 2024
+### 📅 Monday, 06 May, 2024
 ------
 ### Events
 ------
-- **Cinco de Mayo**: May 5th, or Cinco de Mayo, is an annual celebration held in the United States to honor Mexican-American culture and commemorate the Mexican Army's unlikely victory over French forces at the Battle of Puebla on May 5, 1862. Key points about the event in the U.S. include:
-    - Festivals and street fairs in cities with significant Mexican-American populations, such as Los Angeles, Chicago, and Houston.
-    -
+As of my last knowledge update in early 2023, specific events scheduled for May 6th in any given year can vary widely since it is a date that could host multiple types of events. Here are some general types of events that you might expect to find in the USA on May 6th:
+
+- **Kentucky Derby:** Often occurring around the first Saturday in May, this premier horse racing event could sometimes fall on May 6th. The Derby is a significant social event attended by
 ### Positive Qoute
 ------
-"Every sunrise brings new opportunities, just like a blank canvas ready for a masterpiece. Embrace the day with joy and paint your own story! 🌅✨💪"
+"Every sunrise is a new page in the book of life, write it with joy and passion! 🌅✍️❤️"
