@@ -2,8 +2,9 @@
 ------
 ### Events
 ------
-- *Kentucky Derby*: One of the most famous horse races in the United States, part of the Triple Crown, typically occurs on the first Saturday in May, which might fall on May 7th depending on the year. This event takes place at Churchill Downs in Louisville, Kentucky, and is known for its rich traditions, including mint juleps, elaborate hats, and the "Run for the Roses."
-- Local Festivals and Fairs: Depending on the year and location, there may
+As of my last update in early 2023, I can provide general information on annual events that typically occur in the United States around May 7. Please keep in mind that specific events can change from year to year, and you would need to check the current year's calendar for precise details. Here are some types of events that have historically taken place around this date:
+
+- **The Kentucky Derby**: This prestigious horse race is held annually in Louisville, Kentucky, on the first Saturday in May.
 ### Positive Qoute
 ------
-"Every new sunrise is a new opportunity to shine. Embrace the day with all your might and spread positivity like the sun spreads light! ☀️😊🌟"
+"Believe in the magic of new beginnings. Embrace each day with an open heart and a courageous spirit. 🌟💪✨ #FreshStarts #PositiveVibes"
