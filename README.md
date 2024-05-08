@@ -1,10 +1,10 @@
-### 📅 Tuesday, 07 May, 2024
+### 📅 Wednesday, 08 May, 2024
 ------
 ### Events
 ------
-As of my last update in early 2023, I can provide general information on annual events that typically occur in the United States around May 7. Please keep in mind that specific events can change from year to year, and you would need to check the current year's calendar for precise details. Here are some types of events that have historically taken place around this date:
+- **Mother's Day**: In the United States, Mother's Day is a significant event celebrated on the second Sunday in May, which falls on May 8th in some years. It's a day for honoring and expressing appreciation for mothers and mother figures.
 
-- **The Kentucky Derby**: This prestigious horse race is held annually in Louisville, Kentucky, on the first Saturday in May.
+- **VE Day Commemorations**: May 8th is also known as Victory in Europe (VE) Day, marking the day the Allies accepted the unconditional surrender of Nazi Germany in 1945, which effectively ended World War II
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings. Embrace each day with an open heart and a courageous spirit. 🌟💪✨ #FreshStarts #PositiveVibes"
+"Every new sunrise 🌅 is an invitation to brighten someone's day with kindness and a smile 😊. Spread the joy! 💖✨"
