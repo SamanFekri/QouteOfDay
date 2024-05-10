@@ -1,8 +1,12 @@
-### 📅 Thursday, 09 May, 2024
+### 📅 Friday, 10 May, 2024
 ------
 ### Events
 ------
-- **National Train Day** (not officially observed every year): A holiday started by Amtrak in 2008 to spread information about the advantages of rail travel and the history of trains in the United States. The date was chosen to mark the anniversary of the completion of the first transcontinental railroad on May 10, 1869. The event includes activities like exhibits, model train displays, and tours of trains. However, Amtrak officially discontinued National Train Day in 2015, but some
+As of my last update in early 2023, specific events planned for May 10 in any given year can vary widely across the United States. However, I can give you examples of the types of events that might occur on that date in a typical year:
+
+- National observances or celebrations:
+  - Mother's Day (USA) is celebrated on the second Sunday of May, which could fall on May 10 depending on the year.
+  - Military Spouse Appreciation Day, which is
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and embrace each day with a grateful heart 💫✨❤️."
+"Every new day brings a chance to bloom. 🌺 Keep planting seeds of hope, and watch your garden of dreams flourish. 🌱✨"
