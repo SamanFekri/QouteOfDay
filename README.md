@@ -2,11 +2,9 @@
 ------
 ### Events
 ------
-As of my last knowledge update in April 2023, specific events planned for May 11 of a given year can vary widely, and you would need to check current calendars or event listings for the exact details. However, I can provide some types of events that commonly occur in the United States around that date in a typical year:
-
-- **Local Festivals:** Many towns and cities host local festivals celebrating the arts, food, music, or local culture.
+- **National Train Day** (on occasion) - Celebrated on the Saturday closest to May 10th, National Train Day was a holiday started by Amtrak in 2008 to spread information about the advantages of rail travel and the history of trains in America. While Amtrak discontinued official National Train Day events after 2015, some rail enthusiasts and local organizations might still observe it.
   
-- **Concerts and Live
+- **Eat What You Want Day** - A light-hearted, unofficial holiday that encourages people to indulge
 ### Positive Qoute
 ------
-"Every day is a fresh start, a new opportunity to shine and spread kindness like sunlight! ☀️🌱✨ Remember, the best is yet to come. Keep smiling and stay positive!" 😊🌟💖
+"Embrace each day with an open heart and a fierce spirit. 🌟 Believe in the power of your dreams and watch the magic unfold! ✨💖🚀"
