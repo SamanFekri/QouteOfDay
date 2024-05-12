@@ -1,10 +1,10 @@
-### 📅 Saturday, 11 May, 2024
+### 📅 Sunday, 12 May, 2024
 ------
 ### Events
 ------
-- **National Train Day** (on occasion) - Celebrated on the Saturday closest to May 10th, National Train Day was a holiday started by Amtrak in 2008 to spread information about the advantages of rail travel and the history of trains in America. While Amtrak discontinued official National Train Day events after 2015, some rail enthusiasts and local organizations might still observe it.
-  
-- **Eat What You Want Day** - A light-hearted, unofficial holiday that encourages people to indulge
+- **National Limerick Day**: Celebrated on May 12th, this day commemorates the birthday of English artist, illustrator, author, and poet Edward Lear, who is known for popularizing limericks in his works.
+
+Please note that events can vary widely from year to year, so there might be additional events, conferences, or local festivals scheduled on May 12 in any given year. The events listed above are recurring and nationally recognized. To get the most accurate and up-to
 ### Positive Qoute
 ------
-"Embrace each day with an open heart and a fierce spirit. 🌟 Believe in the power of your dreams and watch the magic unfold! ✨💖🚀"
+"Embrace the beauty of your journey and let your spirit soar 🌟🌈✨ Every step you take is a dance with destiny. Keep moving with grace and joy in your heart! 💖🚀"
