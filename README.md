@@ -1,8 +1,10 @@
-### 📅 Wednesday, 15 May, 2024
+### 📅 Thursday, 16 May, 2024
 ------
 ### Events
 ------
-- **Peace Officers Memorial Day**: This day falls on May 15th each year in the United States and pays tribute to local, state, and federal peace officers who have died or who have been disabled in the line of duty. It is part of Police Week, which draws in tens of thousands of law enforcement officers from around the world.
+As of my last update in early 2023, specific events that will happen on May 16, 2023, may not have been scheduled or widely publicized yet. However, I can provide you with typical annual events and happenings that one might expect to occur on or around May 16 in the USA based on previous years:
+
+- **High School Proms:** Many high schools in the U.S. hold their proms in May, so there could be numerous prom events on May
 ### Positive Qoute
 ------
-"Embrace the sunshine of optimism 🌞, let your smile change the world 😊, but don't let the world change your smile. Keep shining! 💫"
+"Every step forward is a new chance to shine brighter! 🚀✨ Keep believing, keep striving, and the stars will align in your favor. 💫🌟"
