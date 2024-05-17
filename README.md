@@ -2,7 +2,9 @@
 ------
 ### Events
 ------
-- **Tax Day** for individuals: Although the traditional deadline for filing individual tax returns in the U.S. is April 15, when it falls on a weekend or a holiday, the deadline can be extended. In some years, due to holidays like Emancipation Day in Washington D.C., the deadline can be extended to as late as April 18 or even later. May 17, 2021, served as the Tax Day due to the COVID-19 pandemic, but this is
+One significant recurring event that takes place in the United States on May 17th is:
+
+- International Day Against Homophobia, Transphobia, and Biphobia (IDAHOTB): This is a worldwide celebration that started in 2004 to draw the attention of policymakers, opinion leaders, social movements, the public, and the media to the violence and discrimination experienced by LGBTQ+ people internationally. In the USA, various events such as rallies, talks, and community gatherings are organized to mark
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is an invitation to brighten someone's day. Spread the warmth with a smile! 😊✨"
+"Believe in the magic of new beginnings and watch your world blossom 🌟🌱✨"
