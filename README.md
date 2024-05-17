@@ -1,14 +1,8 @@
-### 📅 Thursday, 16 May, 2024
+### 📅 Friday, 17 May, 2024
 ------
 ### Events
 ------
-As of my last knowledge update in April 2023, specific events planned for May 16, 2023, in the USA would not be available to me. However, I can list types of events that commonly occur on a given date in the USA, which might include:
-
-- Local festivals or fairs
-- Sporting events (such as baseball games, since May is within baseball season)
-- Concerts or live music performances
-- Political rallies or town hall meetings
-- Theater performances or
+- **Tax Day** for individuals: Although the traditional deadline for filing individual tax returns in the U.S. is April 15, when it falls on a weekend or a holiday, the deadline can be extended. In some years, due to holidays like Emancipation Day in Washington D.C., the deadline can be extended to as late as April 18 or even later. May 17, 2021, served as the Tax Day due to the COVID-19 pandemic, but this is
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and watch your world bloom with possibilities 🌟🌱🌈"
+"Every sunrise 🌅 is an invitation to brighten someone's day. Spread the warmth with a smile! 😊✨"

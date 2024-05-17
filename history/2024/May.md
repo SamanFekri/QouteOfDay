@@ -295,3 +295,9 @@ As of my last knowledge update in April 2023, specific events planned for May 16
 ### Quote of the day
 "Believe in the magic of new beginnings and watch your world bloom with possibilities 🌟🌱🌈"
 -----
+## Friday, 17 May, 2024
+### Events
+- **Tax Day** for individuals: Although the traditional deadline for filing individual tax returns in the U.S. is April 15, when it falls on a weekend or a holiday, the deadline can be extended. In some years, due to holidays like Emancipation Day in Washington D.C., the deadline can be extended to as late as April 18 or even later. May 17, 2021, served as the Tax Day due to the COVID-19 pandemic, but this is
+### Quote of the day
+"Every sunrise 🌅 is an invitation to brighten someone's day. Spread the warmth with a smile! 😊✨"
+-----
