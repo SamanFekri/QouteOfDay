@@ -1,10 +1,10 @@
-### 📅 Friday, 17 May, 2024
+### 📅 Saturday, 18 May, 2024
 ------
 ### Events
 ------
-One significant recurring event that takes place in the United States on May 17th is:
-
-- International Day Against Homophobia, Transphobia, and Biphobia (IDAHOTB): This is a worldwide celebration that started in 2004 to draw the attention of policymakers, opinion leaders, social movements, the public, and the media to the violence and discrimination experienced by LGBTQ+ people internationally. In the USA, various events such as rallies, talks, and community gatherings are organized to mark
+- **Mount St. Helens Eruption (1980)**:
+  - On May 18, 1980, Mount St. Helens, a volcanic peak in southwestern Washington, erupted, causing one of the most significant volcanic events in the contiguous United States since the 1915 eruption of Lassen Peak in California.
+  - The eruption was preceded by a two-month series of earthquakes and steam-venting episodes, caused by an injection of magma at shallow depth below the mountain that created a
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and watch your world blossom 🌟🌱✨"
+"Every day is a new canvas to paint upon. Make sure your picture is full of life and happiness, and at the end of the day, you don't look at a blank canvas wishing you had painted something 🖌️🎨✨."
