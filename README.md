@@ -2,10 +2,9 @@
 ------
 ### Events
 ------
-As of my last update in early 2023, specific events planned for May 19 of any given year in the USA can vary widely and may not be comprehensively listed. However, there are some recurring events, holidays, and notable occasions that may be observed on that date. Here are some types of events that could happen on May 19 in the USA:
+- **Preakness Stakes**: The Preakness Stakes is typically held on the third Saturday in May, which can sometimes fall on the 19th. It is the second jewel of the Triple Crown in thoroughbred horse racing and takes place at the Pimlico Race Course in Baltimore, Maryland.
 
-- **Local festivals**: Various towns or cities may host annual festivals with music, food, and cultural activities.
-- **Conferences
+Please note that specific events can vary from year to year, and not every May 19th will have the same events scheduled. Always check the current year's calendar for precise event dates
 ### Positive Qoute
 ------
-"Embrace the beauty of your journey and let your light shine bright 💫🌟 Be the reason someone believes in the goodness of people. 😊💖"
+"Every new day brings a chance to bloom 🌼 Embrace your journey with joy and let your spirit shine bright like the sun! ☀️🌈"
