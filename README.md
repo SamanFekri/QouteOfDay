@@ -2,11 +2,8 @@
 ------
 ### Events
 ------
-As of my last update, there is no guarantee of a specific event that will happen on May 21st in any given year without current context. However, traditionally, there are types of events that might take place on or around this date each year in the USA:
-
-- College and university graduations
-- Memorial Day Weekend events (if the 21st is close to the last Monday of May)
-- Sporting events (e.g., Major League Baseball games, NBA playoffs if they are occurring during
+- Preakness Stakes: One of the events in the Triple Crown of horse racing, usually held on the third Saturday in May, which would be May 20 in 2023, but sometimes can fall on May 21 in other years. It takes place at the Pimlico Race Course in Baltimore, Maryland.
+- National Armed Forces Day: Celebrated on the third Saturday of May, which could be May 21 in some years, this day honors people serving in the U.S
 ### Positive Qoute
 ------
-"Every new sunrise is a new invitation to rise and shine 🌅✨ Believe in the magic of new beginnings and embrace the opportunities that come your way with an open heart 💖🚀"
+"Every day is a fresh start, embrace it with a smile and a heart full of gratitude. 😊🌅🍀"
