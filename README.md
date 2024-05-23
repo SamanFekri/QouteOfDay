@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- **Fleet Week New York**: This annual event traditionally begins around the date of May 23rd (although the specific start date can vary). Fleet Week celebrates the U.S. Navy, Marine Corps, and Coast Guard, with various events, including ship tours, military demonstrations, and community activities in New York City.
+- **National Lucky Penny Day**: Celebrated on May 23rd, this quirky holiday encourages people to look down and spot a penny on the ground, which is often considered a symbol of good luck.
 
-Please note that events are subject to change, and it's always a good idea to check the latest schedule or official announcements for the current year.
+Please note that events can vary widely from year to year, and there might be additional events, both recurring and one-time, scheduled for May 23rd in the USA. For the most up-to-date information, it would be advisable to check current event calendars or news closer to the date.
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and watch your world bloom! 🌱✨🌟"
+"Believe in the magic of new beginnings and let your heart 💖 be the compass guiding you towards amazing adventures 🚀. Embrace each day with a smile 😊 and spread kindness like confetti 🎉!"
