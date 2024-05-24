@@ -2,11 +2,9 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff date in early 2023, one event that is annually recognized in the United States on May 24 is:
+As of my last update in early 2023, specific events for May 24 of a given year in the United States would not be known unless they are annual occurrences or have been scheduled in advance. Typically, the specific events happening on any given date, such as May 24, would vary from year to year. However, here are some general types of events that could occur in the U.S. on May 24 based on historical trends:
 
-- National Brother's Day: Celebrated on May 24 each year, National Brother's Day honors the brothers in our lives. Whether they are older or younger, brothers can have a significant influence on our lives. This day is an opportunity for siblings to show appreciation for one another.
-
-Please note that specific events can also be scheduled for May 24 in any
+- Memorial Day Observances (if May 
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and embrace each day with an open heart. 💖✨ Every sunrise is a canvas for your dreams to take flight. 🌅🚀"
+"Spread kindness like confetti and watch the world sparkle with joy! ✨🎉❤️"
