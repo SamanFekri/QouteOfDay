@@ -436,3 +436,11 @@ As of my last update in early 2023, specific events for May 24 of a given year i
 ### Quote of the day
 "Every sunrise 🌅 is an invitation to brighten someone's day with kindness and a smile 😊. Embrace the light within, and let it shine through you! ✨"
 -----
+## Saturday, 25 May, 2024
+### Events
+- National Missing Children's Day: Established in 1983, this day honors the efforts to find missing children and raise awareness about ways to prevent child abduction, exploitation, and sexual assault. It is observed annually in the United States on May 25th.
+
+- National Tap Dance Day: Celebrated in honor of Bill "Bojangles" Robinson's birthday, a famous tap dancer born on May 25, 1878. This day was signed into American law by President George H.W.
+### Quote of the day
+"Cherish every moment like it's a precious gem 💎, for each second sparkles with the potential for joy and discovery. Embrace life's journey with an open heart ❤️ and a daring spirit 🚀."
+-----

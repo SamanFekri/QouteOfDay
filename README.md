@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- **Memorial Day Observance (Varies by Year)**: Memorial Day is a federal holiday in the United States for honoring and mourning the military personnel who have died in the performance of their military duties. Memorial Day is observed on the last Monday of May, which may fall on May 25 depending on the year.
-  
-- **National Missing Children's Day**: May 25 is also recognized as National Missing Children's Day in the United States. First proclaimed by President Ronald Reagan in 198
+- National Missing Children's Day: Established in 1983, this day honors the efforts to find missing children and raise awareness about ways to prevent child abduction, exploitation, and sexual assault. It is observed annually in the United States on May 25th.
+
+- National Tap Dance Day: Celebrated in honor of Bill "Bojangles" Robinson's birthday, a famous tap dancer born on May 25, 1878. This day was signed into American law by President George H.W.
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is an invitation to brighten someone's day with kindness and a smile 😊. Embrace the light within, and let it shine through you! ✨"
+"Cherish every moment like it's a precious gem 💎, for each second sparkles with the potential for joy and discovery. Embrace life's journey with an open heart ❤️ and a daring spirit 🚀."
