@@ -1,10 +1,12 @@
-### 📅 Saturday, 25 May, 2024
+### 📅 Sunday, 26 May, 2024
 ------
 ### Events
 ------
-- National Missing Children's Day: Established in 1983, this day honors the efforts to find missing children and raise awareness about ways to prevent child abduction, exploitation, and sexual assault. It is observed annually in the United States on May 25th.
+As of my knowledge cutoff in early 2023, a recurring event that takes place in the United States on May 26th is Memorial Day (observed). Memorial Day is a federal holiday that is observed on the last Monday of May each year. If May 26th falls on the last Monday, the following events would typically occur:
 
-- National Tap Dance Day: Celebrated in honor of Bill "Bojangles" Robinson's birthday, a famous tap dancer born on May 25, 1878. This day was signed into American law by President George H.W.
+- **Memorial Day Observances**
+  - National moment of remembrance at 3:00 PM local time
+  - Ceremonies at Arlington
 ### Positive Qoute
 ------
-"Cherish every moment like it's a precious gem 💎, for each second sparkles with the potential for joy and discovery. Embrace life's journey with an open heart ❤️ and a daring spirit 🚀."
+"Shine bright like the star you are and let nothing dim your sparkle! ✨🌟 Keep believing, keep growing, and spread kindness everywhere you go. 💖🌱"
