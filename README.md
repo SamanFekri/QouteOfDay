@@ -2,12 +2,9 @@
 ------
 ### Events
 ------
-- **Memorial Day Observance**:
-  - Memorial Day is a federal holiday in the United States for honoring and mourning military personnel who have died in the performance of their military duties.
-  - The holiday is observed on the last Monday of May.
-  - It originated after the American Civil War to commemorate the Union and Confederate soldiers who died in the Civil War.
-  - By the 20th century, it had been extended to honor all Americans who have died in all wars.
-  -
+As of my last knowledge update in 2023, a recurring event that typically happens on or around May 27th in the United States is:
+
+- Memorial Day (observed) – This federal holiday is observed on the last Monday of May each year, which can occasionally fall on May 27th, depending on the calendar year. On Memorial Day, Americans remember and honor the men and women of the armed forces who have died in service to their country. Here are some common activities and observ
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new page in the book of life, filled with opportunity and hope. Embrace it with all your heart 💖 and let your spirit soar! 🕊️"
+"Every sunrise is a gift. Unwrap it with a grateful heart and let your soul shine! 🌅✨🙏"
