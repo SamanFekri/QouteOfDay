@@ -1,10 +1,14 @@
-### 📅 Wednesday, 29 May, 2024
+### 📅 Thursday, 30 May, 2024
 ------
 ### Events
 ------
-- Memorial Day (observed): Memorial Day is a federal holiday in the United States for honoring and mourning the military personnel who have died in the performance of their military duties. While the exact date of Memorial Day can vary, it is traditionally observed on the last Monday of May. If May 29 falls on the last Monday of May, then Memorial Day would be observed on this date. The day is commemorated with various events, such as:
-
-    - Visiting cemeteries and memor
+- Memorial Day: This is a federal holiday in the United States to honor and mourn the military personnel who have died in the performance of their military duties.
+- Observance activities often include:
+  - Visiting cemeteries and memorials
+  - Flying the U.S. flag at half-staff until noon
+  - Participating in parades
+  - Moments of silence or listening to "Taps"
+  - Family gatherings and barbecues as it also unofficially marks the
 ### Positive Qoute
 ------
-"Every sunrise is a new page in the book of life, write a good one 🌅✍️✨"
+"Every sunrise 🌅 brings new hope, embrace the day with a heart full of love ❤️ and positivity ✨. Let your spirit soar as high as the possibilities! 🚀"
