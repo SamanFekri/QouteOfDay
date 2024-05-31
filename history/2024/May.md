@@ -537,3 +537,12 @@ As of my knowledge cutoff date in early 2023, one of the most notable annual eve
 ### Quote of the day
 "Believe in the magic of new beginnings and let your spirit soar 🌟✨🚀 Embrace the journey and spread joy like confetti 🎉❤️🌈"
 -----
+## Friday, 31 May, 2024
+### Events
+- **Memorial Day (observed)**: May 31 is occasionally the date for Memorial Day when it falls on the last Monday of May. It is a federal holiday in the United States to honor and mourn the military personnel who have died in the performance of their military duties. The holiday is observed with various events such as:
+  - Ceremonies at cemeteries and memorials
+  - Flag raising and lowering to half-staff until noon
+  - Parades showcasing military
+### Quote of the day
+"Every sunrise 🌅 is an invitation to brighten someone's day with kindness and a smile 😊. Shine on!"
+-----

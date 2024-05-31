@@ -1,14 +1,11 @@
-### 📅 Thursday, 30 May, 2024
+### 📅 Friday, 31 May, 2024
 ------
 ### Events
 ------
-- **Memorial Day (Observed)**: 
-  - National holiday in the United States
-  - Honors military personnel who have died in the performance of their military duties
-  - Typically marked by ceremonies, parades, and laying of wreaths at cemeteries
-  - Many people visit memorials and cemeteries to pay their respects
-  - Considered the unofficial start of summer
-  - Flags often flown at half-staff until noon, then raised to
+- **Memorial Day (observed)**: May 31 is occasionally the date for Memorial Day when it falls on the last Monday of May. It is a federal holiday in the United States to honor and mourn the military personnel who have died in the performance of their military duties. The holiday is observed with various events such as:
+  - Ceremonies at cemeteries and memorials
+  - Flag raising and lowering to half-staff until noon
+  - Parades showcasing military
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and let your spirit soar 🌟✨🚀 Embrace the journey and spread joy like confetti 🎉❤️🌈"
+"Every sunrise 🌅 is an invitation to brighten someone's day with kindness and a smile 😊. Shine on!"
