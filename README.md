@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff in early 2023, I cannot predict specific events that will occur on June 3rd in the future. However, I can mention the types of events that are traditionally held on or around that date in the United States. Please note that the actual occurrence of these events can vary, and it is advisable to check the current year's calendar and local event schedules for specifics. Here are some typical events that might take place:
+- **National Doughnut Day**: Celebrated on the first Friday of June, which occasionally falls on June 3rd. It's a day when many doughnut shops offer free doughnuts or special deals to customers.
 
-- **Local Festivals**: Many towns and
+Please note that specific events can vary from year to level such as festivals, concerts, sports events, or political rallies, and might not occur annually or on a fixed date. Additionally, the events on a given June 3rd can change each year and would require current year information
 ### Positive Qoute
 ------
-"Every sunrise 🌅 brings a new page of opportunity. Write your story with love 💖, courage 🦁, and a dash of adventure 🚀!"
+"Every sunrise 🌅 is a new page of opportunities; write your story with joy and courage! 💪😊"
