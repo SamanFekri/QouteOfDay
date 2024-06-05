@@ -59,3 +59,11 @@ As of my last update in early 2023, there isn't a specific recurring event that'
 ### Quote of the day
 "Let your dreams take flight and soar above the skies of doubt 🚀💫 Believe in yourself and the universe will unfold paths of possibilities 🌈✨"
 -----
+## Wednesday, 05 June, 2024
+### Events
+As of my knowledge cutoff date in March 2023, specific events scheduled for June 5, 2023, in the USA may not be widely publicized yet, and recurring events might not have been announced. However, June 5 is annually recognized as World Environment Day, which could feature related events across the country. Additionally, some annual events that sometimes occur around this date include:
+
+- LGBTQ+ Pride Month Celebrations: June is Pride Month in the USA, and various events such as
+### Quote of the day
+"Embrace each day with a heart full of gratitude and a smile that shines like the sun! 😊🌟✨ Be the joy you wish to see in the world. 🌍💖"
+-----

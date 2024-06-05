@@ -1,10 +1,10 @@
-### 📅 Tuesday, 04 June, 2024
+### 📅 Wednesday, 05 June, 2024
 ------
 ### Events
 ------
-- National Trails Day: Celebrated on the first Saturday in June, which could fall on June 4 in some years. It's a day dedicated to the celebration and maintenance of trail systems across the United States.
-- National Hug Your Cat Day: An unofficial holiday celebrated by cat owners on June 4, where they are encouraged to give some extra attention and hugs to their feline friends.
-- National Cheese Day: A day to celebrate one of the most popular dairy products, cheese. It
+As of my knowledge cutoff date in March 2023, specific events scheduled for June 5, 2023, in the USA may not be widely publicized yet, and recurring events might not have been announced. However, June 5 is annually recognized as World Environment Day, which could feature related events across the country. Additionally, some annual events that sometimes occur around this date include:
+
+- LGBTQ+ Pride Month Celebrations: June is Pride Month in the USA, and various events such as
 ### Positive Qoute
 ------
-"Let your dreams take flight and soar above the skies of doubt 🚀💫 Believe in yourself and the universe will unfold paths of possibilities 🌈✨"
+"Embrace each day with a heart full of gratitude and a smile that shines like the sun! 😊🌟✨ Be the joy you wish to see in the world. 🌍💖"
