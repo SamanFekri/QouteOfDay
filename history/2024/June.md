@@ -67,3 +67,13 @@ As of my knowledge cutoff date in March 2023, specific events scheduled for June
 ### Quote of the day
 "Embrace each day with a heart full of gratitude and a smile that shines like the sun! 😊🌟✨ Be the joy you wish to see in the world. 🌍💖"
 -----
+## Wednesday, 05 June, 2024
+### Events
+- World Environment Day: Although not exclusively an event in the USA, World Environment Day is celebrated globally on June 5th. In the United States, various events such as tree plantings, educational programs, and community clean-ups may be organized in recognition of this day which is aimed at raising awareness about environmental issues.
+
+- National Gingerbread Day: This is a fun food holiday celebrated in the United States on June 5th, where people enjoy gingerbread in its various forms.
+
+- National Cancer
+### Quote of the day
+"Embrace each day with a heart full of gratitude, a mind full of positivity, and a soul full for joy! 😊🌟✨"
+-----

@@ -2,9 +2,11 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff date in March 2023, specific events scheduled for June 5, 2023, in the USA may not be widely publicized yet, and recurring events might not have been announced. However, June 5 is annually recognized as World Environment Day, which could feature related events across the country. Additionally, some annual events that sometimes occur around this date include:
+- World Environment Day: Although not exclusively an event in the USA, World Environment Day is celebrated globally on June 5th. In the United States, various events such as tree plantings, educational programs, and community clean-ups may be organized in recognition of this day which is aimed at raising awareness about environmental issues.
 
-- LGBTQ+ Pride Month Celebrations: June is Pride Month in the USA, and various events such as
+- National Gingerbread Day: This is a fun food holiday celebrated in the United States on June 5th, where people enjoy gingerbread in its various forms.
+
+- National Cancer
 ### Positive Qoute
 ------
-"Embrace each day with a heart full of gratitude and a smile that shines like the sun! 😊🌟✨ Be the joy you wish to see in the world. 🌍💖"
+"Embrace each day with a heart full of gratitude, a mind full of positivity, and a soul full for joy! 😊🌟✨"
