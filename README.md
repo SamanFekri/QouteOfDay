@@ -1,12 +1,9 @@
-### 📅 Wednesday, 05 June, 2024
+### 📅 Thursday, 06 June, 2024
 ------
 ### Events
 ------
-- World Environment Day: Although not exclusively an event in the USA, World Environment Day is celebrated globally on June 5th. In the United States, various events such as tree plantings, educational programs, and community clean-ups may be organized in recognition of this day which is aimed at raising awareness about environmental issues.
-
-- National Gingerbread Day: This is a fun food holiday celebrated in the United States on June 5th, where people enjoy gingerbread in its various forms.
-
-- National Cancer
+- **D-Day Anniversary** (June 6th): This date marks the anniversary of the D-Day landings in 1944, one of the most significant events during World War II, when Allied forces landed on the beaches of Normandy, France, as part of a massive offensive against the German Army. It is often commemorated with ceremonies and remembrance events at WWII memorials and cemeteries in the United States.
+- **National Drive-In Movie Day** (June 6
 ### Positive Qoute
 ------
-"Embrace each day with a heart full of gratitude, a mind full of positivity, and a soul full for joy! 😊🌟✨"
+"Every sunrise 🌅 is a new page in your story waiting to be written with joy and love 💖. Embrace the possibilities and let your spirit soar! 🚀✨"
