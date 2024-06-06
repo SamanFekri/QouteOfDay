@@ -2,8 +2,8 @@
 ------
 ### Events
 ------
-- **D-Day Anniversary** (June 6th): This date marks the anniversary of the D-Day landings in 1944, one of the most significant events during World War II, when Allied forces landed on the beaches of Normandy, France, as part of a massive offensive against the German Army. It is often commemorated with ceremonies and remembrance events at WWII memorials and cemeteries in the United States.
-- **National Drive-In Movie Day** (June 6
+- D-Day Commemoration: June 6th marks the anniversary of the D-Day landings in 1944, which were a pivotal point during World War II. Commemorative events and ceremonies take place to honor the soldiers who fought in the Normandy landings.
+- National Yo-Yo Day: Celebrated in honor of the birthday of Donald F. Duncan Sr., the entrepreneur who popularized the yo-yo in the United States. Yo-yo enthusiasts and clubs often mark this
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new page in your story waiting to be written with joy and love 💖. Embrace the possibilities and let your spirit soar! 🚀✨"
+"Every sunrise 🌅 is a new page in your story waiting to be written with joy 🌟 and happiness 😊. Embrace the possibilities and let your light shine! 💫"
