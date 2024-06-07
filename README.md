@@ -2,11 +2,9 @@
 ------
 ### Events
 ------
-* Primary Elections: Depending on the year, several states may hold their primary elections on June 7 for congressional, gubernatorial, and local elections.
+As of my last update in early 2023, specific events scheduled for June 7th in any given year in the USA can vary widely, from local community gatherings to potentially larger national celebrations or observances. However, there isn't a fixed annual event that occurs on June 7th each year across the entire country that is as universally recognized as, say, Independence Day on July 4th. 
 
-* Anniversaries of Historical Events: June 7 may mark the anniversaries of significant historical events in the U.S. For example, the United States entered World War I on June 7, 1917.
-
-* Commemorations and Awareness Days: Certain awareness days or commemorative events may fall on June 7, such as
+That being said, I can provide a hypothetical list of what might be happening on June
 ### Positive Qoute
 ------
-"Every sunrise offers you a new beginning and a fresh start. Embrace the possibilities! 🌅✨🌱"
+"Every sunrise brings new opportunities to shine, embrace them with open arms and a joyful heart! 🌅✨❤️"
