@@ -91,3 +91,13 @@ As of my knowledge cutoff date in March 2023, specific events scheduled for June
 ### Quote of the day
 "Every sunrise 🌅 is a new page in your story waiting to be written with joy 🌟 and happiness 😊. Embrace the possibilities and let your light shine! 💫"
 -----
+## Friday, 07 June, 2024
+### Events
+* Primary Elections: Depending on the year, several states may hold their primary elections on June 7 for congressional, gubernatorial, and local elections.
+
+* Anniversaries of Historical Events: June 7 may mark the anniversaries of significant historical events in the U.S. For example, the United States entered World War I on June 7, 1917.
+
+* Commemorations and Awareness Days: Certain awareness days or commemorative events may fall on June 7, such as
+### Quote of the day
+"Every sunrise offers you a new beginning and a fresh start. Embrace the possibilities! 🌅✨🌱"
+-----
