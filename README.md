@@ -2,10 +2,9 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff in 2023, specific events that are scheduled to take place on June 9th in the United States can vary widely from year to year. However, here are a few general types of events that might occur on June 9th in any given year:
+- Belmont Stakes: The Belmont Stakes is typically held on the first or second Saturday of June at Belmont Park in Elmont, New York. It is the third and final leg of the American Triple Crown of thoroughbred horse racing, following the Kentucky Derby and the Preakness Stakes. If June 9 falls on a Saturday, it could be the date for the Belmont Stakes.
 
-- **Local Festivals**: Many cities and towns have local festivals that may include music, food, and cultural celebrations.
-- **Concerts**: Musical artists or bands might be on tour and could have a
+- National Get Outdoors Day (GO Day): National Get Outdoors Day is an annual event to
 ### Positive Qoute
 ------
-"Let your dreams take flight and soar above the clouds, for the sky is not the limit when you have wings of determination 🚀✨🌟"
+"Every sunrise 🌅 is a new page 📖 in the book of life; write a story 📝 filled with colors 🎨 of joy 😄, courage 💪, and love ❤️!"
