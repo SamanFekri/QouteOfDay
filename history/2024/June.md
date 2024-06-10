@@ -146,3 +146,11 @@ As of my knowledge cutoff in 2023, specific events that are scheduled to take pl
 ### Quote of the day
 "Every sunrise 🌅 is a new page 📖 in the book of life; write a story 📝 filled with colors 🎨 of joy 😄, courage 💪, and love ❤️!"
 -----
+## Monday, 10 June, 2024
+### Events
+- **National Iced Tea Day**: June 10th is celebrated as National Iced Tea Day in the United States.
+- **Pulaski Days**: Depending on the year, Pulaski Days, a festival in Grand Rapids, Michigan celebrating General Casimir Pulaski and Polish heritage, may begin or have events around June 10th.
+- **Various Pride Month Celebrations**: June is Pride Month, so many cities across the U.S. may host LGBTQ+ pride events,
+### Quote of the day
+"Embrace your uniqueness, the world shines brighter with your light! 🌟✨🌈"
+-----

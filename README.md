@@ -1,10 +1,10 @@
-### 📅 Sunday, 09 June, 2024
+### 📅 Monday, 10 June, 2024
 ------
 ### Events
 ------
-- Belmont Stakes: The Belmont Stakes is typically held on the first or second Saturday of June at Belmont Park in Elmont, New York. It is the third and final leg of the American Triple Crown of thoroughbred horse racing, following the Kentucky Derby and the Preakness Stakes. If June 9 falls on a Saturday, it could be the date for the Belmont Stakes.
-
-- National Get Outdoors Day (GO Day): National Get Outdoors Day is an annual event to
+- **National Iced Tea Day**: June 10th is celebrated as National Iced Tea Day in the United States.
+- **Pulaski Days**: Depending on the year, Pulaski Days, a festival in Grand Rapids, Michigan celebrating General Casimir Pulaski and Polish heritage, may begin or have events around June 10th.
+- **Various Pride Month Celebrations**: June is Pride Month, so many cities across the U.S. may host LGBTQ+ pride events,
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new page 📖 in the book of life; write a story 📝 filled with colors 🎨 of joy 😄, courage 💪, and love ❤️!"
+"Embrace your uniqueness, the world shines brighter with your light! 🌟✨🌈"
