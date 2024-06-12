@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff in early 2023, there is not a specific recurring event that always falls on June 12th in the United States, as this may change annually based on particular events and observations for that year. However, I can list a few events that may coincide with June 12th in general, keeping in mind that specific events might change each year:
+- **Pulaski Days**: While not a nationwide event, Pulaski Days typically occur in Grand Rapids, Michigan, celebrating Casimir Pulaski, a Revolutionary War hero. The event includes Polish food, music, and cultural activities. However, this event usually takes place in October, not June.
 
-- **LGBTQ+ Pride Month Events**: June is recognized as Pride Month, and events such as parades,
+- **Juneteenth**: Although Juneteenth is celebrated on June 19th, related events and celebrations often start earlier in the month. Juneteenth commemorates the emancipation
 ### Positive Qoute
 ------
-"Believe in your sparkle, and you'll shine bright like a diamond 💎✨ Never doubt your inner light; it's there to guide you through the night. 🌟💫"
+"Every sunrise 🌅 is a new chapter in your story waiting to be written, filled with potential and bright possibilities. Embrace it with open arms and a grateful heart ❤️✨!"
