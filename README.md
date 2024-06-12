@@ -1,13 +1,10 @@
-### 📅 Tuesday, 11 June, 2024
+### 📅 Wednesday, 12 June, 2024
 ------
 ### Events
 ------
-As of my knowledge cutoff in early 2023, specific events that are scheduled for June 11 in any given year can vary widely and change annually. However, here are some types of events that could potentially take place on June 11 in the United States, based on past occurrences:
+As of my knowledge cutoff in early 2023, there is not a specific recurring event that always falls on June 12th in the United States, as this may change annually based on particular events and observations for that year. However, I can list a few events that may coincide with June 12th in general, keeping in mind that specific events might change each year:
 
-- **Music and Arts Festivals**: Summer is a popular time for festivals.
-  - Example: Bonnaroo Music and Arts Festival in Tennessee often occurs in early to mid-June.
-
-- **Sports Events
+- **LGBTQ+ Pride Month Events**: June is recognized as Pride Month, and events such as parades,
 ### Positive Qoute
 ------
-"Every day is a fresh start, a new opportunity to shine and spread kindness like confetti 🌟✨🎉 Be the reason someone smiles today! 😊🌈💖"
+"Believe in your sparkle, and you'll shine bright like a diamond 💎✨ Never doubt your inner light; it's there to guide you through the night. 🌟💫"
