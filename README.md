@@ -2,9 +2,12 @@
 ------
 ### Events
 ------
-As of my last knowledge update in April 2023, I'm unable to provide real-time or future event schedules, including events that specifically occur on June 13th in the USA. However, I can give you an example of the kind of annual events or occurrences that might be scheduled for a date like June 13th in any given year:
+As of my knowledge cutoff date in early 2023, specific events scheduled for June 13, 2023, in the USA may not be widely publicized or known. However, here's a general list of types of events that often take place in the United States around that time of year:
 
-- **Flag Day Observance**: June 14 is Flag Day in the United States, so some communities might have observances, ceremonies, or
+- **Flag Day Celebrations** (June 14 is Flag-Day, celebrations may occur around this date)
+  - Flag-raising ceremonies
+  - Patriotic parades
+  - Educational
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new page in the book of life; be the author of your own story and fill it with adventures, love, and laughter 😄✨📖."
+"Every sunrise 🌅 is a new page in the book of life, write it with joy 💖 and passion 🔥! Be the author of your own happiness 🌟."
