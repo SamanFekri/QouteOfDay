@@ -228,3 +228,15 @@ As of my knowledge cutoff date in early 2023, specific events scheduled for June
 ### Quote of the day
 "Every day is a fresh start, a new chance to bloom 🌱🌸. Embrace it with an open heart and a vibrant smile 😊🌈!"
 -----
+## Friday, 14 June, 2024
+### Events
+- Flag Day: 
+  - Annual event celebrated on June 14th 
+  - Commemorates the adoption of the flag of the United States, which happened on June 14, 1777 
+  - Not an official federal holiday, but proclaimed by the president every year
+  - Often marked by displaying the American flag at homes and public buildings 
+  - Many communities and organizations hold Flag Day ceremonies
+  - Some places, such as Fairfield, Washington, hold parades and
+### Quote of the day
+"The sun always shines above the clouds, keep flying high and let your spirit soar 🌤️✨🚀"
+-----

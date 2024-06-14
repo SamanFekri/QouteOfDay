@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-- Flag Day: June 14th is observed as Flag Day in the United States. This event commemorates the adoption of the Stars and Stripes as the official flag of the United States on June 14, 1777.
-  
-  - Presidential Proclamation: The President of the United States usually issues a proclamation urging U.S. residents to observe Flag Day by displaying the flag at homes and other suitable places.
-
-  - Public Ceremonies: Many towns and cities hold public ceremonies honoring the
+- Flag Day: 
+  - Annual event celebrated on June 14th 
+  - Commemorates the adoption of the flag of the United States, which happened on June 14, 1777 
+  - Not an official federal holiday, but proclaimed by the president every year
+  - Often marked by displaying the American flag at homes and public buildings 
+  - Many communities and organizations hold Flag Day ceremonies
+  - Some places, such as Fairfield, Washington, hold parades and
 ### Positive Qoute
 ------
-"Every day is a fresh start, a new chance to bloom 🌱🌸. Embrace it with an open heart and a vibrant smile 😊🌈!"
+"The sun always shines above the clouds, keep flying high and let your spirit soar 🌤️✨🚀"
