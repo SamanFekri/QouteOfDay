@@ -2,8 +2,9 @@
 ------
 ### Events
 ------
-- **Flag Day**: June 14th is officially Flag Day in the United States, which commemorates the adoption of the flag of the United States on June 14, 1777. While not a federal holiday, Flag Day is observed on the 14th, and related events or celebrations sometimes spill over into the next day, June 15th.
-- **Juneteenth celebrations**: Although Juneteenth is officially on June 19th, many communities may start early celebrations and events
+- Flag Day: June 14th is actually the official Flag Day in the United States, commemorating the adoption of the U.S. flag by the Second Continental Congress in 1777. However, celebrations or observances related to Flag Day can sometimes extend into June 15th, especially if the 14th falls close to a weekend.
+  
+- Local festivals and events: Depending on the year and city, there might be various local festivals, parades, concerts, or community events happening
 ### Positive Qoute
 ------
-"🌟 Believe in the magic of new beginnings and trust the journey, even when the path is unclear. Keep shining, for your light is a beacon of hope in the world. 🚀💖"
+"Every new sunrise brings a fresh start, a new opportunity to shine 🌅✨ Embrace the day with an open heart and let your spirit soar! 🚀❤️"
