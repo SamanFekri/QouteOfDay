@@ -1,14 +1,9 @@
-### 📅 Friday, 14 June, 2024
+### 📅 Saturday, 15 June, 2024
 ------
 ### Events
 ------
-- Flag Day: 
-  - Annual event celebrated on June 14th 
-  - Commemorates the adoption of the flag of the United States, which happened on June 14, 1777 
-  - Not an official federal holiday, but proclaimed by the president every year
-  - Often marked by displaying the American flag at homes and public buildings 
-  - Many communities and organizations hold Flag Day ceremonies
-  - Some places, such as Fairfield, Washington, hold parades and
+- **Flag Day**: June 14th is officially Flag Day in the United States, which commemorates the adoption of the flag of the United States on June 14, 1777. While not a federal holiday, Flag Day is observed on the 14th, and related events or celebrations sometimes spill over into the next day, June 15th.
+- **Juneteenth celebrations**: Although Juneteenth is officially on June 19th, many communities may start early celebrations and events
 ### Positive Qoute
 ------
-"The sun always shines above the clouds, keep flying high and let your spirit soar 🌤️✨🚀"
+"🌟 Believe in the magic of new beginnings and trust the journey, even when the path is unclear. Keep shining, for your light is a beacon of hope in the world. 🚀💖"
