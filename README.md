@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- **Juneteenth (June 19th)**: While not on June 16th, the closest notable event to this date in the United States is Juneteenth, which is observed on June 19. It commemorates the emancipation of enslaved African Americans in the United States and is also known as Freedom Day or Emancipation Day. 
-
-Please note that if you're asking for events specifically occurring on June 16 in any given year, it may vary year to year. However
+- Juneteenth Independence Day (also known as Freedom Day or Emancipation Day): While the actual date for Juneteenth is June 19th, events and celebrations often start or take place around that date, including June 16th. Juneteenth commemorates the announcement of the abolition of slavery in the U.S. state of Texas in 1865, and more broadly, the emancipation of enslaved African Americans throughout the former Confederacy.
+  
+- Bloomsday: Celebrated
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new canvas for your dreams 🌠. Paint your life with bold strokes of positivity ✨ and joy 😊!"
+"Every sunrise is an invitation to brighten someone's day with kindness and a smile 😊🌅 Let your light shine and spread joy wherever you go! ✨🤗"
