@@ -1,10 +1,12 @@
-### 📅 Sunday, 16 June, 2024
+### 📅 Monday, 17 June, 2024
 ------
 ### Events
 ------
-- Juneteenth Independence Day (also known as Freedom Day or Emancipation Day): While the actual date for Juneteenth is June 19th, events and celebrations often start or take place around that date, including June 16th. Juneteenth commemorates the announcement of the abolition of slavery in the U.S. state of Texas in 1865, and more broadly, the emancipation of enslaved African Americans throughout the former Confederacy.
-  
-- Bloomsday: Celebrated
+As of my last update in early 2023, one notable event that is annually observed on June 17th in the United States is Juneteenth, also known as Juneteenth Independence Day or Freedom Day. Here are bullet points regarding this event:
+
+- **Juneteenth National Independence Day**: 
+  - It commemorates the end of slavery in the United States.
+  - The date marks the day in 1865 when Union soldiers, led by Major General Gordon Granger, landed
 ### Positive Qoute
 ------
-"Every sunrise is an invitation to brighten someone's day with kindness and a smile 😊🌅 Let your light shine and spread joy wherever you go! ✨🤗"
+"Chase the sunshine 🌞 and let your dreams soar to the sky! 🚀 Remember, every day is a new canvas to paint your masterpiece of happiness. 🎨😊"
