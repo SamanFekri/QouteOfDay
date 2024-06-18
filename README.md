@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- **Juneteenth National Independence Day**: This is a federal holiday in the United States commemorating the emancipation of enslaved African Americans. While Juneteenth is celebrated on June 19th, if it falls on a Sunday, the following Monday would be the observed holiday, which could be June 18th in certain years. It is marked with celebrations, picnics, and reflection on the history of slavery and emancipation in the United States.
+As of my last update in early 2023, there is not a single event that can be definitively assigned to June 18th of every year in the USA; however, June 18th may coincide with various local events, historical anniversaries, or observances that vary from year to year. Here are potential events or observances that could fall on June 18th:
 
-- **Father's Day**: In the
+- **Father's Day:** Although not fixed to June 18th, Father's Day in the United
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is an invitation to brighten someone's day with kindness and a smile 😊. Spread joy like confetti! 🎉"
+"Every sunrise brings a new beginning and endless possibilities. Embrace the day with an open heart and a joyful spirit! 😊🌅✨"
