@@ -1,10 +1,11 @@
-### 📅 Tuesday, 18 June, 2024
+### 📅 Wednesday, 19 June, 2024
 ------
 ### Events
 ------
-As of my last update in early 2023, there is not a single event that can be definitively assigned to June 18th of every year in the USA; however, June 18th may coincide with various local events, historical anniversaries, or observances that vary from year to year. Here are potential events or observances that could fall on June 18th:
-
-- **Father's Day:** Although not fixed to June 18th, Father's Day in the United
+- Juneteenth (also known as Freedom Day, Emancipation Day, or Juneteenth Independence Day)
+  - Commemorates the emancipation of enslaved African Americans in the United States
+  - Specifically marks the date in 1865 when Union Army General Gordon Granger proclaimed freedom for slaves in Texas, the last Confederate state with institutional slavery
+  - Became a federal holiday when President Joe Biden signed the Juneteenth National Independence Day Act into law on June 17, 
 ### Positive Qoute
 ------
-"Every sunrise brings a new beginning and endless possibilities. Embrace the day with an open heart and a joyful spirit! 😊🌅✨"
+"Every sunrise 🌅 is an invitation to embrace a fresh start and spread kindness like confetti! 🎉 Believe in the magic of new beginnings. ✨🌱"
