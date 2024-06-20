@@ -1,13 +1,10 @@
-### 📅 Wednesday, 19 June, 2024
+### 📅 Thursday, 20 June, 2024
 ------
 ### Events
 ------
-- Juneteenth (June 19th)
-  - Celebration of the emancipation of enslaved African Americans
-  - Commemorates the enforcement of the Emancipation Proclamation in Texas on June 19, 1865
-  - Symbolizes the end of slavery in the United States
-  - Recognized as a state holiday or special day of observance in 47 of the 50 states, plus the District of Columbia
-  - Traditions include public readings of the Em
+- Father's Day: June 20th is celebrated as Father's Day on the years when it falls on the third Sunday of June. It's an occasion to honor fathers and celebrate fatherhood, paternal bonds, and the influence of fathers in society. People often give gifts, cards, and spend quality time with their fathers or father figures.
+
+- West Virginia Day: If June 20th falls within the observed dates, West Virginia Day commemorates the state's admission to the Union in 186
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new page in the book of life, write it with joy and gratitude 🙏. Embrace your journey with a heart full of hope and kindness 💖."
+"Every day is a fresh start, an opportunity to bloom. Embrace the sunshine within you and let your soul flourish! 🌞🌸💪"
