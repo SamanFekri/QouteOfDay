@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- Father's Day: June 20th is celebrated as Father's Day on the years when it falls on the third Sunday of June. It's an occasion to honor fathers and celebrate fatherhood, paternal bonds, and the influence of fathers in society. People often give gifts, cards, and spend quality time with their fathers or father figures.
+- **Summer Solstice**: June 20th can often be the date of the summer solstice in the Northern Hemisphere, the longest day of the year, though the exact date can vary between June 20th and June 22nd. On the summer solstice, there are various festivals, celebrations, and events to welcome summer.
 
-- West Virginia Day: If June 20th falls within the observed dates, West Virginia Day commemorates the state's admission to the Union in 186
+- **World Refugee Day**: This is an international day designated by the United Nations to honor refugees around the globe. It falls each year on June 20th
 ### Positive Qoute
 ------
-"Every day is a fresh start, an opportunity to bloom. Embrace the sunshine within you and let your soul flourish! 🌞🌸💪"
+"Chase your dreams with the wings of passion 🚀, and let no obstacle deter your flight 🌟. Embrace every moment with a heart full of gratitude 🙏 and a smile that spreads joy 😊."
