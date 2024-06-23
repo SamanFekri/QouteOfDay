@@ -2,9 +2,15 @@
 ------
 ### Events
 ------
-- Olympic Day: Celebrated on June 23rd, Olympic Day commemorates the birth of the modern Olympic Games. It promotes the Olympic values and encourages people to get active. In the USA, various sporting events and activities may be organized by the US Olympic Committee and other sporting organizations.
+As of my last knowledge update in March 2023, specific events scheduled for June 23, 2023, were not listed. However, annually recurring events that sometimes fall on June 23rd in the United States might include:
 
-Please note that while Olympic Day is a recurring event, specific events in the USA on any given June 23rd may vary from year to year. Local events, festivals, and other celebrations may also occur on
+- Local festivals and fairs
+- Music or art festivals
+- Farmers markets
+- Sports events (such as baseball games, running races, or local tournaments)
+- Cultural or heritage observances
+- Charity events or fundraisers
+- Outdoor movie nights or
 ### Positive Qoute
 ------
-"Embrace the beauty of your journey and let your spirit soar! 🌟🚀💖 Keep aiming high, and remember that each step forward is a victory in itself. 🌈✨🏆 Believe in yourself; you've got this! 🌟🙌😊"
+"Believe in the magic of new beginnings ✨🌟 Keep planting seeds of hope and watch them grow into a garden of happiness 🌱😊"
