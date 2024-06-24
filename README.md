@@ -2,10 +2,11 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff in early 2023, June 24th does not have a fixed annual event that is consistently observed across the United States. However, there could be various local events, festivals, or activities planned for that date in different communities. Here are a few types of events that might occur on June 24th in the USA:
+As of my knowledge cutoff date in early 2023, one of the notable events that is recognized annually on June 24th in the United States is:
 
-- Local festivals: Some towns may have local cultural or food festivals on that date.
-- Concerts: Music events or concerts could be scheduled for
+- Saint John's Day: Also known as the Feast of Saint John the Baptist, this is a Christian holiday not specific to the U.S. but celebrated by some Christian denominaries in America. The feast day falls near the time of the summer solstice and is intended to celebrate the birth of John the Baptist.
+
+Keep in mind that June
 ### Positive Qoute
 ------
-"Embrace the beauty of your journey, and let your heart be the compass guiding you to joy 🧭💖🌟."
+"Embrace each day with a grateful heart and a curious mind, for life's beauty unfolds in unexpected ways. 🌟 Keep shining and spreading joy like confetti! 🎉🌈✨"
