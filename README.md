@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- **Pride Month Celebrations**: While June is recognized as Pride Month in the United States, commemorating the anniversary of the Stonewall Riots, various events and parades often continue into the latter part of the month, with possible celebrations or related events on June 25.
+- **Pride Month Celebrations**: June is recognized as Pride Month in the U.S., and while many events occur throughout the month, some celebrations, parades, and gatherings may take place on June 25th, particularly in cities with weekend-focused schedules.
 
-- **BET Awards**: Historically, the BET Awards are held in late June. While the exact date may vary each year, if it falls on June 25, it would be a significant event celebrating
+- **BET Awards**: Although the exact date can vary, the Black Entertainment Television network hosts its annual awards show around this time. If the 25th of June falls on a date close to the scheduled ceremony, it might be
 ### Positive Qoute
 ------
-"Every day is a new canvas to paint your masterpiece. 🎨 Embrace each stroke with passion and let your colors shine! 🌟✨"
+"Chase your dreams like the sky chases the stars, limitless and bright. ✨🚀 Keep shining, no matter the night. 🌟💫"
