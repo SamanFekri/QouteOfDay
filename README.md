@@ -2,9 +2,11 @@
 ------
 ### Events
 ------
-As of my knowledge cutoff date in early 2024, there is no single event that is universally observed or celebrated every year on June 26th in the United States. However, June 26th has been the date of various historical events, significant Supreme Court decisions, and other happenings in different years. Below are a few notable occurrences that have taken place on June 26th in the United States:
+- Pride Day Celebrations: June 26 is often recognized as a day of LGBTQ+ pride in many cities across the United States, with parades, marches, and other events celebrating the LGBTQ+ community and advocating for equal rights.
 
-- **Stonewall Riots Anniversary**: June 28, 1969
+- Anniversary of the Supreme Court Decision in Obergefell v. Hodges: June 26, 2015, the U.S. Supreme Court ruled that state-level bans on same-sex marriage were unconstitutional, effectively legalizing same-sex marriage nationwide.
+
+Please note that
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and embrace every opportunity with an open heart. 🌟✨ Keep shining, and let your positivity light up the world! 🌈💖"
+"Every sunrise 🌅 is a new page in the book of life, write it with joy, love, and a sprinkle of adventure! ✨💖🚀"
