@@ -1,10 +1,10 @@
-### 📅 Tuesday, 25 June, 2024
+### 📅 Wednesday, 26 June, 2024
 ------
 ### Events
 ------
-- **Pride Month Celebrations**: June is recognized as Pride Month in the U.S., and while many events occur throughout the month, some celebrations, parades, and gatherings may take place on June 25th, particularly in cities with weekend-focused schedules.
+As of my knowledge cutoff date in early 2024, there is no single event that is universally observed or celebrated every year on June 26th in the United States. However, June 26th has been the date of various historical events, significant Supreme Court decisions, and other happenings in different years. Below are a few notable occurrences that have taken place on June 26th in the United States:
 
-- **BET Awards**: Although the exact date can vary, the Black Entertainment Television network hosts its annual awards show around this time. If the 25th of June falls on a date close to the scheduled ceremony, it might be
+- **Stonewall Riots Anniversary**: June 28, 1969
 ### Positive Qoute
 ------
-"Chase your dreams like the sky chases the stars, limitless and bright. ✨🚀 Keep shining, no matter the night. 🌟💫"
+"Believe in the magic of new beginnings and embrace every opportunity with an open heart. 🌟✨ Keep shining, and let your positivity light up the world! 🌈💖"
