@@ -1,12 +1,10 @@
-### 📅 Wednesday, 26 June, 2024
+### 📅 Thursday, 27 June, 2024
 ------
 ### Events
 ------
-- Pride Day Celebrations: June 26 is often recognized as a day of LGBTQ+ pride in many cities across the United States, with parades, marches, and other events celebrating the LGBTQ+ community and advocating for equal rights.
-
-- Anniversary of the Supreme Court Decision in Obergefell v. Hodges: June 26, 2015, the U.S. Supreme Court ruled that state-level bans on same-sex marriage were unconstitutional, effectively legalizing same-sex marriage nationwide.
-
-Please note that
+- **PTSD Awareness Day:** Established by the United States Senate, June 27th is designated as National Post-Traudmatic Stress Disorder Awareness Day. The day aims to promote awareness about PTSD and its effect on the lives of those affected by this mental health condition.
+- **National HIV Testing Day:** Also observed on June 27th, this day serves as a reminder for individuals to get tested for HIV, know their status, and get linked to care and treatment.
+- **National Sunglasses
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new page in the book of life, write it with joy, love, and a sprinkle of adventure! ✨💖🚀"
+"Every day is a fresh start, embrace it with a smile 😊, and remember that the sun will shine for you if you choose to see the light 🌞. Keep glowing and growing! 🌱✨"
