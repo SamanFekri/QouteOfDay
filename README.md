@@ -1,10 +1,12 @@
-### 📅 Thursday, 27 June, 2024
+### 📅 Friday, 28 June, 2024
 ------
 ### Events
 ------
-- **Helen Keller Day:** Helen Keller Day is an observance that commemorates the birth of Helen Keller, a noted advocate for the blind and deaf, on June 27, 1880. While not a public holiday with widespread events, various organizations dedicated to supporting individuals with vision and hearing impairments may hold special programs or awareness campaigns on this day.
+- **Stonewall Riots Anniversary (1969)**: June 28 marks the anniversary of the Stonewall riots, a pivotal event in the fight for LGBTQ+ rights. It is commemorated in various ways, including pride events and remembrance activities.
 
-- **National HIV Testing Day:** June 27 is also recognized as National HIV Testing Day in the United States. It is an initiative
+- **National Paul Bunyan Day**: This is a fun, unofficial national day celebrating the legendary lumberjack figure in American folklore, Paul Bunyan.
+
+Please note that specific annual events may vary each year, and some may not occur
 ### Positive Qoute
 ------
-"Embrace each day with a heart full of gratitude and a smile that radiates kindness 🌟🌼😊 Spread love like confetti and watch the world bloom before your eyes! 🌸💖✨"
+"Every sunrise 🌅 is a new page in the book of life, write it with joy and positivity! ✨💖 Be the author of your own happiness. 📖😊"
