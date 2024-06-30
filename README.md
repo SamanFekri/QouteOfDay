@@ -1,10 +1,12 @@
-### 📅 Saturday, 29 June, 2024
+### 📅 Sunday, 30 June, 2024
 ------
 ### Events
 ------
-- **NBA Draft:** While the exact date can vary slightly each year, the NBA Draft often occurs around the end of June. Prospective players from colleges, as well as international athletes, are drafted to NBA teams. The 2023 NBA Draft is currently scheduled for June 22, 2023, but if there were changes, it's possible it could be moved to June 29.
+- Fiscal Year End for Some US States: June 30 marks the end of the fiscal year for many U.S. states, prompting a flurry of legislative activity to pass budgets and financial legislation.
+  
+- Social Security Payment Schedule: For some Social Security beneficiaries, June 30 may be a scheduled date for benefit payments, particularly if the usual payment date falls on a holiday or weekend.
 
-Please note that the scheduling for events can change, and it's essential to verify with an updated
+- Tax Deadlines: Depending on the year and circumstances, certain tax-related deadlines for individuals and businesses may fall on
 ### Positive Qoute
 ------
-"Chase your dreams like the sun pursues the horizon—relentlessly and full of hope. 🌅✨ Never let go of your sparkle, for it lights the path to greatness! 🚀💖"
+"Every day is a new canvas to paint upon. Make sure your picture is full of life and happiness, and at the end of the day, you don’t look at it and wish you had painted something different. 🎨😊✨"
