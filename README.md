@@ -2,10 +2,9 @@
 ------
 ### Events
 ------
-As of my last update in early 2023, specific events scheduled for July 2nd in any given year may vary, but here are some types of events that typically occur in the United States on that date:
-
-- Independence Day celebrations: Although July 4th is the official holiday, many communities may start celebrating early with festivals, parades, and fireworks.
-- Major League Baseball (MLB) games: Baseball is in full swing in July, and there are likely to be several MLB
+- Independence Day (observed) if July 4th falls on a Tuesday; federal employees might get Monday, July 3rd, as a holiday, but this is not a recurring event on July 2nd itself.
+- Essence Festival of Culture: Typically begins in early July; it's a multi-day event celebrating African American music and culture that might start around July 2nd, depending on the year.
+- Major League Baseball (MLB) games: Regular season games are played throughout
 ### Positive Qoute
 ------
-"Every day is a new beginning, a chance to sparkle and shine 🌟 Embrace it with an open heart and a joyful spirit 😊 Let positivity be your guiding light 💡"
+"Every sunrise brings new opportunities to shine, just like you! Embrace each moment with joy and gratitude 🌅✨🌟"
