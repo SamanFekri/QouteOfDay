@@ -2,11 +2,18 @@
 ------
 ### Events
 ------
-- Fireworks displays: Various cities across the country host spectacular fireworks shows on the eve of Independence Day.
-- Parades: Many towns and cities have parades featuring marching bands, floats, and military units.
-- Concerts: Free or ticketed concerts with patriotic themes or popular music acts are common.
-- Festivals and Fairs: Outdoor festivals, state fairs, and street fairs often include food vendors, games, and rides.
-- Family Reunions and Picnics: People
+- Independence Day celebrations (July 4th is the official Independence Day, so events often begin on July 3rd as part of extended celebrations)
+  * Fireworks displays
+  * Parades
+  * Concerts 
+  * Family gatherings and barbecues
+  * Special events at public parks and historical sites
+
+- Major league baseball games
+  * Teams often have games on July 3rd with post-game fireworks and patriotic themes
+
+- Special sales and promotions
+  * Retail
 ### Positive Qoute
 ------
-"Every sunrise is a new page in your story 🌅✨ Embrace it with an open heart and a daring spirit! 🚀💖"
+"Embrace each day with an open heart and a joyful spirit! The world is your canvas, paint it with your brightest colors 🌟🎨😊"
