@@ -2,9 +2,13 @@
 ------
 ### Events
 ------
-As of my last knowledge update in 2023, specific events that are scheduled to happen on July 6th in the USA can vary from year to year. However, here are a few types of events that might typically occur on that date in any given year:
+- Independence Day federal holiday observed (actual date: July 4th)
+  - Post-celebrations may continue through the weekend if the 4th falls close to it
+  - Potential for ongoing local festivals, parades, and fireworks displays
+  - Some communities may have rescheduled events due to weather or planning reasons
 
-- **Independence Day holiday weekend celebrations:** Since July 4th is a major national holiday in the United States, the weekend closest to it often has various events like parades, festivals, and fireworks displays continuing the celebration of
+- Nathan's Famous International Hot Dog Eating Contest (Coney Island, NY)
+  - Although traditionally held on July 4th, related events or rebroadcast
 ### Positive Qoute
 ------
-"Every sunrise brings new opportunities; embrace each moment with a grateful heart. 😊🌅✨"
+"Every sunrise 🌅 is a new invitation to brighten someone's day. Spread kindness like confetti! 🎉✨"
