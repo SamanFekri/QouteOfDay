@@ -2,9 +2,9 @@
 ------
 ### Events
 ------
-- **Independence Day (Observed)**: Although Independence Day is celebrated on the 4th of July, if the 4th falls on a weekend, the following Monday or preceding Friday may be observed as a holiday by various institutions. This could result in related events taking place on July 7th if it coincides with such an observance.
+- **Independence Day Celebrations (Observed)**: Although Independence Day is officially on July 4, when the holiday falls close to a weekend, some celebrations might be extended or observed on July 7, especially if it falls on a Friday or a Monday. This can include parades, fireworks, and public gatherings.
 
-- **Nathan's Hot Dog Eating Contest**: Typically held on July 4th at Coney Island in New York, if for any
+- **Major League Baseball (MLB) Games**: The MLB season is in full swing in July, and you can expect multiple baseball games across the country on July 
 ### Positive Qoute
 ------
-"Embrace the beauty of life's journey with a smile on your face and love in your heart. 🌟🛤️😊❤️"
+"Chase your dreams with unwavering faith 🚀 and watch the universe conspire to help you shine ⭐️💫. Embrace your journey with a grateful heart ❤️ and positivity will light your path 🌟✨."
