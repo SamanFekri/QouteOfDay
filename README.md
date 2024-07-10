@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-- **Major League Baseball (MLB)**: July 10 often falls during the MLB season, so numerous regular-season baseball games typically take place across various stadiums in the USA.
+- **Major League Baseball (MLB) Games**: On July 10, several MLB teams would typically be playing regular-season games.
 
-- **Concerts and Live Performances**: With the summer season in full swing, July 10 is a common date for concerts, music festivals, and live performances by various artists in different cities.
+- **Local Festivals and Fairs**: Various towns and cities might host their own local festivals, fairs, or community events on this day.
 
-- **Local Festivals**: Depending on the year and location, various local festivals and fairs may take place on
+- **Concerts**: Music concerts by both major and indie artists at various venues could be taking place.
+
+- **Outdoor Movies and Concerts in Parks**: Many communities host free movie nights or concerts in local parks
 ### Positive Qoute
 ------
-"Every sunrise 🌅 is a new opportunity to shine. Embrace it with open arms and a grateful heart ❤️. Be the reason someone smiles today 😊!"
+"Let your smile change the world, but don't let the world change your smile 😊🌍✨"
