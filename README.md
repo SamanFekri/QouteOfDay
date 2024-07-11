@@ -2,9 +2,11 @@
 ------
 ### Events
 ------
-- **7-Eleven Day (Free Slurpee Day)**: July 11th (7/11) is famously known as 7-Eleven Day, where participating 7-Eleven convenience stores across the United States give away free Slurpees to celebrate the company's anniversary. This event is a promotional activity to thank customers for their patronage.
-  
-- **All-Star Game**: Major League Baseball's All-Star Game often falls in mid-July, and while the specific
+Here are some notable events in the USA that take place on July 11:
+
+- **Free Slurpee Day at 7-Eleven**: Since 2002, 7-Eleven has celebrated its birthday on July 11 by offering free Slurpees to customers. This promotion typically lasts from 11 a.m. to 7 p.m.
+
+- **National Blueberry Muffin Day**: Celebrated annually, this day is dedicated to enjoying and baking blueberry muffins, one of America's
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings and embrace life with open arms. Every day is a fresh start to create your own sunshine! 🌟🌅🚀"
+"🌟 Embrace the journey, every step takes you closer to your dreams! 🚀💖"
