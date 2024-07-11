@@ -2,11 +2,15 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that take place on July 11:
+- **Event:** National Blueberry Muffin Day
+  - **Date:** July 11
+  - **Significance:** A day dedicated to celebrating and enjoying blueberry muffins, a popular baked good in the United States.
+  
+- **Event:** World Population Day
+  - **Date:** July 11
+  - **Significance:** While this is a global observance, it is also recognized in the USA to raise awareness about global population issues and their impact on development and the environment.
 
-- **Free Slurpee Day at 7-Eleven**: Since 2002, 7-Eleven has celebrated its birthday on July 11 by offering free Slurpees to customers. This promotion typically lasts from 11 a.m. to 7 p.m.
 
-- **National Blueberry Muffin Day**: Celebrated annually, this day is dedicated to enjoying and baking blueberry muffins, one of America's
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, every step takes you closer to your dreams! 🚀💖"
+"Embrace the journey, 🌄 shine bright like the stars, ✨ and let your heart lead the way! 💖"
