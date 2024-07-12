@@ -1,13 +1,17 @@
-### 📅 Thursday, 11 July, 2024
+### 📅 Friday, 12 July, 2024
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on July 11:
+- **Event**: National Simplicity Day
+  - **Date**: July 12
+  - **Description**: Celebrated in honor of transcendentalist writer Henry David Thoreau, born on July 12, 1817.
+  - **Purpose**: Encourages people to embrace a simpler lifestyle and focus on the essentials.
 
-- **1776**: Captain James Cook begins his third voyage.
-- **1804**: Vice President Aaron Burr fatally wounds Alexander Hamilton in a duel in Weehawken, New Jersey. Hamilton dies the next day.
-- **1914**: Babe Ruth makes his Major League Baseball debut, playing for the Boston Red Sox.
-- **1972**: The first game of the World Chess Championship between
+- **Event**: Pecan Pie Day
+  - **Date**: July 12
+  - **Description**: A day
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, trust the process, and shine bright! ✨"
+"Embrace the journey, not the destination. 🌟 Every step forward is a step towards greatness. 💪✨"
+
+
