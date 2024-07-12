@@ -2,16 +2,17 @@
 ------
 ### Events
 ------
-- **Event**: National Simplicity Day
-  - **Date**: July 12
-  - **Description**: Celebrated in honor of transcendentalist writer Henry David Thoreau, born on July 12, 1817.
-  - **Purpose**: Encourages people to embrace a simpler lifestyle and focus on the essentials.
+Certainly! Here are some notable events in the USA that occur on July 12:
 
-- **Event**: Pecan Pie Day
-  - **Date**: July 12
-  - **Description**: A day
+- **Pecan Pie Day**:
+  - A day dedicated to celebrating one of America's favorite desserts, pecan pie.
+  - Often marked by baking or enjoying pecan pie with friends and family.
+  
+- **Different National Observances**:
+  - Various lesser-known national observances fall on July 12, which might be recognized by smaller groups or regions.
+  
+- **Historical Events**:
+  -
 ### Positive Qoute
 ------
-"Embrace the journey, not the destination. 🌟 Every step forward is a step towards greatness. 💪✨"
-
-
+"🌟 Every day may not be good, but there's something good in every day. 🌈✨"
