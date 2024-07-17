@@ -2,13 +2,14 @@
 ------
 ### Events
 ------
-Certainly! Here are some significant events in the USA that have occurred on July 17:
+Certainly! Here are some events that have occurred in the USA on July 17th over the years:
 
-- **Disneyland Opens (1955)**: The famous Disneyland theme park in Anaheim, California, officially opened to the public.
-  
-- **TWA Flight 800 Crash (1996)**: Trans World Airlines Flight 800 exploded and crashed into the Atlantic Ocean near East Moriches, New York, shortly after takeoff, resulting in the deaths of all 230 passengers and crew on board.
+- **Disneyland Opens in California (1955)**
+  - The original Disneyland theme park opened to the public in Anaheim, California.
+  - Created by Walt Disney, it became an iconic amusement park and a significant cultural landmark.
 
-- **
+- **TWA Flight 800 Tragedy (1996)**
+  - Trans World Airlines Flight 800 exploded and crashed into the Atlantic Ocean near East
 ### Positive Qoute
 ------
-"Embrace the journey, 🌍 trust the process, and let your light shine bright! ✨😊"
+"🌟 Every day is a new opportunity to shine brighter than before! ✨ Keep moving forward with hope and joy. 🌈"
