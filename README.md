@@ -1,15 +1,13 @@
-### 📅 Wednesday, 17 July, 2024
+### 📅 Thursday, 18 July, 2024
 ------
 ### Events
 ------
-Certainly! Here are some events that have occurred in the USA on July 17th over the years:
+Sure, here is an event in the USA that occurs on July 18th:
 
-- **Disneyland Opens in California (1955)**
-  - The original Disneyland theme park opened to the public in Anaheim, California.
-  - Created by Walt Disney, it became an iconic amusement park and a significant cultural landmark.
-
-- **TWA Flight 800 Tragedy (1996)**
-  - Trans World Airlines Flight 800 exploded and crashed into the Atlantic Ocean near East
+- **Nelson Mandela International Day**:
+  - While Nelson Mandela International Day is observed globally, it is also recognized in the USA.
+  - This day marks Nelson Mandela's birthday, celebrated on July 18th each year.
+  - The day calls for individuals to make a difference in their communities by dedicating 67 minutes to volunteer work or community service, symbolizing the 67 years Nelson Mandela devoted
 ### Positive Qoute
 ------
-"🌟 Every day is a new opportunity to shine brighter than before! ✨ Keep moving forward with hope and joy. 🌈"
+"Embrace today with a smile because your potential is limitless! 🌟😊✨"
