@@ -1,16 +1,14 @@
-### 📅 Thursday, 18 July, 2024
+### 📅 Friday, 19 July, 2024
 ------
 ### Events
 ------
-Certainly! Here are some events that typically happen in the USA on July 18:
+Certainly! Here are some notable events in the USA that have occurred or are celebrated on July 19:
 
-- **Nelson Mandela International Day**: While primarily observed globally, various American organizations and communities participate in events and activities to honor Nelson Mandela's contributions to peace and freedom.
-  
-- **Major League Baseball**: Regular season games are often scheduled around mid-July.
-
-- **Summer Concerts and Festivals**: Various cities across the USA host summer music festivals and concerts around this time.
-
-- **Local Fairs
+- **Women's Rights Convention in Seneca Falls** (1848)
+  - The first women's rights convention was held in Seneca Falls, New York, on July 19-20, 1848.
+  - Organized by Elizabeth Cady Stanton and Lucretia Mott.
+  - Considered the launch of the women's suffrage movement in the United States.
+  - The Declaration of
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day. 🌟✨ Keep shining, beautiful soul! 🌺💖"
+"Embrace the journey, for every step brings you closer to your dreams! 🚶‍♂️🌟✨"
