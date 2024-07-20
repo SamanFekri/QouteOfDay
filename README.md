@@ -2,14 +2,16 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on July 20:
+Sure! Here are a couple of notable events that have happened in the USA on July 20th:
 
-- **1969**: Apollo 11 Moon Landing
-  - Neil Armstrong and Buzz Aldrin become the first humans to walk on the moon.
-  - Armstrong famously declares, "That's one small step for man, one giant leap for mankind."
-
-- **1976**: Viking 1 Lands on Mars
-  - NASA's Viking 1 becomes the first American spacecraft to successfully land on Mars and send back images
+### Historic Events:
+- **1969:**
+  - **Apollo 11 Moon Landing:** 
+    - *Astronauts Neil Armstrong and Buzz Aldrin became the first humans to walk on the moon.*
+    - *Neil Armstrong famously said, "That's one small step for man, one giant leap for mankind."*
+    
+- **1976:**
+  - **Viking 1
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 You are capable of amazing things! 💪✨"
+"Every day is a new opportunity to shine bright and spread joy! ✨😊🌞💫"
