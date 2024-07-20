@@ -1,12 +1,15 @@
-### 📅 Friday, 19 July, 2024
+### 📅 Saturday, 20 July, 2024
 ------
 ### Events
 ------
-Sure, here are some notable events in the USA that occur on July 19:
+Here are some notable events in the USA that have occurred on July 20:
 
-- **National Daiquiri Day**: A day to celebrate the classic rum-based cocktail, often enjoyed by bartenders and cocktail enthusiasts.
-- **National Hot Dog Day**: Celebrated on the third Wednesday in July, this day pays homage to the iconic American hot dog, with many vendors offering special deals.
-- **1848 - Seneca Falls Convention**: The first women's rights convention in the United States
+- **1969**: Apollo 11 Moon Landing
+  - Neil Armstrong and Buzz Aldrin become the first humans to walk on the moon.
+  - Armstrong famously declares, "That's one small step for man, one giant leap for mankind."
+
+- **1976**: Viking 1 Lands on Mars
+  - NASA's Viking 1 becomes the first American spacecraft to successfully land on Mars and send back images
 ### Positive Qoute
 ------
-"Embrace the 🌟magic🌟 within you and let your dreams 🌈soar🌈 to new heights! 🚀✨"
+"Believe in yourself and all that you are. 🌟 You are capable of amazing things! 💪✨"
