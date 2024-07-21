@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Sure! Here are some notable events that have happened on July 21st in the USA:
+Certainly! Here are some events that typically happen or have happened on July 21 in the United States:
 
-- **1969**: Neil Armstrong and Edwin "Buzz" Aldrin ended their 21-hour moonwalk and lifted off from the surface of the moon in the Apollo 11 lunar module.
-- **1873**: Jesse James and the James-Younger Gang committed the first successful train robbery in the American West, taking place in Adair, Iowa.
+- **National Junk Food Day**: A fun, unofficial observance where people enjoy their favorite junk foods.
 
-These are just a couple of significant events
+- **First Battle of Bull Run (1861)**: The first major battle of the American Civil War took place on this date in Manassas, Virginia.
+
+- **Neil Armstrong's Moon Walk (1969)**: Although the Apollo 11 landing happened on July 20,
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 You have the power to light up the world. 🌎💫"
+"🌟 Every day is a new opportunity to shine brighter than yesterday! ✨ Keep aiming high! 🚀"
