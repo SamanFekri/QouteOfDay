@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events in the USA that have occurred on July 22:
+Certainly! Here are some notable events that have occurred on July 22 in the USA:
 
-- **1933**: Wiley Post becomes the first person to fly solo around the world.
-- **2003**: Members of the National Convention of the Democratic Party vote to make Boston the site of their 2004 presidential nominating convention.
-- **2013**: The city of Detroit files for bankruptcy, marking the largest municipal bankruptcy filing in U.S. history at that time.
-
-These are just
+- **1991**: Jeffrey Dahmer is arrested in Milwaukee, Wisconsin. Dahmer, later known as the Milwaukee Cannibal, was a serial killer responsible for the murders of 17 young men and boys from 1978 to 1991.
+- **2006**: The first-ever Twitter message ("just setting up my twttr") was sent by co-founder Jack Dorsey.
+-
 ### Positive Qoute
 ------
-"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
+"Believe in the magic within you! 🌟✨ You are capable of amazing things! 💪😊"
