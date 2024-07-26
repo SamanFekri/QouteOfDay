@@ -2,12 +2,12 @@
 ------
 ### Events
 ------
-Certainly! Below are some events that take place on July 26 in the USA:
+Certainly! Here are some notable events in the USA that have occurred on July 26:
 
-- **National All or Nothing Day**: A day to take risks and try things you’ve always wanted to do.
-- **National Aunt and Uncle's Day**: A day to honor and appreciate aunts and uncles.
-- **One Voice Day**: A global event where people recite the Universal Peace Covenant in unison.
-- **Americans with Disabilities Act Anniversary**: Marking the signing of
+- **1948**: President Harry S. Truman signs Executive Order 9981, desegregating the armed forces.
+- **1952**: Puerto Rico becomes a self-governing commonwealth of the United States.
+- **1990**: The Americans with Disabilities Act (ADA) is signed into law by President George H.W. Bush, prohibiting discrimination based on disability.
+- **
 ### Positive Qoute
 ------
-"Believe in the magic within you! 🌟✨ You are capable of incredible things. 🚀💖"
+"Embrace the journey, 🌟 chase the dreams, and spread kindness everywhere you go! 💖✨"
