@@ -2,15 +2,13 @@
 ------
 ### Events
 ------
-Certainly! Here are some noteworthy events in the USA that occur on July 28th:
+Certainly! Here are some notable events in the USA that have occurred on July 28:
 
-- **Buffalo Soldiers Day**: 
-  - Commemorates the formation of the first regular army regiments comprising African American soldiers in 1866.
-  - Recognizes the contributions and history of these regiments in the American military.
+- **1866**: The Metric Act of 1866 was signed into law by President Andrew Johnson. This allowed the use of the metric system for commerce in the United States.
   
-- **National Waterpark Day**: 
-  - Celebrates waterparks across the country.
-  - Encourages people to visit and enjoy water-based attractions and
+- **1914**: World War I officially began as Austria-Hungary declared war on Serbia. While not an event exclusive to the USA, it had significant implications for the country in the years to follow.
+
+-
 ### Positive Qoute
 ------
-"🌟 Embrace every challenge as an opportunity to grow! 💪✨"
+"Embrace the journey, 🌟 trust the process, and watch yourself bloom. 🌸✨"
