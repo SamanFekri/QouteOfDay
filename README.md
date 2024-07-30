@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events in the USA that happened on July 30th:
+Certainly! Here are some notable events that happen or have happened in the USA on July 30:
 
-- **1965 - Passage of Medicare and Medicaid:** President Lyndon B. Johnson signed the Social Security Act of 1965, which established Medicare and Medicaid, providing health insurance to millions of elderly and low-income Americans.
+- **National Cheesecake Day**: Celebrated annually in the United States, it is a day dedicated to enjoying and appreciating cheesecake in all its varieties.
   
-- **1975 - Jimmy Hoffa Disappearance:** Former Teamsters Union leader Jimmy Hoffa disappeared from the parking lot of the Machus Red Fox Restaurant in Bloomfield Township,
+- **National Whistleblower Day**: Recognizes and honors the contributions of whistleblowers who have exposed wrongdoing and fraud in various sectors.
+  
+- **In 1965, President Lyndon B. Johnson signed Medicare into law**
 ### Positive Qoute
 ------
-"Believe in the magic within you! 🌟✨ You have the power to create your own sunshine. ☀️🌻"
+"Embrace the journey and cherish every moment 🌟🌈✨. Your potential is endless! 💪😊🚀"
