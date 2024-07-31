@@ -1,14 +1,19 @@
-### 📅 Tuesday, 30 July, 2024
+### 📅 Wednesday, 31 July, 2024
 ------
 ### Events
 ------
-Certainly! Here are some notable events that happen or have happened in the USA on July 30:
+Sure, here are some notable events that happen in the USA on July 31:
 
-- **National Cheesecake Day**: Celebrated annually in the United States, it is a day dedicated to enjoying and appreciating cheesecake in all its varieties.
-  
-- **National Whistleblower Day**: Recognizes and honors the contributions of whistleblowers who have exposed wrongdoing and fraud in various sectors.
-  
-- **In 1965, President Lyndon B. Johnson signed Medicare into law**
+- **National Avocado Day**:
+  - Celebrated to recognize the nutritional benefits and versatility of avocados.
+
+- **National Mutt Day**:
+  - Established to raise awareness about mixed breed dogs in shelters and promote their adoption.
+
+- **Harry Potter’s Birthday**:
+  - Celebrated by fans of the Harry Potter series as it is the fictional character's birthday.
+
+These events may vary in recognition and
 ### Positive Qoute
 ------
-"Embrace the journey and cherish every moment 🌟🌈✨. Your potential is endless! 💪😊🚀"
+"Every day is a new beginning. 🌅 Embrace it and make it amazing! ✨💪"
