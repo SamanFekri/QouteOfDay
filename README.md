@@ -2,18 +2,11 @@
 ------
 ### Events
 ------
-Sure, here are some notable events that happen in the USA on July 31:
+Certainly! Here are some notable events that have happened in the USA on July 31:
 
-- **National Avocado Day**:
-  - Celebrated to recognize the nutritional benefits and versatility of avocados.
-
-- **National Mutt Day**:
-  - Established to raise awareness about mixed breed dogs in shelters and promote their adoption.
-
-- **Harry Potter’s Birthday**:
-  - Celebrated by fans of the Harry Potter series as it is the fictional character's birthday.
-
-These events may vary in recognition and
+- **1971**: Apollo 15 astronauts David Scott and James Irwin become the first to ride in a lunar rover on the moon.
+- **1991**: The Strategic Arms Reduction Treaty (START I) is signed by the United States and the Soviet Union, marking a significant step in the reduction of nuclear arms.
+- **1999**: NASA's Lunar Prospector mission intentionally crashes into the
 ### Positive Qoute
 ------
-"Every day is a new beginning. 🌅 Embrace it and make it amazing! ✨💪"
+"Embrace the journey, trust the process, and let your light ✨ shine bright 🌟! You are capable of amazing things 💪💖."
