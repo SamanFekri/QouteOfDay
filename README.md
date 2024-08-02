@@ -2,10 +2,15 @@
 ------
 ### Events
 ------
-Sure, here are a few notable events that have occurred on August 2nd in the USA:
+Certainly! Here are some notable events in the USA that occurred on August 2nd:
 
-- **1990**: Iraq invades Kuwait, leading to the Gulf War. Though the invasion happened in the Middle East, it significantly involved the United States, which later launched Operation Desert Storm in January 1991.
-- **1923**: President Warren G. Harding dies of a heart attack in San Francisco, California, leading to Vice President Calvin Coolidge being sworn in as the 
+- **1876: Colorado joins the Union**
+  - Colorado was admitted as the 38th state of the United States.
+
+- **1923: President Warren G. Harding dies**
+  - President Warren G. Harding passed away in San Francisco, California, and Vice President Calvin Coolidge was sworn in as the 30th President of the United States.
+
+- **1939: Creation of the Advisory
 ### Positive Qoute
 ------
-"🌟 Every day may not be good, but there's something good in every day! 🌻✨"
+"Every day is a new beginning. Take a deep breath, smile, and start again! 🌞💪😊"
