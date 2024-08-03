@@ -1,16 +1,12 @@
-### 📅 Friday, 02 August, 2024
+### 📅 Saturday, 03 August, 2024
 ------
 ### Events
 ------
-Certainly! Here are some notable events in the USA that occurred on August 2nd:
+Sure! Here are some notable events that have happened in the USA on August 3rd:
 
-- **1876: Colorado joins the Union**
-  - Colorado was admitted as the 38th state of the United States.
-
-- **1923: President Warren G. Harding dies**
-  - President Warren G. Harding passed away in San Francisco, California, and Vice President Calvin Coolidge was sworn in as the 30th President of the United States.
-
-- **1939: Creation of the Advisory
+- **1923:** Calvin Coolidge is sworn in as the 30th President of the United States after the death of Warren G. Harding.
+- **1948:** Whittaker Chambers accuses Alger Hiss of being a communist spy in testimony before the House Un-American Activities Committee (HUAC), marking a significant event in the early Cold War period.
+- **1958:** The USS Naut
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌞💪😊"
+"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
