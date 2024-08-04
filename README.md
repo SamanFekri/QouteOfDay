@@ -2,11 +2,14 @@
 ------
 ### Events
 ------
-Here are some significant events in the United States that have occurred on August 4th:
+Sure! Here are some notable events in the USA that happen or have happened on August 4th:
 
-- **1790**: U.S. Coast Guard is established. The Revenue Cutter Service was created to enforce tariffs and prevent smuggling.
-- **1901**: Louis Armstrong, the legendary jazz trumpeter and singer, is born in New Orleans, Louisiana.
-- **1944**: Anne Frank and her family are discovered in hiding by the Gestapo in Amsterdam. While not an event that occurred in
+- **Coast Guard Day**:
+  - Celebrated annually to honor the military branch that protects U.S. waterways and conducts search and rescue operations.
+  - Commemorates the founding of the U.S. Coast Guard on August 4, 1790.
+  
+- **Barack Obama's Birthday**:
+  - Former President Barack Obama was born on August 4, 1961
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 🌟💪😊"
+"Every day is a new beginning. Take a deep breath, smile, and start again. 🌟😊✨"
