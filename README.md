@@ -1,15 +1,10 @@
-### 📅 Sunday, 04 August, 2024
+### 📅 Monday, 05 August, 2024
 ------
 ### Events
 ------
-Sure! Here are some notable events in the USA that happen or have happened on August 4th:
+- **Lunar Orbiter 1 Launch (1966)**: NASA's Lunar Orbiter 1 was launched, the first mission in the Lunar Orbiter program, designed to take detailed photographs of the moon’s surface to aid in the selection of Apollo landing sites.
 
-- **Coast Guard Day**:
-  - Celebrated annually to honor the military branch that protects U.S. waterways and conducts search and rescue operations.
-  - Commemorates the founding of the U.S. Coast Guard on August 4, 1790.
-  
-- **Barack Obama's Birthday**:
-  - Former President Barack Obama was born on August 4, 1961
+- **Marine Barracks Bombing in Beirut Anniversary (1983)**: This date marks the anniversary of the deployment of American troops to Beirut, Lebanon, as part of a multinational force. The bombing later in October claimed the lives
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again. 🌟😊✨"
+"🌸 Believe in the magic within you and let your light shine brightly! ✨💖"
