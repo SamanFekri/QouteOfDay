@@ -2,9 +2,13 @@
 ------
 ### Events
 ------
-- **Lunar Orbiter 1 Launch (1966)**: NASA's Lunar Orbiter 1 was launched, the first mission in the Lunar Orbiter program, designed to take detailed photographs of the moon’s surface to aid in the selection of Apollo landing sites.
+Certainly! Here are some notable events in the USA that have occurred on August 5th:
 
-- **Marine Barracks Bombing in Beirut Anniversary (1983)**: This date marks the anniversary of the deployment of American troops to Beirut, Lebanon, as part of a multinational force. The bombing later in October claimed the lives
+- **1962**: 
+  - **Death of Marilyn Monroe**: The iconic actress and cultural icon Marilyn Monroe was found dead at her home in Los Angeles, California, under circumstances that led to her death being ruled as a probable suicide due to barbiturate overdose.
+
+- **1981**:
+  - **PATCO Strike**: President Ronald Reagan fired over 11,000 striking air
 ### Positive Qoute
 ------
-"🌸 Believe in the magic within you and let your light shine brightly! ✨💖"
+"Embrace the journey, not just the destination! 🌟🚀✨ Every step you take matters! 💪😊"
