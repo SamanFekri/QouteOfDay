@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events that occur or have occurred in the USA on August 6:
+Sure, here are some notable events in the USA that take place on August 6th:
 
-- **National Fresh Breath Day**: A day dedicated to the importance of oral hygiene and fresh breath.
-
-- **Anniversary of the Atomic Bombing of Hiroshima**: While not exclusive to the USA, this is a significant historical event commemorated worldwide and particularly remembered in the United States for its role in ending World War II.
-  
-- **President George W. Bush receives Presidential Daily Briefing titled
+- **National Fresh Breath Day**: Celebrated to promote oral hygiene and the importance of fresh breath.
+- **Hiroshima Day**: Commemorates the atomic bombing of Hiroshima, Japan, on August 6, 1945, and is often observed with events promoting peace and the end of nuclear weapons.
+- **Farmworker Appreciation Day**: Recognizes and appreciates the contributions of farmworkers
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, for every step brings you closer to your dreams. 🚀✨"
+"🌟 Dream big, work hard, and watch amazing things happen! 💪✨"
