@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-- **Purple Heart Day**:
-  - **Date**: August 7th
-  - **Description**: A day dedicated to honoring and commemorating the brave men and women of the U.S. military who have been wounded or killed in action and have received the Purple Heart Medal.
-  - **Background**: The Purple Heart is one of the oldest and most recognized American military medals, established by General George Washington during the Revolutionary War.
-  - **Activities**: Ceremonies,
+Certainly! Here are some notable events that have occurred in the USA on August 7th:
+
+- **1782**: George Washington creates the Purple Heart medal (originally called the Badge of Military Merit) to honor soldiers wounded in battle.
+- **1942**: The United States Marines land on Guadalcanal, marking the beginning of the first major offensive by Allied forces against the Empire of Japan during World War II.
+- **1964**: The Gulf of Tonkin Resolution is passed
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, not just the destination. Every step forward is a step toward greatness! 🚀✨"
+"🌟 Embrace the glorious mess that you are! 💫 Believe in your dreams and let your heart lead the way. 💖✨"
