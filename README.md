@@ -2,12 +2,14 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events in the USA that have occurred on August 9th:
+Certainly! Here are some notable events that have occurred in the USA on August 9:
 
-- **Nixon's Resignation**: 
-  - **Date**: August 9, 1974
-  - **Event**: President Richard Nixon officially resigned from office, becoming the first U.S. President to do so. 
-  - **Context**: This resignation came in the wake of the Watergate scandal. Vice President Gerald Ford succeeded him as the 38th President of
+- **Nixon Resigns from Presidency (1974):**
+  - Following the Watergate scandal, President Richard Nixon became the first U.S. president to resign from office.
+  - Vice President Gerald Ford was subsequently sworn in as the 38th President of the United States.
+
+- **The Atomic Bombing of Nagasaki (1945):**
+  - Not on the USA's domestic soil, but
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, trust the process, and watch the magic unfold! ✨😊"
+"Embrace today with a smile 😊 and let your light shine bright like the sun 🌞! You've got this! 💪✨"
