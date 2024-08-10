@@ -2,16 +2,11 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events in the USA that happened on August 10:
+Certainly! Here are some notable events that have occurred on August 10th in the USA:
 
-- **Smithsonian Institution Founded**:
-  - Date: August 10, 1846
-  - Event: The Smithsonian Institution was established in Washington, D.C. 
-  - Significance: It is now the world's largest museum, education, and research complex.
+- **1984**: President Ronald Reagan joked during a soundcheck for a radio broadcast: "My fellow Americans, I am pleased to tell you I just signed legislation which outlaws Russia forever. The bombing begins in five minutes." The comment, meant to be off the record, was inadvertently broadcast and sparked controversy.
 
-- **Missouri Admitted to the Union**:
-  - Date: August 10, 1821
-  - Event: Missouri
+- **1993**: The Missouri River flooded the area around Kansas City, causing
 ### Positive Qoute
 ------
 "🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
