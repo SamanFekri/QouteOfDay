@@ -2,16 +2,12 @@
 ------
 ### Events
 ------
-Sure, here are a few significant events that have occurred on August 11th in the USA:
+Sure, here's a bullet-point list of events in the USA that happened on August 11:
 
-- **First Free-Flight of the Space Shuttle Enterprise (1977)**:
-  - The Space Shuttle Enterprise made its first free-flight as part of NASA’s Approach and Landing Tests.
-  - It was released from a Boeing 747 Shuttle Carrier Aircraft and glided to a landing at Edwards Air Force Base in California.
-
-- **"American Graffiti" Premieres (1973)**:
-  -
+- **1929**: Babe Ruth becomes the first baseball player to hit 500 home runs in his career.
+- **1934**: Alcatraz Island, located in San Francisco Bay, opens as a federal prison.
+- **1965**: The Watts Riots begin in the Watts neighborhood of Los Angeles, California, lasting for six days.
+- **1984**: During a sound
 ### Positive Qoute
 ------
-"Embrace today with a heart full of hope and a spirit ready to shine! 🌞✨💖"
-
-
+"Embrace the journey 🌟, trust the process 🌱, and watch yourself bloom 🌸!"
