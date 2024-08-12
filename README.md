@@ -1,13 +1,14 @@
-### 📅 Sunday, 11 August, 2024
+### 📅 Monday, 12 August, 2024
 ------
 ### Events
 ------
-Sure, here's a bullet-point list of events in the USA that happened on August 11:
+While various events might occur on any given date, here are some notable events in American history that took place on August 12th:
 
-- **1929**: Babe Ruth becomes the first baseball player to hit 500 home runs in his career.
-- **1934**: Alcatraz Island, located in San Francisco Bay, opens as a federal prison.
-- **1965**: The Watts Riots begin in the Watts neighborhood of Los Angeles, California, lasting for six days.
-- **1984**: During a sound
+- **1939: The Wizard of Oz Premiere**
+  - The beloved classic film "The Wizard of Oz" had its first public screening and premiere at the Strand Theatre in Oconomowoc, Wisconsin.
+  
+- **1972: Last U.S. Ground Troops Leave Vietnam**
+  - America took a significant step in winding down its involvement in the Vietnam
 ### Positive Qoute
 ------
-"Embrace the journey 🌟, trust the process 🌱, and watch yourself bloom 🌸!"
+"🌟 Believe in yourself, and you will be unstoppable! 🚀💪"
