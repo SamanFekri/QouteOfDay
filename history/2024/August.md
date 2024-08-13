@@ -270,3 +270,12 @@ Sure, here's an event in the USA that happens on August 12:
 ### Quote of the day
 "Believe in yourself and all that you are. ✨🌟 The best is yet to come! 🚀💖"
 -----
+## Tuesday, 13 August, 2024
+### Events
+Here are some events that have occurred in the USA on August 13th:
+
+- **1920**: The 19th Amendment to the U.S. Constitution was ratified, granting women the right to vote. Though the formal certification occurred on August 26, the final necessary ratification by Tennessee took place on August 13.
+- **1961**: Construction of the Berlin Wall begins. While this event took place in Berlin, it had significant geopolitical implications for the USA during the Cold
+### Quote of the day
+"Embrace the journey and shine bright like the sun! 🌟🚀✨"
+-----

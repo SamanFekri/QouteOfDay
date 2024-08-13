@@ -1,15 +1,11 @@
-### 📅 Monday, 12 August, 2024
+### 📅 Tuesday, 13 August, 2024
 ------
 ### Events
 ------
-Sure, here's an event in the USA that happens on August 12:
+Here are some events that have occurred in the USA on August 13th:
 
-- **Perseid Meteor Shower Peak**:
-  - The Perseid meteor shower is an annual astronomical event that typically peaks around August 12.
-  - It is one of the most popular meteor showers in the Northern Hemisphere.
-  - Viewers can observe up to 60-100 meteors per hour under optimal viewing conditions.
-  - The meteor shower is associated with the comet Swift-Tuttle.
-  - Best viewing is
+- **1920**: The 19th Amendment to the U.S. Constitution was ratified, granting women the right to vote. Though the formal certification occurred on August 26, the final necessary ratification by Tennessee took place on August 13.
+- **1961**: Construction of the Berlin Wall begins. While this event took place in Berlin, it had significant geopolitical implications for the USA during the Cold
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨🌟 The best is yet to come! 🚀💖"
+"Embrace the journey and shine bright like the sun! 🌟🚀✨"
