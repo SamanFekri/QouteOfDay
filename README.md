@@ -1,9 +1,15 @@
-### 📅 Tuesday, 13 August, 2024
+### 📅 Wednesday, 14 August, 2024
 ------
 ### Events
 ------
-- **Left-Handers Day**: Celebrated each year on August 13th, this event honors left-handed individuals and raises awareness of the challenges they face in a predominantly right-handed world.
+Certainly! Here are some notable events in the USA that happened on August 14th:
 
+- **Social Security Act Signed** (1935)
+  - President Franklin D. Roosevelt signed the Social Security Act into law.
+  - This act established a system of old-age benefits for workers, benefits for victims of industrial accidents, unemployment insurance, aid for dependent mothers and children, the blind, and the physically handicapped.
+
+- **V-J Day Announcement** (1945)
+  - President Harry S
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, trust the process, and shine bright every step of the way! ✨💪😊"
+"Shine bright like the sun and spread your warmth wherever you go! 🌞✨😊🚀"
