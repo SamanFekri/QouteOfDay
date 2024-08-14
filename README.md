@@ -2,14 +2,9 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events in the USA that happened on August 14th:
+- **V-J (Victory over Japan) Day:** August 14 marks the anniversary of V-J Day in the United States, commemorating the day in 1945 when Japan announced its surrender to the Allies during World War II, effectively bringing the war to an end.
 
-- **Social Security Act Signed** (1935)
-  - President Franklin D. Roosevelt signed the Social Security Act into law.
-  - This act established a system of old-age benefits for workers, benefits for victims of industrial accidents, unemployment insurance, aid for dependent mothers and children, the blind, and the physically handicapped.
-
-- **V-J Day Announcement** (1945)
-  - President Harry S
+- **Social Security Act Signed (1935):** On August 14, 1935, President Franklin D. Roosevelt signed the Social Security Act into law, establishing a system of old-age benefits for workers and benefits for
 ### Positive Qoute
 ------
-"Shine bright like the sun and spread your warmth wherever you go! 🌞✨😊🚀"
+"Embrace the journey, 🌟 trust the process, and bloom with grace. 🌸✨"
