@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Sure, here are some notable events in the USA that typically occur or have occurred on August 15:
+- **Victory over Japan Day (V-J Day):**
+  - Commemorates the day Imperial Japan surrendered in World War II, effectively ending the war.
+  - Although the official surrender documents were signed on September 2, 1945, August 15 marks the initial announcement of Japan’s surrender.
+  - Celebrations and commemorations may include ceremonies, parades, and moments of silence.
 
-- **V-J Day (Victory over Japan Day)**: Commemorates the day in 1945 when Japan announced its surrender in World War II, effectively ending the war. 
-- **Assumption of Mary**: Although not a federal holiday, many Christian communities in the United States, especially Catholics, observe this religious feast which celebrates the assumption of the Virgin Mary into heaven.
-- **
+- **National Relaxation Day:**
+  - A day dedicated to encouraging individuals to slow down
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, chase your dreams, and shine brightly! 🌈✨"
+"🌟 Embrace today with a smile and watch the magic unfold! ✨😊"
