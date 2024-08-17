@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on August 17:
+Sure, here are some notable events that have occurred in the USA on August 17th:
 
-- **1969**: The Woodstock Music & Art Fair concluded in Bethel, New York. The iconic music festival, which began on August 15, featured performances by legendary artists like Jimi Hendrix, Janis Joplin, and The Who.
-
-- **1987**: An agreement was reached in the Iran-Contra affair where U.S. President Ronald Reagan announced that the arms sales proceeds to Iran would
+- **1807**: Robert Fulton's North River Steamboat begins its inaugural round-trip voyage between New York City and Albany, making it the first commercially successful steamboat service.
+- **1863**: During the American Civil War, Union forces began shelling Fort Sumter, located in Charleston, South Carolina.
+- **1945**: Indonesia declares its independence from the Netherlands.
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again. 🌅😊🌻"
+🌟 "Every day is a new opportunity to shine brighter than the day before!" 🌞✨
