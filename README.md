@@ -1,12 +1,14 @@
-### 📅 Saturday, 17 August, 2024
+### 📅 Sunday, 18 August, 2024
 ------
 ### Events
 ------
-Sure, here are some notable events that have occurred in the USA on August 17th:
+Here are a few notable events in the USA that occurred on August 18:
 
-- **1807**: Robert Fulton's North River Steamboat begins its inaugural round-trip voyage between New York City and Albany, making it the first commercially successful steamboat service.
-- **1863**: During the American Civil War, Union forces began shelling Fort Sumter, located in Charleston, South Carolina.
-- **1945**: Indonesia declares its independence from the Netherlands.
+- **1920: Ratification of the 19th Amendment**
+  - The 19th Amendment to the United States Constitution was ratified, granting women the right to vote. This was a significant milestone in the women's suffrage movement in the United States.
+
+- **1937: Appalachian Trail Completion**
+  - The Appalachian Trail, a marked hiking trail in the Eastern United States extending between Springer Mountain in Georgia and
 ### Positive Qoute
 ------
-🌟 "Every day is a new opportunity to shine brighter than the day before!" 🌞✨
+"Believe in the magic 🌟 within yourself and let your light ✨ shine bright! You are unstoppable 🚀❤️"
