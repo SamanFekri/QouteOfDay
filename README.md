@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are a few notable events in the USA that occurred on August 18:
+Sure, here are some notable events in the USA that have taken place on August 18th:
 
-- **1920: Ratification of the 19th Amendment**
-  - The 19th Amendment to the United States Constitution was ratified, granting women the right to vote. This was a significant milestone in the women's suffrage movement in the United States.
+- **1920: Women's Suffrage Movement**
+  - The 19th Amendment to the United States Constitution was ratified on August 18, 1920, granting women the right to vote. This was a significant milestone in the women's suffrage movement.
 
-- **1937: Appalachian Trail Completion**
-  - The Appalachian Trail, a marked hiking trail in the Eastern United States extending between Springer Mountain in Georgia and
+- **1958: Vladimir Nabokov's "Lolita" Published**
+  - On August 18, 1958,
 ### Positive Qoute
 ------
-"Believe in the magic 🌟 within yourself and let your light ✨ shine bright! You are unstoppable 🚀❤️"
+"Believe in yourself 🌟, chase your dreams 🚀, and shine bright like the sun ☀️!"
