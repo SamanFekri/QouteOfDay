@@ -2,13 +2,9 @@
 ------
 ### Events
 ------
-- **World Humanitarian Day**
-  - Date: August 19
-  - Description: Recognized internationally, World Humanitarian Day honors humanitarian workers who have lost their lives or been injured in the course of their work. It also highlights the ongoing global humanitarian work and its importance.
+- **National Aviation Day**: Celebrated on August 19th in the United States, this day honors the development of aviation and marks the birthday of Orville Wright, one of the famous Wright brothers credited with pioneering controlled flight. Established by President Franklin D. Roosevelt in 1939, National Aviation Day recognizes the contributions of aviators and the advancements in aviation technology.
 
-- **National Aviation Day**
-  - Date: August 19
-  - Description: Established by Franklin D. Roosevelt in 1939, National Aviation Day celebrates the development of aviation in the United States. The
+
 ### Positive Qoute
 ------
-"Embrace the journey, 🌟 believe in yourself, and let your light shine bright! ✨🚀🌈"
+"🌟 Shine bright, chase your dreams, and let your light illuminate the world! 🌍✨"
