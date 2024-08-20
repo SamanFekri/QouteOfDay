@@ -1,10 +1,14 @@
-### 📅 Monday, 19 August, 2024
+### 📅 Tuesday, 20 August, 2024
 ------
 ### Events
 ------
-- **National Aviation Day**: Celebrated on August 19th in the United States, this day honors the development of aviation and marks the birthday of Orville Wright, one of the famous Wright brothers credited with pioneering controlled flight. Established by President Franklin D. Roosevelt in 1939, National Aviation Day recognizes the contributions of aviators and the advancements in aviation technology.
+Certainly! Here are some notable events in the USA that happened on August 20:
 
+- **1938: Lou Gehrig Hits Grand Slam** 
+  - Lou Gehrig of the New York Yankees hit his record 23rd and final career grand slam, a record that stood for 75 years.
 
+- **1964: President Lyndon B. Johnson Signs Economic Opportunity Act**
+  - President Lyndon B. Johnson signed the Economic Opportunity Act, which aimed to eliminate poverty and expand
 ### Positive Qoute
 ------
-"🌟 Shine bright, chase your dreams, and let your light illuminate the world! 🌍✨"
+"Believe in the power of your dreams 🌟✨ and watch the magic unfold! 🪄😊"
