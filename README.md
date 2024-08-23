@@ -1,18 +1,12 @@
-### 📅 Thursday, 22 August, 2024
+### 📅 Friday, 23 August, 2024
 ------
 ### Events
 ------
-Certainly! Here's an event that took place in the USA on August 22:
+Certainly! Here are some notable events in the USA that happened on August 23:
 
-**August 22, 1864: The First Geneva Convention**
-- An international treaty that established the standards of international law for humanitarian treatment in war.
-- Although the treaty was signed in Geneva, Switzerland, it significantly influenced U.S. military conduct and its commitment to international humanitarian law.
+- **Hurricane Katrina**: On August 23, 2005, Hurricane Katrina formed as a tropical depression over the Bahamas. It would go on to become one of the most devastating hurricanes in U.S. history, particularly impacting the Gulf Coast region.
 
-To note, while the signing of the First Geneva Convention itself didn't occur in the USA, it had substantial implications for future U.S
+- **International Day for the Remembrance of the Slave Trade and its Abolition**: While this is a globally recognized event, it has significant observance
 ### Positive Qoute
 ------
-Sure, here's a new, positive quote for you with emojis:
-
-"🌟 Believe in your dreams and watch them become your reality! ✨🚀"
-
-Have a fantastic day! 😊
+"Believe in the 🌟 magic 🌟 of new beginnings! 🚀✨"
