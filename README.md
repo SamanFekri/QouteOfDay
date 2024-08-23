@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events in the USA that happened on August 23:
+Sure, here are some notable events that have occurred in the USA on August 23:
 
-- **Hurricane Katrina**: On August 23, 2005, Hurricane Katrina formed as a tropical depression over the Bahamas. It would go on to become one of the most devastating hurricanes in U.S. history, particularly impacting the Gulf Coast region.
-
-- **International Day for the Remembrance of the Slave Trade and its Abolition**: While this is a globally recognized event, it has significant observance
+- **2005: Hurricane Katrina forms**: On August 23, 2005, Hurricane Katrina began as a tropical depression in the Bahamas. It would go on to become one of the deadliest and most destructive hurricanes in U.S. history.
+  
+- **1989: Pete Rose gets banned from baseball**: On August 23, 1989, Pete Rose, Major League Baseball's all
 ### Positive Qoute
 ------
-"Believe in the 🌟 magic 🌟 of new beginnings! 🚀✨"
+"🌟 Embrace the journey with a heart full of dreams and a spirit that never gives up! 💪✨"
