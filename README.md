@@ -2,16 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on August 24:
+Certainly! Here are some notable events in the USA that have occurred on August 24:
 
-**Historical Events:**
-- **1814:** The British forces captured Washington, D.C. during the War of 1814 and burned many U.S. government buildings, including the White House and the Capitol.
+- **1814**: Burning of Washington during the War of 1812
+  - British forces set fire to multiple U.S. government buildings, including the White House and the Capitol.
 
-**Sports:**
-- **1989:** Pete Rose was banned from baseball for life for gambling on the game while managing the Cincinnati Reds.
-
-**Disasters:**
-- **1992:** Hurricane Andrew made
+- **1932**: Amelia Earhart's Non-stop Flight Across the United States
+  - Amelia Earhart becomes the first woman to complete a non-stop transcontinental flight, from Los Angeles, California to Newark
 ### Positive Qoute
 ------
-"🌟 Believe in your dreams and they will come true! 🌈✨"
+"Every day is a new opportunity to shine brighter! 🌟✨💖"
