@@ -549,3 +549,17 @@ Certainly! Here are some notable events in the USA that have occurred on August 
 ### Quote of the day
 "Embrace the journey, 🌄 believe in your dreams, 🌟 and let your heart guide you! 💖"
 -----
+## Sunday, 25 August, 2024
+### Events
+Sure, here are a few notable events and commemorations that happen in the USA on August 25:
+
+- **National Park Service Founders Day**: 
+  - Date: August 25
+  - Significance: Commemorates the founding of the National Park Service (NPS) on August 25, 1916.
+  - Activities: Various events, programs, and promotions take place in national parks across the country.
+
+- **National Whiskey Sour Day**:
+  - Date:
+### Quote of the day
+"🌟 Embrace the glorious mess that you are and let your light shine! ✨"
+-----
