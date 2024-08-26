@@ -1,16 +1,17 @@
-### 📅 Sunday, 25 August, 2024
+### 📅 Monday, 26 August, 2024
 ------
 ### Events
 ------
-Sure, here are a few notable events and commemorations that happen in the USA on August 25:
+Certainly! Here are some notable events that happen on August 26th in the USA:
 
-- **National Park Service Founders Day**: 
-  - Date: August 25
-  - Significance: Commemorates the founding of the National Park Service (NPS) on August 25, 1916.
-  - Activities: Various events, programs, and promotions take place in national parks across the country.
+- **Women's Equality Day**: 
+  - Commemorates the certification of the 19th Amendment to the U.S. Constitution in 1920.
+  - Grants women the right to vote.
+  - Established in 1971 by U.S. Congress following a proclamation by President Richard Nixon.
 
-- **National Whiskey Sour Day**:
-  - Date:
+- **National Dog Day**:
+  - Celebrates all breeds of dogs and promotes adoption.
+  -
 ### Positive Qoute
 ------
-"🌟 Embrace the glorious mess that you are and let your light shine! ✨"
+"🌟 Embrace the glorious mess that you are, for in it lies your unique sparkle! ✨💖"
