@@ -2,16 +2,14 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events that happen on August 26th in the USA:
+Here is an event in the USA that happens on August 26 each year:
 
-- **Women's Equality Day**: 
-  - Commemorates the certification of the 19th Amendment to the U.S. Constitution in 1920.
-  - Grants women the right to vote.
-  - Established in 1971 by U.S. Congress following a proclamation by President Richard Nixon.
-
-- **National Dog Day**:
-  - Celebrates all breeds of dogs and promotes adoption.
-  -
+- **Women's Equality Day**
+  - Celebrates the adoption of the 19th Amendment to the United States Constitution.
+  - The 19th Amendment granted women the right to vote.
+  - Established in 1971 by Congresswoman Bella Abzug.
+  - Recognizes the continuing efforts towards achieving full equality for women.
+  - Various events and activities are held across the country to commemorate the day, including educational
 ### Positive Qoute
 ------
-"🌟 Embrace the glorious mess that you are, for in it lies your unique sparkle! ✨💖"
+"Believe in yourself and all that you are. 🌟 Know that there is something inside you that is greater than any obstacle. 💪✨"
