@@ -1,15 +1,12 @@
-### 📅 Monday, 26 August, 2024
+### 📅 Tuesday, 27 August, 2024
 ------
 ### Events
 ------
-Here is an event in the USA that happens on August 26 each year:
+Here are some notable events in the USA that have occurred on August 27 in different years:
 
-- **Women's Equality Day**
-  - Celebrates the adoption of the 19th Amendment to the United States Constitution.
-  - The 19th Amendment granted women the right to vote.
-  - Established in 1971 by Congresswoman Bella Abzug.
-  - Recognizes the continuing efforts towards achieving full equality for women.
-  - Various events and activities are held across the country to commemorate the day, including educational
+- **1859:** Edwin Drake struck oil near Titusville, Pennsylvania, marking the beginning of the American oil industry.
+- **1979:** Lord Louis Mountbatten, a member of the British royal family, was assassinated by a bomb planted by the IRA while on his boat in Ireland.
+- **1990:** Guitar legend Stevie Ray Vaughan died in a helicopter crash after a concert at Alpine Valley
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 Know that there is something inside you that is greater than any obstacle. 💪✨"
+"Embrace the journey, 🌟 every step forward is a step towards your dreams! 🚀✨"
