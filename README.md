@@ -1,15 +1,14 @@
-### 📅 Wednesday, 28 August, 2024
+### 📅 Thursday, 29 August, 2024
 ------
 ### Events
 ------
-Sure! Here's a notable event that occurred on August 28 in the USA:
+Sure! Here are some notable events in the USA that have happened on August 29:
 
-### August 28, 1963
-- **March on Washington for Jobs and Freedom**
-  - **Location:** Washington, D.C.
-  - **Significance:** One of the largest political rallies for human rights in United States history
-  - **Key Moment:** Dr. Martin Luther King Jr. delivered his iconic "I Have a Dream" speech
-  - **Attendance:** Approximately 250,000 people
+- **Hurricane Katrina (2005)**:
+  - Hurricane Katrina made landfall near New Orleans, Louisiana, causing massive devastation.
+  - Flooding resulted from breaches in the levee system, submerging large portions of the city.
+  - The disaster led to over 1,800 deaths and extensive property damage.
+  - The event highlighted inadequacies in emergency response and led to significant changes in
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again. 🌅😊✨"
+"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
