@@ -2,15 +2,15 @@
 ------
 ### Events
 ------
-Sure, here are some notable events in the USA that occur on or around August 31:
+Here are some events that have occurred on August 31st in the USA:
 
-- **National Overdose Awareness Day (August 31)**
-  - A day to raise awareness about the overdose epidemic.
-  - Events include memorials for those lost to overdose, educational programs, and community outreach.
+- **1886: Charleston Earthquake**
+  - A devastating earthquake strikes Charleston, South Carolina, causing significant damage and resulting in 60 deaths.
   
-- **International Bacon Day (Saturday before Labor Day)**
-  - Celebrated by bacon enthusiasts across the United States.
-  - Events include bacon-themed parties, cooking events, and
+- **1888: Mary Ann Nichols Found Dead**
+  - First victim of Jack the Ripper, Mary Ann Nichols, is found dead in Whitechapel, London, causing a sensation that also impacts American media and culture.
+
+- **1962: Trinidad and
 ### Positive Qoute
 ------
-"Every day is a fresh start 🌅✨. Embrace the possibilities and shine bright! 🌟😊"
+"🌟 You are capable of amazing things! 🌈 Believe in yourself and shine bright! ✨"
