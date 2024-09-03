@@ -2,13 +2,18 @@
 ------
 ### Events
 ------
-Certainly! Here are some significant events that have taken place in the United States on September 3rd:
+Certainly! Here are some events that happen on September 3rd in the USA:
 
-- **1783**: The Treaty of Paris is signed, officially ending the American Revolutionary War between Great Britain and the United States.
-- **1861**: During the American Civil War, Confederate General Leonidas Polk invades neutral Kentucky, leading to the state's full alignment with the Union.
-- **1895**: The first professional American football game is played in Latrobe, Pennsylvania.
+- **Labor Day (variable date)**: 
+  - Celebrated on the first Monday in September.
+  - Honors the American labor movement and the contributions of workers.
+  - Marked by parades, picnics, and various public events.
+
+- **Skyscraper Day**:
+  - Celebrates the designing and building of skyscrapers.
+  - Acknowledges the achievements in architecture and engineering.
+
+
 ### Positive Qoute
 ------
-Sure! Here you go:
-
-"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
+"🌟 Embrace today with a heart full of dreams and a soul ignited by possibilities! Every sunrise brings a new start. ☀️✨"
