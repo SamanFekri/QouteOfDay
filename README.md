@@ -2,15 +2,11 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events that typically take place in the USA on September 4th:
+Certainly! Here are some events that have taken place in the USA on September 4:
 
-- **Labor Day (if the first Monday in September falls on the 4th)**
-  - Observed as a federal holiday.
-  - Celebrates the contributions of American workers.
-  - Often marked by parades, barbecues, and various public events.
-  - Many people enjoy a long weekend as it is a public holiday.
-  
-- **Jerry Lewis MDA Labor Day Tele
+- **1886 - Geronimo Surrenders**: The famous Apache leader Geronimo surrendered to U.S. General Nelson Miles in Arizona, effectively ending the Apache Wars.
+- **1957 - Little Rock Integration Crisis**: Arkansas Governor Orval Faubus called out the National Guard to prevent African American students from integrating into Little Rock Central High School.
+- **1998 - Google Founded**
 ### Positive Qoute
 ------
-"Embrace the journey, 🌟 for every step forward is a step toward greatness! 🚀✨"
+"Embrace the magic of today and light up the world with your smile! 🌟😊✨"

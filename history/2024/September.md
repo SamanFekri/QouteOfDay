@@ -98,3 +98,13 @@ Certainly! Here are some notable events that typically take place in the USA on 
 ### Quote of the day
 "Embrace the journey, 🌟 for every step forward is a step toward greatness! 🚀✨"
 -----
+## Wednesday, 04 September, 2024
+### Events
+Certainly! Here are some events that have taken place in the USA on September 4:
+
+- **1886 - Geronimo Surrenders**: The famous Apache leader Geronimo surrendered to U.S. General Nelson Miles in Arizona, effectively ending the Apache Wars.
+- **1957 - Little Rock Integration Crisis**: Arkansas Governor Orval Faubus called out the National Guard to prevent African American students from integrating into Little Rock Central High School.
+- **1998 - Google Founded**
+### Quote of the day
+"Embrace the magic of today and light up the world with your smile! 🌟😊✨"
+-----
