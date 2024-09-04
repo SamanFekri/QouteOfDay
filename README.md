@@ -1,19 +1,16 @@
-### 📅 Tuesday, 03 September, 2024
+### 📅 Wednesday, 04 September, 2024
 ------
 ### Events
 ------
-Certainly! Here are some events that happen on September 3rd in the USA:
+Certainly! Here are some notable events that typically take place in the USA on September 4th:
 
-- **Labor Day (variable date)**: 
-  - Celebrated on the first Monday in September.
-  - Honors the American labor movement and the contributions of workers.
-  - Marked by parades, picnics, and various public events.
-
-- **Skyscraper Day**:
-  - Celebrates the designing and building of skyscrapers.
-  - Acknowledges the achievements in architecture and engineering.
-
-
+- **Labor Day (if the first Monday in September falls on the 4th)**
+  - Observed as a federal holiday.
+  - Celebrates the contributions of American workers.
+  - Often marked by parades, barbecues, and various public events.
+  - Many people enjoy a long weekend as it is a public holiday.
+  
+- **Jerry Lewis MDA Labor Day Tele
 ### Positive Qoute
 ------
-"🌟 Embrace today with a heart full of dreams and a soul ignited by possibilities! Every sunrise brings a new start. ☀️✨"
+"Embrace the journey, 🌟 for every step forward is a step toward greatness! 🚀✨"
