@@ -1,12 +1,12 @@
-### 📅 Wednesday, 04 September, 2024
+### 📅 Thursday, 05 September, 2024
 ------
 ### Events
 ------
-Certainly! Here are some events that have taken place in the USA on September 4:
+Certainly! Here are some significant events that have occurred on September 5th in the USA:
 
-- **1886 - Geronimo Surrenders**: The famous Apache leader Geronimo surrendered to U.S. General Nelson Miles in Arizona, effectively ending the Apache Wars.
-- **1957 - Little Rock Integration Crisis**: Arkansas Governor Orval Faubus called out the National Guard to prevent African American students from integrating into Little Rock Central High School.
-- **1998 - Google Founded**
+- **1939**: The United States declares its neutrality in World War II.
+- **1972**: The launch of the last of NASA's Apollo missions, Apollo 18, was canceled.
+- **1975**: Lynette "Squeaky" Fromme, a follower of Charles Manson, attempts to assassinate President Gerald Ford in Sacramento, California. She was thwarted by
 ### Positive Qoute
 ------
-"Embrace the magic of today and light up the world with your smile! 🌟😊✨"
+"Every step forward, no matter how small, is progress! 🌱🚀✨ Keep going, you've got this! 💪😊"
