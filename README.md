@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Certainly! Here's an event in the USA that happens on September 7:
+Here are some notable events that have occurred on September 7th in the USA:
 
-- **Labor Day (If it falls on the first Monday of September):**
-  - Observance: First Monday in September.
-  - Significance: Honors the American labor movement and the contributions of laborers to the development and achievements of the country.
-  - Activities: Parades, barbecues, fireworks, and various public gatherings.
-  - Federal Holiday: Yes, it is a federal holiday, and many businesses
+- **1940 – The Blitz:** While this was primarily a British event, it had a significant impact on the USA by fostering closer ties with the UK and influencing American public opinion leading up to the country's involvement in World War II.
+  
+- **1977 – Panama Canal Treaties Signed:** On September 7, 1977, U.S. President Jimmy Carter and Panamanian leader Omar Torrijos signed
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, for every step you take brings you closer to your dreams! 🚀💖"
+"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
