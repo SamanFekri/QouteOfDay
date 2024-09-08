@@ -172,3 +172,13 @@ Here are some notable events that have occurred on September 7th in the USA:
 ### Quote of the day
 "🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
 -----
+## Sunday, 08 September, 2024
+### Events
+Certainly! Here are some notable events that happened in the USA on September 8:
+
+- **1974**: President Gerald Ford pardons former President Richard Nixon for any crimes he may have committed against the United States while president. This was a significant event in the aftermath of the Watergate scandal.
+  
+- **1986**: "The Oprah Winfrey Show" debuts nationally. This show would go on to become one of the highest-rated talk shows in television history, solidifying Oprah Win
+### Quote of the day
+"🌟 Embrace the journey, 🌈 for every step brings you closer to your dreams. 🌻✨"
+-----

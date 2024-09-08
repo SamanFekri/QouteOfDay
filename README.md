@@ -1,12 +1,12 @@
-### 📅 Saturday, 07 September, 2024
+### 📅 Sunday, 08 September, 2024
 ------
 ### Events
 ------
-Here are some notable events that have occurred on September 7th in the USA:
+Certainly! Here are some notable events that happened in the USA on September 8:
 
-- **1940 – The Blitz:** While this was primarily a British event, it had a significant impact on the USA by fostering closer ties with the UK and influencing American public opinion leading up to the country's involvement in World War II.
+- **1974**: President Gerald Ford pardons former President Richard Nixon for any crimes he may have committed against the United States while president. This was a significant event in the aftermath of the Watergate scandal.
   
-- **1977 – Panama Canal Treaties Signed:** On September 7, 1977, U.S. President Jimmy Carter and Panamanian leader Omar Torrijos signed
+- **1986**: "The Oprah Winfrey Show" debuts nationally. This show would go on to become one of the highest-rated talk shows in television history, solidifying Oprah Win
 ### Positive Qoute
 ------
-"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
+"🌟 Embrace the journey, 🌈 for every step brings you closer to your dreams. 🌻✨"
