@@ -2,11 +2,10 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events that happened in the USA on September 8:
+Sure, here are some notable events in the USA that have happened on September 8 in different years:
 
-- **1974**: President Gerald Ford pardons former President Richard Nixon for any crimes he may have committed against the United States while president. This was a significant event in the aftermath of the Watergate scandal.
-  
-- **1986**: "The Oprah Winfrey Show" debuts nationally. This show would go on to become one of the highest-rated talk shows in television history, solidifying Oprah Win
+- **1900**: The Great Galveston Hurricane, one of the deadliest natural disasters in U.S. history, makes landfall in Galveston, Texas, killing an estimated 6,000 to 12,000 people.
+- **1935**: Senator Huey Long of Louisiana was shot in Baton Rouge and died two days later; he was a notable and controversial
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, 🌈 for every step brings you closer to your dreams. 🌻✨"
+"Believe in yourself and all that you are. 🌟 The only limit is the one you set. 🚀💪😊"
