@@ -2,14 +2,13 @@
 ------
 ### Events
 ------
-Certainly. Here are the key points about the event that occurs on September 11th in the USA:
+Certainly. Here are the key events related to 11 September in the USA:
 
-- **Event Name**: September 11 Attacks (also known as 9/11)
-- **Date**: September 11, 2001
-- **Nature of Event**: Coordinated terrorist attacks
-- **Perpetrators**: Al-Qaeda, an Islamist extremist group
-- **Primary Targets**:
-  - World Trade Center (Twin Towers) in New York
+- **9/11 Terrorist Attacks (2001):**
+  - Al-Qaeda terrorists hijacked four commercial airplanes.
+  - Two planes (American Airlines Flight 11 and United Airlines Flight 175) were flown into the twin towers of the World Trade Center in New York City.
+  - A third plane (American Airlines Flight 77) was crashed into the Pentagon in Arlington, Virginia.
+  - The fourth
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 🌟 You have the power to create your own sunshine. ☀️🌼"
+"Embrace the journey with a smile 😊 and let your dreams take flight 🦋!"
