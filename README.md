@@ -2,14 +2,15 @@
 ------
 ### Events
 ------
-- **National Day of Encouragement**: 
-  - Celebrated annually on September 12th.
-  - A day dedicated to uplifting people and making a positive impact through supportive words and actions.
-  - Often involves sending messages of encouragement to friends, family, and colleagues.
+Certainly! Here is an event in the USA that happens on September 12:
 
-- **Patriot Day**:
-  - Observed annually on September 11th (but ceremonies and events can extend to the following day, September 12th).
-  - Commemorates the victims of the September
+- **National Video Games Day**
+  - Celebration of video games and their contribution to entertainment and culture.
+  - Gamers and enthusiasts partake in playing their favorite video games.
+  - Special promotions and events are often organized by gaming companies and retailers.
+  - An opportunity for people to reminisce and appreciate the history and evolution of video games.
+
+Feel free to ask if you need more details or information on any other events
 ### Positive Qoute
 ------
-🌟 "Let your dreams be bigger than your fears and your actions louder than your words." 🌈✨
+"🌟 Believe in the magic within you! ✨ You are capable of amazing things. 💪😊"
