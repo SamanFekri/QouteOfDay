@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events that have occurred in the USA on September 13th:
+Here are some notable events that have taken place on September 13th in the USA:
 
-- **1814**: Fort McHenry, during the War of 1812, successfully defends Baltimore from British forces. This battle inspired Francis Scott Key to write "The Star-Spangled Banner," which later became the U.S. national anthem.
-- **1847**: Mexican-American War: American troops under General Winfield Scott enter Mexico City, marking a pivotal moment in the war.
--
+- **1814**: The Battle of Fort McHenry during the War of 1812.
+  - Francis Scott Key wrote the poem "Defence of Fort M'Henry," which would later be known as "The Star-Spangled Banner."
+  
+- **1851**: The New York Times was first published.
+  - Founded as the New-York Daily Times by Henry Jarvis Raymond and
 ### Positive Qoute
 ------
-"Believe in the magic within you, and let it shine bright! ✨💖🌟"
+"🌟 Every day is a new beginning. Take a deep breath and start again. 💪✨"
