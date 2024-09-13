@@ -1,16 +1,12 @@
-### 📅 Thursday, 12 September, 2024
+### 📅 Friday, 13 September, 2024
 ------
 ### Events
 ------
-Certainly! Here is an event in the USA that happens on September 12:
+Certainly! Here are some notable events that have occurred in the USA on September 13th:
 
-- **National Video Games Day**
-  - Celebration of video games and their contribution to entertainment and culture.
-  - Gamers and enthusiasts partake in playing their favorite video games.
-  - Special promotions and events are often organized by gaming companies and retailers.
-  - An opportunity for people to reminisce and appreciate the history and evolution of video games.
-
-Feel free to ask if you need more details or information on any other events
+- **1814**: Fort McHenry, during the War of 1812, successfully defends Baltimore from British forces. This battle inspired Francis Scott Key to write "The Star-Spangled Banner," which later became the U.S. national anthem.
+- **1847**: Mexican-American War: American troops under General Winfield Scott enter Mexico City, marking a pivotal moment in the war.
+-
 ### Positive Qoute
 ------
-"🌟 Believe in the magic within you! ✨ You are capable of amazing things. 💪😊"
+"Believe in the magic within you, and let it shine bright! ✨💖🌟"
