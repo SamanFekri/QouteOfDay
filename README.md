@@ -1,14 +1,12 @@
-### 📅 Friday, 13 September, 2024
+### 📅 Saturday, 14 September, 2024
 ------
 ### Events
 ------
-Here are some notable events that have taken place on September 13th in the USA:
+Sure, here are some notable events that have occurred on September 14th in the United States:
 
-- **1814**: The Battle of Fort McHenry during the War of 1812.
-  - Francis Scott Key wrote the poem "Defence of Fort M'Henry," which would later be known as "The Star-Spangled Banner."
-  
-- **1851**: The New York Times was first published.
-  - Founded as the New-York Daily Times by Henry Jarvis Raymond and
+- **1814: The Battle of Fort McHenry**: During the War of 1812, the Battle of Fort McHenry takes place, inspiring Francis Scott Key to write "The Star-Spangled Banner."
+
+- **1901: President William McKinley Dies**: President William McKinley succumbs to his wounds after being shot by an assassin on September 6, 1901
 ### Positive Qoute
 ------
-"🌟 Every day is a new beginning. Take a deep breath and start again. 💪✨"
+"Believe in yourself and all that you are. 🌟✨ You are capable of amazing things! 💪😊"
