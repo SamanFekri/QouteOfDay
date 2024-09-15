@@ -1,12 +1,14 @@
-### 📅 Saturday, 14 September, 2024
+### 📅 Sunday, 15 September, 2024
 ------
 ### Events
 ------
-Here are notable events that have occurred on September 14 in the USA:
+Here are some notable events that have occurred in the USA on September 15th:
 
-- **1814**: The poem "Defence of Fort McHenry" is written by Francis Scott Key during the War of 1812 after witnessing the bombardment of Fort McHenry by British forces. This poem would later become the lyrics for "The Star-Spangled Banner," the national anthem of the United States.
+- **Battle of North Point (1814)**: Part of the War of 1812, this battle occurred near Baltimore, Maryland, and was a precursor to the Battle of Baltimore.
   
-- **1901**: President William McKinley dies after being shot on September 6
+- **Los Angeles riots (1970)**: The Chicano Moratorium against the Vietnam War took place in Los Angeles, California, resulting in clashes between police and protesters.
+
+- **Assassination of President William Mc
 ### Positive Qoute
 ------
-"Shine like the 🌟 you are, and let your light brighten the world! 🌍💫"
+"🌟 Believe in the magic within you! ✨ You have the power to create wonders. 💖"
