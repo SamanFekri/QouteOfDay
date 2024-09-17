@@ -2,15 +2,12 @@
 ------
 ### Events
 ------
-Sure, here are some significant events in the USA that occur on September 17th:
+Sure, here's a notable event in the United States that takes place on September 17:
 
-- **Constitution Day and Citizenship Day**:
-  - Commemorates the formation and signing of the U.S. Constitution on September 17, 1787.
-  - Recognizes all who have become U.S. citizens.
-  - Celebrated with various educational programs and ceremonies across the country.
-
-- **National Apple Dumpling Day**:
-  - Celebrates a traditional American dessert made from baked apples
+- **Constitution Day and Citizenship Day**
+  - **What it commemorates**: The signing of the U.S. Constitution on September 17, 1787.
+  - **Significance**: It honors the formation and signing of the U.S. Constitution by thirty-nine brave men who changed the course of history.
+  - **Citizenship Day**: Also recognizes all who, by coming
 ### Positive Qoute
 ------
-"🌟 Believe in the magic within you! 🌈✨"
+"Embrace the journey 🌟, cherish every moment 🌸, and believe in the magic within you ✨!"
