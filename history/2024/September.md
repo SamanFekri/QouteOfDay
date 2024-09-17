@@ -372,3 +372,17 @@ Here are some notable events that have occurred in the USA on September 16:
 ### Quote of the day
 "Let your light shine bright! 🌟✨ The world needs your sparkle. 🌏💖"
 -----
+## Tuesday, 17 September, 2024
+### Events
+Sure, here are some significant events in the USA that occur on September 17th:
+
+- **Constitution Day and Citizenship Day**:
+  - Commemorates the formation and signing of the U.S. Constitution on September 17, 1787.
+  - Recognizes all who have become U.S. citizens.
+  - Celebrated with various educational programs and ceremonies across the country.
+
+- **National Apple Dumpling Day**:
+  - Celebrates a traditional American dessert made from baked apples
+### Quote of the day
+"🌟 Believe in the magic within you! 🌈✨"
+-----

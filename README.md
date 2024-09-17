@@ -1,12 +1,16 @@
-### 📅 Monday, 16 September, 2024
+### 📅 Tuesday, 17 September, 2024
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on September 16:
+Sure, here are some significant events in the USA that occur on September 17th:
 
-- **In 1620:** The Mayflower set sail from Plymouth, England, bound for the New World. The ship carried the Pilgrims who would go on to establish Plymouth Colony in present-day Massachusetts.
-  
-- **In 1810:** Mexico's war for independence from Spain began, and this event is commemorated on September 16th as Mexican Independence Day. While this is a significant event in Mexican
+- **Constitution Day and Citizenship Day**:
+  - Commemorates the formation and signing of the U.S. Constitution on September 17, 1787.
+  - Recognizes all who have become U.S. citizens.
+  - Celebrated with various educational programs and ceremonies across the country.
+
+- **National Apple Dumpling Day**:
+  - Celebrates a traditional American dessert made from baked apples
 ### Positive Qoute
 ------
-"Let your light shine bright! 🌟✨ The world needs your sparkle. 🌏💖"
+"🌟 Believe in the magic within you! 🌈✨"
