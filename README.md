@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Certainly! Here's a bullet-point list of notable events that have occurred in the United States on the 18th of September:
+Here is an event in the USA that occurs on September 18:
 
-- **1793**: Laying of the cornerstone of the U.S. Capitol building by President George Washington in Washington, D.C.
-- **1850**: The Compromise of 1850 stalled the Civil War for a decade, with California admitted as the 31st state.
-- **1947**: The National Security Act of 1947 becomes effective
+- **Air Force Birthday**
+  - Celebrated annually on September 18.
+  - Commemorates the day in 1947 when the United States Air Force was established as a separate branch of the U.S. Armed Forces.
+  - Part of the National Security Act of 1947, which reorganized the military and intelligence agencies post-World War II.
+  - Celebrations might include ceremonies, educational events, and
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 You are capable of amazing things! 🚀✨"
+"🌟 Keep your face always toward the sunshine, and shadows will fall behind you. 🌻✨"
