@@ -1,13 +1,12 @@
-### 📅 Tuesday, 17 September, 2024
+### 📅 Wednesday, 18 September, 2024
 ------
 ### Events
 ------
-Sure, here's a notable event in the United States that takes place on September 17:
+Certainly! Here's a bullet-point list of notable events that have occurred in the United States on the 18th of September:
 
-- **Constitution Day and Citizenship Day**
-  - **What it commemorates**: The signing of the U.S. Constitution on September 17, 1787.
-  - **Significance**: It honors the formation and signing of the U.S. Constitution by thirty-nine brave men who changed the course of history.
-  - **Citizenship Day**: Also recognizes all who, by coming
+- **1793**: Laying of the cornerstone of the U.S. Capitol building by President George Washington in Washington, D.C.
+- **1850**: The Compromise of 1850 stalled the Civil War for a decade, with California admitted as the 31st state.
+- **1947**: The National Security Act of 1947 becomes effective
 ### Positive Qoute
 ------
-"Embrace the journey 🌟, cherish every moment 🌸, and believe in the magic within you ✨!"
+"Believe in yourself and all that you are. 🌟 You are capable of amazing things! 🚀✨"
