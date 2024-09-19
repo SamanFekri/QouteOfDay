@@ -1,14 +1,16 @@
-### 📅 Wednesday, 18 September, 2024
+### 📅 Thursday, 19 September, 2024
 ------
 ### Events
 ------
-Here is an event in the USA that occurs on September 18:
-
-- **Air Force Birthday**
-  - Celebrated annually on September 18.
-  - Commemorates the day in 1947 when the United States Air Force was established as a separate branch of the U.S. Armed Forces.
-  - Part of the National Security Act of 1947, which reorganized the military and intelligence agencies post-World War II.
-  - Celebrations might include ceremonies, educational events, and
+- Talk Like a Pirate Day: 
+  - International event but widely celebrated in the USA.
+  - Encourages people to talk and dress like pirates.
+  - Originated in 1995 as a fun concept by John Baur and Mark Summers.
+  - Became popular after being promoted by humor columnist Dave Barry.
+  
+- National Butterscotch Pudding Day:
+  - An unofficial food holiday in the USA.
+  - Celebrates the sweet and creamy dessert, butterscotch
 ### Positive Qoute
 ------
-"🌟 Keep your face always toward the sunshine, and shadows will fall behind you. 🌻✨"
+"Shine bright like the 🌟 you are, and let your dreams take flight! 🚀💫"
