@@ -433,3 +433,16 @@ Here is an event in the USA that occurs on September 18:
 ### Quote of the day
 "Shine bright like the 🌟 you are, and let your dreams take flight! 🚀💫"
 -----
+## Thursday, 19 September, 2024
+### Events
+Sure, here's an event that takes place in the United States on September 19:
+
+- **Talk Like a Pirate Day**
+  - Observed annually on September 19th.
+  - Originated in 1995 as a fun parody holiday.
+  - Created by John Baur (Ol' Chumbucket) and Mark Summers (Cap'n Slappy) from Albany, Oregon.
+  - Encourages people to speak in pirate lingo for the day.
+  - Gained international fame after
+### Quote of the day
+"Embrace the journey, not just the destination! 🌟🚀 Every step forward is a step towards greatness. 💪✨"
+-----

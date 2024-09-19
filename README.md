@@ -2,15 +2,14 @@
 ------
 ### Events
 ------
-- Talk Like a Pirate Day: 
-  - International event but widely celebrated in the USA.
-  - Encourages people to talk and dress like pirates.
-  - Originated in 1995 as a fun concept by John Baur and Mark Summers.
-  - Became popular after being promoted by humor columnist Dave Barry.
-  
-- National Butterscotch Pudding Day:
-  - An unofficial food holiday in the USA.
-  - Celebrates the sweet and creamy dessert, butterscotch
+Sure, here's an event that takes place in the United States on September 19:
+
+- **Talk Like a Pirate Day**
+  - Observed annually on September 19th.
+  - Originated in 1995 as a fun parody holiday.
+  - Created by John Baur (Ol' Chumbucket) and Mark Summers (Cap'n Slappy) from Albany, Oregon.
+  - Encourages people to speak in pirate lingo for the day.
+  - Gained international fame after
 ### Positive Qoute
 ------
-"Shine bright like the 🌟 you are, and let your dreams take flight! 🚀💫"
+"Embrace the journey, not just the destination! 🌟🚀 Every step forward is a step towards greatness. 💪✨"
