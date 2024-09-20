@@ -1,15 +1,19 @@
-### 📅 Thursday, 19 September, 2024
+### 📅 Friday, 20 September, 2024
 ------
 ### Events
 ------
-Sure, here's an event that takes place in the United States on September 19:
+Certainly! Here are some notable events in the USA that happen on or around September 20:
 
-- **Talk Like a Pirate Day**
-  - Observed annually on September 19th.
-  - Originated in 1995 as a fun parody holiday.
-  - Created by John Baur (Ol' Chumbucket) and Mark Summers (Cap'n Slappy) from Albany, Oregon.
-  - Encourages people to speak in pirate lingo for the day.
-  - Gained international fame after
+- **National Punch Day**
+  - Celebrated annually on September 20, this day is dedicated to enjoying the refreshing beverage known as punch.
+
+- **National Pepperoni Pizza Day**
+  - Observed on September 20, this holiday is for pizza lovers who particularly enjoy the classic pepperoni topping.
+
+- **Constitution Day (or Citizenship Day)**
+  - While officially on September 17,
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🌟🚀 Every step forward is a step towards greatness. 💪✨"
+Sure, here you go:
+
+"Every day is a new beginning 🌅✨. Take a deep breath, smile, and start again! 😊💪🌟"
