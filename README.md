@@ -2,18 +2,13 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events in the USA that happen on or around September 20:
+Sure! Here are some notable events that have taken place on September 20 in the USA:
 
-- **National Punch Day**
-  - Celebrated annually on September 20, this day is dedicated to enjoying the refreshing beverage known as punch.
+- **2011 - Repeal of "Don't Ask, Don't Tell":**
+  - The military policy known as "Don't Ask, Don't Tell" (DADT), which banned openly gay, lesbian, and bisexual people from serving in the United States Armed Forces, was officially repealed on September 20, 2011.
 
-- **National Pepperoni Pizza Day**
-  - Observed on September 20, this holiday is for pizza lovers who particularly enjoy the classic pepperoni topping.
-
-- **Constitution Day (or Citizenship Day)**
-  - While officially on September 17,
+- **2017 - Hurricane Maria:**
+  - Although primarily impacting
 ### Positive Qoute
 ------
-Sure, here you go:
-
-"Every day is a new beginning 🌅✨. Take a deep breath, smile, and start again! 😊💪🌟"
+"🌟 Believe in yourself, and you will be unstoppable! 🚀💪"
