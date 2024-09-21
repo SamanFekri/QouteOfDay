@@ -2,15 +2,15 @@
 ------
 ### Events
 ------
-Certainly! Here is an event that takes place in the USA on September 21st:
+- **World Alzheimer's Day**
+  - Observed annually on September 21st.
+  - Aims to raise awareness about Alzheimer's disease and dementia.
+  - Events and activities are organized by Alzheimer's associations, including educational sessions, fundraisers, and community outreach programs.
 
-- **Event**: International Day of Peace
-- **Date**: September 21
-- **Description**: 
-  - An annual celebration initiated by the United Nations and observed worldwide.
-  - Aimed at promoting peace among nations and peoples.
-  - Activities often include educational events, cultural programs, and moments of silence.
-  - In the USA, events may include peace marches, community gatherings,
+- **International Day of Peace**
+  - Celebrated globally and prominently marked in the USA.
+  - Established by the United Nations and observed on September 21st.
+  - Various events such as peace marches, educational workshops, and
 ### Positive Qoute
 ------
-"Embrace the magic within you and let your light shine brightly ✨🌟💪!"
+"Embrace the journey, 🌟 trust the process, and watch yourself soar! 🚀✨"
