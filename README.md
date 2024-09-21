@@ -1,14 +1,16 @@
-### 📅 Friday, 20 September, 2024
+### 📅 Saturday, 21 September, 2024
 ------
 ### Events
 ------
-Sure! Here are some notable events that have taken place on September 20 in the USA:
+Certainly! Here is an event that takes place in the USA on September 21st:
 
-- **2011 - Repeal of "Don't Ask, Don't Tell":**
-  - The military policy known as "Don't Ask, Don't Tell" (DADT), which banned openly gay, lesbian, and bisexual people from serving in the United States Armed Forces, was officially repealed on September 20, 2011.
-
-- **2017 - Hurricane Maria:**
-  - Although primarily impacting
+- **Event**: International Day of Peace
+- **Date**: September 21
+- **Description**: 
+  - An annual celebration initiated by the United Nations and observed worldwide.
+  - Aimed at promoting peace among nations and peoples.
+  - Activities often include educational events, cultural programs, and moments of silence.
+  - In the USA, events may include peace marches, community gatherings,
 ### Positive Qoute
 ------
-"🌟 Believe in yourself, and you will be unstoppable! 🚀💪"
+"Embrace the magic within you and let your light shine brightly ✨🌟💪!"
