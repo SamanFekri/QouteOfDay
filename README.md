@@ -1,16 +1,12 @@
-### 📅 Saturday, 21 September, 2024
+### 📅 Sunday, 22 September, 2024
 ------
 ### Events
 ------
-- **World Alzheimer's Day**
-  - Observed annually on September 21st.
-  - Aims to raise awareness about Alzheimer's disease and dementia.
-  - Events and activities are organized by Alzheimer's associations, including educational sessions, fundraisers, and community outreach programs.
+Sure, here are some notable events in the USA that have taken place on September 22:
 
-- **International Day of Peace**
-  - Celebrated globally and prominently marked in the USA.
-  - Established by the United Nations and observed on September 21st.
-  - Various events such as peace marches, educational workshops, and
+- **1862**: President Abraham Lincoln issued a preliminary Emancipation Proclamation, declaring that as of January 1, 1863, all enslaved people in the Confederate states would be free.
+- **1975**: President Gerald Ford survived an assassination attempt in San Francisco. Sara Jane Moore, who shot at Ford, was later sentenced to life in prison.
+- **1980**
 ### Positive Qoute
 ------
-"Embrace the journey, 🌟 trust the process, and watch yourself soar! 🚀✨"
+"🌟 Believe in the magic within you, and the universe will conspire to help you shine! ✨💫"
