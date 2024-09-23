@@ -1,16 +1,16 @@
-### 📅 Sunday, 22 September, 2024
+### 📅 Monday, 23 September, 2024
 ------
 ### Events
 ------
-Certainly! Here are some notable events in the USA that happen on September 22:
+Certainly! Here's a list of events in the USA that happen or have happened on September 23rd:
 
-- **American Business Women's Day:** 
-  - Celebrates the achievements and contributions of businesswomen in the United States.
-  - Recognizes the progress made by women in business and the important role they play in the economy.
+- **Autumnal Equinox (annually, date may vary):**
+  - Marks the official beginning of fall.
+  - Day and night are approximately equal in length.
 
-- **Car-Free Day:**
-  - Encourages people to reduce their reliance on cars for a day.
-  - Aims to promote sustainable and eco-friendly modes of transportation such as walking
+- **1862 - Emancipation Proclamation Announced:**
+  - President Abraham Lincoln issued the preliminary Emancipation Proclamation.
+  - Declared that all slaves in Confederate states would be free effective January
 ### Positive Qoute
 ------
-"Every day is a fresh start! 🌞✨ Embrace the possibilities and shine bright! 🌟😊"
+"Embrace the journey, trust the process, and sparkle with positivity! 🌟✨😊"
