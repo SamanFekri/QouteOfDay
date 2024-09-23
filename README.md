@@ -2,15 +2,13 @@
 ------
 ### Events
 ------
-Certainly! Here's a list of events in the USA that happen or have happened on September 23rd:
+Certainly! Here are some notable events that have taken place in the USA on September 23rd:
 
-- **Autumnal Equinox (annually, date may vary):**
-  - Marks the official beginning of fall.
-  - Day and night are approximately equal in length.
-
-- **1862 - Emancipation Proclamation Announced:**
-  - President Abraham Lincoln issued the preliminary Emancipation Proclamation.
-  - Declared that all slaves in Confederate states would be free effective January
+- **1962**: "The Jetsons" premier on ABC.
+  - The first broadcast of the animated series, "The Jetsons," which became a cultural icon and represented a futuristic vision of American life.
+  
+- **1846**: Discovery of Neptune.
+  - Though not an event exclusive to the USA, astronomer Johann Gottfried Galle discovered the planet Neptune on this date
 ### Positive Qoute
 ------
-"Embrace the journey, trust the process, and sparkle with positivity! 🌟✨😊"
+"🌟 Believe in your infinite potential. Your only limitations are those you set upon yourself. 🚀✨"
