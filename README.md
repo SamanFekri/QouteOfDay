@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Sure! Here are some notable events that have occurred or are observed in the USA on September 24:
+- **National Public Lands Day**: Celebrated annually on the fourth Saturday in September, which often includes September 24.
+- **National Punctuation Day**: Recognized on September 24 each year to celebrate the importance of proper punctuation.
+- **Jim Henson Day**: Celebrated on September 24 to honor the birthday of Jim Henson, the creator of the Muppets.
 
-- **National Punctuation Day:** Celebrated to emphasize the importance of proper punctuation for effective communication.
-- **National Cherries Jubilee Day:** A fun food holiday celebrating the classic dessert made with cherries and liqueur, often flambéed and served over vanilla ice cream.
-- **1906 - President Theodore Roosevelt proclaims Devil's Tower in Wyoming as the first National Monument in the United States
+Note: The events listed may vary slightly depending on the year and specific occurrences, and other local or
 ### Positive Qoute
 ------
-"Embrace the journey, bloom where you're planted, and shine bright every day! 🌸✨🌟"
+"Embrace every moment with a smile 😊 and let your positivity shine like the sun 🌞!"
