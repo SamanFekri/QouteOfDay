@@ -1,14 +1,12 @@
-### 📅 Monday, 23 September, 2024
+### 📅 Tuesday, 24 September, 2024
 ------
 ### Events
 ------
-Certainly! Here are some notable events that have taken place in the USA on September 23rd:
+Sure! Here are some notable events that have occurred or are observed in the USA on September 24:
 
-- **1962**: "The Jetsons" premier on ABC.
-  - The first broadcast of the animated series, "The Jetsons," which became a cultural icon and represented a futuristic vision of American life.
-  
-- **1846**: Discovery of Neptune.
-  - Though not an event exclusive to the USA, astronomer Johann Gottfried Galle discovered the planet Neptune on this date
+- **National Punctuation Day:** Celebrated to emphasize the importance of proper punctuation for effective communication.
+- **National Cherries Jubilee Day:** A fun food holiday celebrating the classic dessert made with cherries and liqueur, often flambéed and served over vanilla ice cream.
+- **1906 - President Theodore Roosevelt proclaims Devil's Tower in Wyoming as the first National Monument in the United States
 ### Positive Qoute
 ------
-"🌟 Believe in your infinite potential. Your only limitations are those you set upon yourself. 🚀✨"
+"Embrace the journey, bloom where you're planted, and shine bright every day! 🌸✨🌟"
