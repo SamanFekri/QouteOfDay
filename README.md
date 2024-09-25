@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the United States on September 25:
+Sure! Here are some events that have occurred in the USA on September 25:
 
-- **1957: Integration of Central High School in Little Rock, Arkansas**
-  - Nine African American students, known as the "Little Rock Nine," entered Central High School under the protection of federal troops. This was a significant event in the Civil Rights Movement.
-
-- **1789: First United States Congress Adopts Bill of Rights**
-  - The first United States Congress adopted twelve amendments to the Constitution, which
+- **1789**: The United States Congress proposed the Bill of Rights, which consists of the first ten amendments to the U.S. Constitution.
+- **1957**: The Little Rock Nine, a group of African American students, were escorted into Central High School in Little Rock, Arkansas, by federal troops following the landmark Supreme Court ruling in Brown v. Board of Education.
+- **1981**:
 ### Positive Qoute
 ------
-"Start each day with a 🥳 smile and spread kindness like confetti 🎉!"
+"🌟 Embrace the magic within you and watch the world transform around you! ✨💖"
