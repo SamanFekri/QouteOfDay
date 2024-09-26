@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Sure, here are some notable events that happen or have happened on September 26 in the USA:
+Here are some notable events that have occurred on September 26 in the USA:
 
-- **Johnny Appleseed Day:** Celebrates the birth of John Chapman (Johnny Appleseed) who was born on September 26, 1774, and is known for planting apple trees across the United States.
-- **National Pancake Day:** IHOP often celebrates this day with promotions and special events.
-- **National Situational Awareness Day:** Celebrated to bring attention to
+- **1960: First Televised Presidential Debate**  
+  - The first-ever televised presidential debate took place between Senator John F. Kennedy and Vice President Richard Nixon. This debate had a significant impact on the outcome of the election and marked a turning point in political communication.
+
+- **1983: Stanislav Petrov Incident**
+  - Although not an event that took place within the USA, it is an important date
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟💖✨"
+"Embrace the journey, not just the destination! 🌟✨ Every step forward matters. 🚶‍♀️🚶‍♂️💪"
