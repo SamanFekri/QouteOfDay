@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events that have occurred on September 28th in the USA:
+Here are some significant events that have happened in the USA on September 28:
 
-- **1920**: Eight members of the Chicago White Sox are indicted by a grand jury for allegedly throwing the 1919 World Series, an event later known as the Black Sox Scandal.
-- **1963**: The iconic American civil rights activist Malcolm X delivers his famous speech "Message to the Grass Roots" in Detroit, Michigan.
-- **1972**: The U.S. Congress
+- **1995:** Bob Denard, a French mercenary, captured the Comoros Islands, marking a significant event in international mercenary activities.
+- **2008:** Falcon 1, developed by SpaceX, became the first privately developed liquid-fueled rocket to reach orbit.
+- **2015:** NASA announced the discovery of liquid water on Mars, a significant finding that had implications for future space exploration and
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, trust the process, and bloom with grace. 🌸✨"
+"🌟 Believe in yourself! You are braver than you think, stronger than you seem, and smarter than you know. 💪✨"
