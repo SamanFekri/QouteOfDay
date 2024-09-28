@@ -1,12 +1,12 @@
-### 📅 Friday, 27 September, 2024
+### 📅 Saturday, 28 September, 2024
 ------
 ### Events
 ------
-Here are some notable events in the USA historically associated with September 27:
+Certainly! Here are some notable events that have occurred on September 28th in the USA:
 
-- **1779**: During the American Revolutionary War, John Adams is appointed to negotiate peace with Great Britain.
-- **1964**: The Warren Commission Report is released, concluding that Lee Harvey Oswald acted alone in the assassination of President John F. Kennedy.
-- **1996**: The Taliban captures Afghanistan's capital, Kabul, which has a significant long-term impact on U.S. foreign policy and later leads
+- **1920**: Eight members of the Chicago White Sox are indicted by a grand jury for allegedly throwing the 1919 World Series, an event later known as the Black Sox Scandal.
+- **1963**: The iconic American civil rights activist Malcolm X delivers his famous speech "Message to the Grass Roots" in Detroit, Michigan.
+- **1972**: The U.S. Congress
 ### Positive Qoute
 ------
-"🌟 Every sunrise brings new opportunities. Embrace the day with a positive heart and watch miracles unfold! 🌅✨"
+"🌟 Embrace the journey, trust the process, and bloom with grace. 🌸✨"
