@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Certainly! Here are events in the USA that happen on September 29:
+Here are some notable events in the USA that have occurred on September 29:
 
-- **National Coffee Day**: Celebrated across the country with coffee shops offering deals, discounts, and free coffee.
-- **Michaelmas (St. Michael and All Angels)**: While not as widely observed in the USA as in some other countries, some churches and communities hold services and events.
-- **"VFW (Veterans of Foreign Wars) Day"**: Celebrating the establishment of the VFW organization
+- **2008: Stock Market Crash**
+  - The Dow Jones Industrial Average fell by 777.68 points, the largest single-day point loss at the time. This was driven by the U.S. House of Representatives failing to pass the Emergency Economic Stabilization Act, which proposed a $700 billion bailout.
+
+- **1954: CERN Established**
+  - Although CERN (European Organization for Nuclear Research) is located
 ### Positive Qoute
 ------
-"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
+"Embrace the journey 🌟, for every step forward 🚶 brings you closer to your dreams 💭✨. Keep shining bright! 🌈🌻"
