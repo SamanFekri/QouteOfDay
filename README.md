@@ -2,15 +2,11 @@
 ------
 ### Events
 ------
-Sure, here are some events that typically occur in the USA around September 30:
+Here are a few notable events that typically happen or have happened in the USA on September 30:
 
-- **National Public Lands Day**
-  - Celebrated annually on the last Saturday in September.
-  - The largest single-day volunteer effort for America’s public lands.
-  - Volunteers participate in various activities like tree planting, trail maintenance, and park clean-ups.
-
-- **National Veterans of Foreign Wars Day**
-  - Recognized annually on September 29, but often events and observances continue throughout the weekend, including
+- **International Podcast Day**: While not exclusive to the USA, this day is widely celebrated by American podcasters and listeners to acknowledge the power of podcasts and the growing podcasting community.
+- **National Chewing Gum Day**: Celebrated annually, this day encourages people to enjoy and appreciate the quirky and fun act of chewing gum.
+- **National Hot Mulled Cider Day**: As
 ### Positive Qoute
 ------
-"🌟 Believe in the magic within you. ✨ Every day is a chance to shine brighter! 💖"
+"Believe in the magic within you 🌟✨ and let your light shine bright! 🌞💖🌈"
