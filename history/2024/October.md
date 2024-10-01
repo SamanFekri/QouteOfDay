@@ -1,7 +1,5 @@
-### 📅 Tuesday, 01 October, 2024
-------
+## Tuesday, 01 October, 2024
 ### Events
-------
 Certainly! Here are some events in the USA that typically happen on October 1st:
 
 - **Breast Cancer Awareness Month Begins**
@@ -9,6 +7,6 @@ Certainly! Here are some events in the USA that typically happen on October 1st:
   
 - **Federal Fiscal Year Begins**
   - The U.S. federal government's fiscal year starts on October 1st. This is the date when the
-### Positive Qoute
-------
+### Quote of the day
 "Embrace the journey, 🌟 let your light shine, and watch the miracles unfold! ✨💪😊"
+-----
