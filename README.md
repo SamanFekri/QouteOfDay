@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-On October 2nd, several events might take place across the United States, but one recognizable annual event is:
+Certainly! On October 2nd, one notable event that is recognized annually in the United States is:
 
-- **National Custodial Workers Recognition Day**
-  - This day is dedicated to acknowledging and appreciating the dedicated work of custodial workers who keep schools, businesses, and other institutions clean and well-maintained.
-  - Various organizations and schools might hold special ceremonies or activities to honor their custodial staff.
-  
-Additionally, depending on the year, there might be other local or cultural events
+- **National Custodial Workers Recognition Day**:  
+  - Celebrated on October 2nd each year.
+  - Acknowledges and appreciates the hard work and dedication of custodial workers in maintaining clean, safe, and healthy environments in schools, businesses, and public spaces.
+  - Encourages people to express gratitude to cleaning staff for their essential services.
+  - Some organizations might
 ### Positive Qoute
 ------
-"Believe in the magic within you! 🌟✨ You're capable of amazing things. 🚀💖"
+"🌟 Believe in yourself, and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
