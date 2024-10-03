@@ -48,3 +48,15 @@ Certainly! On October 2nd, one notable event that is recognized annually in the 
 ### Quote of the day
 "🌟 Believe in yourself, and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
 -----
+## Thursday, 03 October, 2024
+### Events
+Certainly! Here are some notable events that have occurred or are commemorated in the United States on October 3rd:
+
+- **National Techies Day**: Celebrated annually to encourage young students to consider a career in technology and to highlight the contributions of tech professionals.
+
+- **Mean Girls Day**: Inspired by a famous line from the movie "Mean Girls," this unofficial holiday is celebrated by fans of the film.
+
+- **National Boyfriend Day**: An unofficial holiday to appreciate and show affection
+### Quote of the day
+"🌟 Embrace the journey, for every step is a beautiful adventure! 🚀🌈"
+-----
