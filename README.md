@@ -2,13 +2,9 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events that have occurred or are commemorated in the United States on October 3rd:
+- **National Techies Day**: Celebrated on October 3rd, National Techies Day encourages students to consider a career in technology. It highlights the importance of technology in today's world and aims to inspire the next generation of tech innovators.
 
-- **National Techies Day**: Celebrated annually to encourage young students to consider a career in technology and to highlight the contributions of tech professionals.
-
-- **Mean Girls Day**: Inspired by a famous line from the movie "Mean Girls," this unofficial holiday is celebrated by fans of the film.
-
-- **National Boyfriend Day**: An unofficial holiday to appreciate and show affection
+- **Mean Girls Day**: A pop culture reference originating from the 2004 movie "Mean Girls," October 3rd is celebrated by fans of the film. The date is significant due to a memorable scene where the protagonist notes the date during a
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, for every step is a beautiful adventure! 🚀🌈"
+"🌟 Embrace the day with a heart full of gratitude and let your light shine bright! ✨😊"
