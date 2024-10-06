@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are a few notable events that have occurred historically in the United States on October 6th:
+Here are some events that have taken place or been observed in the United States on October 6 throughout different years:
 
-- **German-American Day**: This day commemorates the founding of Germantown, Pennsylvania, in 1683, by 13 German families. It is a celebration of German-American heritage and culture across the United States.
-  
-- **National Mad Hatter Day**: Inspired by the character from Lewis Carroll's "Alice's Adventures in Wonderland," this day is celebrated on October 6th
+- **German-American Day**: Celebrated on October 6, this day commemorates the contributions of German immigrants to American culture and society. It marks the anniversary of the arrival of 13 German families in Philadelphia in 1683.
+
+- **National Walk to School Day**: Typically observed on the first Wednesday of October, this event encourages students nationwide to walk or bike to school
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🚀✨ Every step forward is a step toward your dreams. 🌟💪"
+"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅😊✨"
