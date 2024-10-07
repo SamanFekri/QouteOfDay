@@ -1,12 +1,16 @@
-### 📅 Sunday, 06 October, 2024
+### 📅 Monday, 07 October, 2024
 ------
 ### Events
 ------
-Here are some events that have taken place or been observed in the United States on October 6 throughout different years:
+An event in the USA that occurs annually around October 7 is the Albuquerque International Balloon Fiesta. Here are the key details:
 
-- **German-American Day**: Celebrated on October 6, this day commemorates the contributions of German immigrants to American culture and society. It marks the anniversary of the arrival of 13 German families in Philadelphia in 1683.
-
-- **National Walk to School Day**: Typically observed on the first Wednesday of October, this event encourages students nationwide to walk or bike to school
+- **Event:** Albuquerque International Balloon Fiesta
+- **Location:** Albuquerque, New Mexico
+- **Duration:** Typically spans nine days in early October
+- **Highlights:**
+  - Mass Ascension: Hundreds of colorful hot air balloons launching at dawn.
+  - Special Shape Rodeo: Unique and novelty-shaped balloons.
+  - Balloon Glows: Evening events where balloons are
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅😊✨"
+"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 💪✨"
