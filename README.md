@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are a few events that typically occur or have occurred around October 8th in the USA. Please note that specific events may vary each year:
+Here are some significant events that have occurred on October 8 in the United States:
 
-- **Indigenous Peoples' Day/Columbus Day**: 
-  - This day is observed on the second Monday of October, which can fall on or around October 8th. 
-  - It is a federal holiday that celebrates Columbus's landing in the Americas, though many states and cities now recognize it as Indigenous Peoples' Day to honor
+- **Great Chicago Fire (1871):** The devastating fire that began on October 8, 1871, in Chicago, Illinois, destroyed thousands of buildings, killed an estimated 300 people, and left over 100,000 residents homeless.
+
+- **Cleveland Indians Win World Series (1948):** The Cleveland Indians (now the Cleveland Guardians) defeated the Boston Braves in the 1948 World
 ### Positive Qoute
 ------
-"Embrace the magic of each new day and shine your light brightly! ✨🌟😊"
+"Embrace the journey, not just the destination 🚀✨ Every step forward is a step toward success! 🌟💪"
