@@ -1,12 +1,12 @@
-### 📅 Monday, 07 October, 2024
+### 📅 Tuesday, 08 October, 2024
 ------
 ### Events
 ------
-Here are some events that typically occur in the USA around October 7th. Note that these events could vary year by year and may not happen exactly on the same date:
+Here are a few events that typically occur or have occurred around October 8th in the USA. Please note that specific events may vary each year:
 
-- **Albuquerque International Balloon Fiesta**: This is an annual hot air balloon festival that usually takes place in early October in Albuquerque, New Mexico. It is one of the largest balloon festivals in the world.
-  
-- **Fleet Week San Francisco**: Around this time, San Francisco hosts Fleet Week, which includes air shows
+- **Indigenous Peoples' Day/Columbus Day**: 
+  - This day is observed on the second Monday of October, which can fall on or around October 8th. 
+  - It is a federal holiday that celebrates Columbus's landing in the Americas, though many states and cities now recognize it as Indigenous Peoples' Day to honor
 ### Positive Qoute
 ------
-"🌟 Believe in the magic within you, and let your dreams take flight! 🚀✨"
+"Embrace the magic of each new day and shine your light brightly! ✨🌟😊"
