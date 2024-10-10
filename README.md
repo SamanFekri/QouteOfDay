@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events and observances that take place in the United States around October 10:
+Certainly! Here's a bullet-point summary of a significant event that happens in the USA on October 10th:
 
-- **Columbus Day**: Celebrated on the second Monday of October, this federal holiday commemorates Christopher Columbus's landing in the Americas. Many states and cities have transitioned to observing Indigenous Peoples' Day instead, to honor Native American history and culture.
-
-- **Indigenous Peoples' Day**: Recognized on the same day as Columbus Day in many parts of the U.S., this observance
+- **Event**: Columbus Day (also recognized as Indigenous Peoples' Day in many areas)
+- **Date**: October 10th (in 2022; it varies as it is the second Monday in October)
+- **Significance**:
+  - Traditionally celebrates Christopher Columbus's arrival in the Americas on October 12, 1492.
+  - In recent years, many
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🌟✨ Every step you take is a step towards greatness. 🚀💪"
+"Embrace the glorious mess that you are and shine on! ✨🌟😊"
