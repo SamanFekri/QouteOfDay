@@ -1,12 +1,12 @@
-### 📅 Wednesday, 09 October, 2024
+### 📅 Thursday, 10 October, 2024
 ------
 ### Events
 ------
-Here are some noteworthy events that occur in the USA around October 9:
+Here are some notable events and observances that take place in the United States around October 10:
 
-- **Leif Erikson Day**: Celebrated on October 9, Leif Erikson Day honors the Norse explorer believed to have been the first European to set foot in North America. Various communities, especially those with a strong Scandinavian presence, may hold events in recognition of Erikson's achievements.
+- **Columbus Day**: Celebrated on the second Monday of October, this federal holiday commemorates Christopher Columbus's landing in the Americas. Many states and cities have transitioned to observing Indigenous Peoples' Day instead, to honor Native American history and culture.
 
-Additionally, there may be other events or observances on this date, but Leif Erikson Day is the most
+- **Indigenous Peoples' Day**: Recognized on the same day as Columbus Day in many parts of the U.S., this observance
 ### Positive Qoute
 ------
-"🌟 Every day is a new beginning. Embrace it with enthusiasm and make it amazing! 💪😊"
+"Embrace the journey, not just the destination! 🌟✨ Every step you take is a step towards greatness. 🚀💪"
