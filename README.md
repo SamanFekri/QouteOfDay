@@ -1,14 +1,15 @@
-### 📅 Thursday, 10 October, 2024
+### 📅 Friday, 11 October, 2024
 ------
 ### Events
 ------
-Certainly! Here's a bullet-point summary of a significant event that happens in the USA on October 10th:
+Certainly! Here are some events that are observed in the United States on October 11th:
 
-- **Event**: Columbus Day (also recognized as Indigenous Peoples' Day in many areas)
-- **Date**: October 10th (in 2022; it varies as it is the second Monday in October)
-- **Significance**:
-  - Traditionally celebrates Christopher Columbus's arrival in the Americas on October 12, 1492.
-  - In recent years, many
+- **National Coming Out Day**:
+  - Celebrated annually to support individuals who identify as LGBTQ+ in publicly disclosing their sexual orientation or gender identity.
+  - Promotes a safe world where LGBTQ+ individuals can live truthfully and openly.
+  - First observed in 1988, inspired by the 1987 National March on Washington for Lesbian and Gay Rights.
+  
+- **General Pulaski
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are and shine on! ✨🌟😊"
+"Radiate positivity and let your light shine bright! ☀️✨ Remember, every day is a new beginning. 🌸💪"
