@@ -241,3 +241,18 @@ Certainly! Here are some events that are observed in the United States on Octobe
 ### Quote of the day
 "Radiate positivity and let your light shine bright! ☀️✨ Remember, every day is a new beginning. 🌸💪"
 -----
+## Friday, 11 October, 2024
+### Events
+Certainly! Here are some events in the USA that occur around October 11th:
+
+- **National Coming Out Day:**
+  - Celebrated annually on October 11th.
+  - Supports LGBTQ+ individuals in "coming out" and sharing their sexual orientation or gender identity.
+  - Aims to raise awareness about LGBTQ+ rights and foster a culture of openness and acceptance.
+
+- **General Pulaski Memorial Day:**
+  - Observed on October 11th or around this date.
+ 
+### Quote of the day
+"Embrace the journey, not just the destination 🌟🚀✨"
+-----
