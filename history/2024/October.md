@@ -267,3 +267,14 @@ Here are some events and observances that take place in the United States on Oct
 ### Quote of the day
 "🌟 Embrace today with an open heart; the universe is full of surprises waiting just for you! 🌈✨"
 -----
+## Saturday, 12 October, 2024
+### Events
+Certainly! Here are some noteworthy events and observances that occur in the USA around October 12:
+
+- **Columbus Day (Observed on the second Monday in October):**
+  - A federal holiday in the United States commemorating the landing of Christopher Columbus in the Americas in 1492.
+  - It is observed in various ways, with some states and cities holding parades and events.
+  - The holiday is controversial due to its impact on indigenous peoples, leading some communities to observe Indigenous Peoples
+### Quote of the day
+"Embrace the day with a smile 😊 and let your inner light shine brightly 🌟!"
+-----

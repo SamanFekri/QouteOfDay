@@ -2,12 +2,12 @@
 ------
 ### Events
 ------
-Here are some events and observances that take place in the United States on October 12:
+Certainly! Here are some noteworthy events and observances that occur in the USA around October 12:
 
-- **Columbus Day/Indigenous Peoples' Day**: 
-  - Traditionally celebrated on the second Monday in October, which can occasionally fall on October 12.
-  - Columbus Day commemorates Christopher Columbus's landing in the Americas on October 12, 1492.
-  - In recent years, many states and cities have adopted Indigenous Peoples' Day instead, to honor the history and culture of
+- **Columbus Day (Observed on the second Monday in October):**
+  - A federal holiday in the United States commemorating the landing of Christopher Columbus in the Americas in 1492.
+  - It is observed in various ways, with some states and cities holding parades and events.
+  - The holiday is controversial due to its impact on indigenous peoples, leading some communities to observe Indigenous Peoples
 ### Positive Qoute
 ------
-"🌟 Embrace today with an open heart; the universe is full of surprises waiting just for you! 🌈✨"
+"Embrace the day with a smile 😊 and let your inner light shine brightly 🌟!"
