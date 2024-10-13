@@ -1,13 +1,12 @@
-### 📅 Saturday, 12 October, 2024
+### 📅 Sunday, 13 October, 2024
 ------
 ### Events
 ------
-Certainly! Here are some noteworthy events and observances that occur in the USA around October 12:
+Here are some events and observances in the USA that typically occur around October 13:
 
-- **Columbus Day (Observed on the second Monday in October):**
-  - A federal holiday in the United States commemorating the landing of Christopher Columbus in the Americas in 1492.
-  - It is observed in various ways, with some states and cities holding parades and events.
-  - The holiday is controversial due to its impact on indigenous peoples, leading some communities to observe Indigenous Peoples
+- **National Metastatic Breast Cancer Awareness Day**: Recognized annually on October 13, this day aims to raise awareness of metastatic breast cancer and the need for more research and support for those affected by this advanced stage of the disease.
+
+- **U.S. Navy Birthday**: Celebrated on October 13, this day marks the anniversary of the establishment of the United States Navy in 1775
 ### Positive Qoute
 ------
-"Embrace the day with a smile 😊 and let your inner light shine brightly 🌟!"
+"Shine bright like the 🌟 you are; your potential is limitless! 🚀✨"
