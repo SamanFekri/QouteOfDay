@@ -2,11 +2,16 @@
 ------
 ### Events
 ------
-Here are some events and observances in the USA that typically occur around October 13:
+Here are some events that occur on or around October 13 in the USA:
 
-- **National Metastatic Breast Cancer Awareness Day**: Recognized annually on October 13, this day aims to raise awareness of metastatic breast cancer and the need for more research and support for those affected by this advanced stage of the disease.
+- **U.S. Navy's Birthday**:
+  - Celebrated annually on October 13.
+  - Commemorates the establishment of the United States Navy in 1775.
+  - Various events and ceremonies are held by naval institutions and communities to honor the day.
 
-- **U.S. Navy Birthday**: Celebrated on October 13, this day marks the anniversary of the establishment of the United States Navy in 1775
+- **National Train Your Brain Day**:
+  - Observed on October 13.
+  - Encourages individuals to engage in activities that challenge
 ### Positive Qoute
 ------
-"Shine bright like the 🌟 you are; your potential is limitless! 🚀✨"
+"🌟 Shine bright like a star, because the universe is yours to explore! 🚀✨"
