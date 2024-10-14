@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-On October 14, 2023, a significant event that took place in the USA is the solar eclipse. Here are some key points about this event:
+An event in the USA that occurs on October 14th is Indigenous Peoples' Day, which is observed in several states and communities. Here are some key points about the event:
 
-- **Annular Solar Eclipse**: The eclipse on October 14, 2023, is an annular solar eclipse, where the moon passes between the Earth and the sun, blocking out the center of the sun and leaving a ring-like appearance, often called the "ring of fire."
-
-- **Path of Annularity**: The
+- **Indigenous Peoples' Day**: This day is celebrated to honor and recognize the cultural heritage and contributions of Indigenous peoples in America.
+- **Alternative to Columbus Day**: It is observed as an alternative to Columbus Day, which traditionally also falls on the second Monday in October.
+- **Recognition and Support**:
 ### Positive Qoute
 ------
-"Every day is a fresh start 🌅✨. Embrace the possibility and shine brightly! 💫😊"
+"Embrace the journey, not just the destination! 🌟✨ Every step forward is a victory! 🚶‍♂️💪"
