@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-As of my last update, October 17 does not have a widely recognized, specific recurring event that takes place across the entire United States. However, there are several events or occurrences that might happen on or around this date annually or occasionally. Here are some possibilities:
+Here are some events that occur in the United States around October 17. Note that these events may not happen every year precisely on this date, but they often take place around this time:
 
-- **Local Festivals and Fairs**: Various cities and towns might have local festivals, fairs, or community events that could occur on October 17.
-  
-- **Sporting Events**: Depending on the year, there may be
+- **National Pasta Day**: Celebrated annually on October 17, National Pasta Day is an occasion to enjoy various pasta dishes. Restaurants may offer special deals or new pasta menu items, and people often try cooking new pasta recipes at home.
+
+- **National Mulligan Day**: Also celebrated on October 
 ### Positive Qoute
 ------
-"Every day is a new opportunity to shine! ☀️✨ Believe in yourself and embrace the journey! 🌟🚀"
+"Embrace the journey, not just the destination 🌟✨ Every step forward is a victory! 🚶‍♀️💪😊"
