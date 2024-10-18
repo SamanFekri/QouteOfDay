@@ -1,12 +1,15 @@
-### 📅 Thursday, 17 October, 2024
+### 📅 Friday, 18 October, 2024
 ------
 ### Events
 ------
-Here are some events that occur in the United States around October 17. Note that these events may not happen every year precisely on this date, but they often take place around this time:
+Here are some events and observances in the USA that occur on October 18th:
 
-- **National Pasta Day**: Celebrated annually on October 17, National Pasta Day is an occasion to enjoy various pasta dishes. Restaurants may offer special deals or new pasta menu items, and people often try cooking new pasta recipes at home.
+- **Alaska Day**:
+  - Celebrated in the state of Alaska.
+  - Commemorates the formal transfer of the Territory of Alaska from Russia to the United States, which took place on October 18, 1867.
+  - Typically involves parades, reenactments, and other festivities in cities like Sitka, the site of the transfer ceremony.
 
-- **National Mulligan Day**: Also celebrated on October 
+- **National No Beard Day
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination 🌟✨ Every step forward is a victory! 🚶‍♀️💪😊"
+"Every day is a fresh start! 🌅 Embrace the journey and shine bright! ✨💪"
