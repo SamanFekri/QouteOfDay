@@ -2,11 +2,15 @@
 ------
 ### Events
 ------
-Here are some events that have been known to occur in the United States around October 20:
+Here are some significant events that occur around October 20th in the USA:
 
-- **National Day on Writing**: Celebrated on October 20, this event emphasizes the significance of writing in the lives of individuals and encourages people to engage in different forms of writing.
+- **National Day on Writing (October 20):**
+  - Celebrated annually on October 20th.
+  - Established by the National Council of Teachers of English (NCTE).
+  - Encourages students, educators, and the general public to recognize writing in all its forms.
+  - Involves writing-related activities, events, and discussions to promote literacy.
 
-- **Peak of Fall Foliage**: In many parts of the United States, particularly in the Northeast and Midwest, October 20 often marks the peak period for vibrant fall foliage, attracting tourists to enjoy the
+- **Fall Foliage Viewing:
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🌟🚀😊"
+"Embrace the journey, not just the destination! 🌟🚀 Every step forward is progress. Keep shining! ✨😊"
