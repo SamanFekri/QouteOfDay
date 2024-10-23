@@ -1,12 +1,14 @@
-### 📅 Tuesday, 22 October, 2024
+### 📅 Wednesday, 23 October, 2024
 ------
 ### Events
 ------
-On October 22, various events may take place annually in the United States. Here are some notable ones that often occur around this date:
+Sure, here are some notable events that have occurred in the USA on October 23 in different years:
 
-- **Bridge Day**: Usually celebrated on the third Saturday of October, this event is one of the largest extreme sports gatherings, held at the New River Gorge Bridge in Fayetteville, West Virginia. It often falls around October 22 and features base jumping, rappelling, and more.
-
-- **Alabama National Fair**: Typically held in Montgomery, Alabama
+- **October 23, 1983: Beirut Barracks Bombings**
+  - Location: Beirut, Lebanon
+  - Two truck bombs struck buildings housing Multinational Force in Lebanon (MNF) peacekeepers.
+  - 241 American servicemen were killed, along with 58 French paratroopers and six civilians.
+  - It was one of the deadliest attacks against the
 ### Positive Qoute
 ------
-"Embrace the journey and let your inner light shine! 🌟✨ Keep moving forward with a heart full of gratitude. 💖😊"
+"Embrace the journey, not just the destination 🌟✨. Every step forward is a step toward greatness 🚀💪!"

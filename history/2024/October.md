@@ -507,3 +507,15 @@ On October 22, various events may take place annually in the United States. Here
 ### Quote of the day
 "Embrace the journey and let your inner light shine! 🌟✨ Keep moving forward with a heart full of gratitude. 💖😊"
 -----
+## Wednesday, 23 October, 2024
+### Events
+Sure, here are some notable events that have occurred in the USA on October 23 in different years:
+
+- **October 23, 1983: Beirut Barracks Bombings**
+  - Location: Beirut, Lebanon
+  - Two truck bombs struck buildings housing Multinational Force in Lebanon (MNF) peacekeepers.
+  - 241 American servicemen were killed, along with 58 French paratroopers and six civilians.
+  - It was one of the deadliest attacks against the
+### Quote of the day
+"Embrace the journey, not just the destination 🌟✨. Every step forward is a step toward greatness 🚀💪!"
+-----
