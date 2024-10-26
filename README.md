@@ -2,14 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred or typically occur in the USA around October 26. However, please note that specific events can vary each year.
+Here are a few events that commonly occur around October 26th in the USA, although specific annual events may vary:
 
-- **Halloween Preparations:**
-  - Across the United States, communities are gearing up for Halloween, which takes place on October 31.
-  - This includes decorating homes, purchasing costumes, and organizing community events like haunted houses and trick-or-treating routes.
-  
-- **Sporting Events:**
-  - The National Football League (
+- **National Pumpkin Day**: Celebrated on October 26th, this day honors pumpkins, the versatile fruit that is a staple during the fall season in the United States. People often engage in pumpkin carving, cooking pumpkin-based recipes, and visiting pumpkin patches.
+
+- **Halloween Preparations**: As Halloween approaches on October 31st, many communities, schools, and organizations
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🌟🌈 Every step forward counts! 🚶‍♀️💪"
+"Every day is a new beginning 🌅, take a deep breath and start again 🌟✌️."
