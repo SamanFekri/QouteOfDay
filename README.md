@@ -2,12 +2,12 @@
 ------
 ### Events
 ------
-- **Halloween**  
-  - Celebrated annually on October 31st.
-  - Originates from ancient Celtic festival of Samhain.
-  - Traditions include trick-or-treating, costume parties, carving pumpkins (jack-o'-lanterns), and visiting haunted houses.
-  - Popular among both children and adults.
-  - Often involves themed decorations and festive activities.
+- **Halloween Celebration:**
+  - Halloween is an annual event celebrated on October 31st in the United States.
+  - It is a holiday with roots in ancient Celtic festivals, particularly Samhain, and later influenced by Christian traditions.
+  - Common activities include dressing up in costumes, often inspired by spooky or supernatural themes.
+  - Trick-or-treating is a popular activity for children, where they go door-to-door in their neighborhoods to collect candy.
+  - Many people decorate their homes
 ### Positive Qoute
 ------
-"Believe in your dreams and they will come true! 🌟✨ Keep shining bright! 🌈😊"
+"Embrace the journey, every step makes you stronger! 🚶‍♀️💪✨"
