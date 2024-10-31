@@ -1,13 +1,13 @@
-### 📅 Wednesday, 30 October, 2024
+### 📅 Thursday, 31 October, 2024
 ------
 ### Events
 ------
-On October 30th, various events generally take place across the United States. Here are a few examples, but keep in mind that these can change year by year:
-
-- **Mischief Night**: 
-  - Observed on October 30th, this informal holiday is popular in some regions of the U.S. 
-  - Known for playful pranks and mild vandalism the night before Halloween.
-  - Activities can include toilet papering homes, throwing eggs, or other minor acts
+- **Halloween**  
+  - Celebrated annually on October 31st.
+  - Originates from ancient Celtic festival of Samhain.
+  - Traditions include trick-or-treating, costume parties, carving pumpkins (jack-o'-lanterns), and visiting haunted houses.
+  - Popular among both children and adults.
+  - Often involves themed decorations and festive activities.
 ### Positive Qoute
 ------
-"🌟 Shine bright and embrace every moment, for the world is your canvas and today is your masterpiece! 🎨✨"
+"Believe in your dreams and they will come true! 🌟✨ Keep shining bright! 🌈😊"

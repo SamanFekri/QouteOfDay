@@ -680,3 +680,14 @@ On October 30th, various events generally take place across the United States. H
 ### Quote of the day
 "🌟 Shine bright and embrace every moment, for the world is your canvas and today is your masterpiece! 🎨✨"
 -----
+## Thursday, 31 October, 2024
+### Events
+- **Halloween**  
+  - Celebrated annually on October 31st.
+  - Originates from ancient Celtic festival of Samhain.
+  - Traditions include trick-or-treating, costume parties, carving pumpkins (jack-o'-lanterns), and visiting haunted houses.
+  - Popular among both children and adults.
+  - Often involves themed decorations and festive activities.
+### Quote of the day
+"Believe in your dreams and they will come true! 🌟✨ Keep shining bright! 🌈😊"
+-----
