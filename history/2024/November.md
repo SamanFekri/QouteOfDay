@@ -123,3 +123,16 @@ Here are some notable events that occur in the United States on or around Novemb
 ### Quote of the day
 "Embrace the journey, every step brings growth 🌱✨ Keep shining your light, the world needs your sparkle! 🌟😊"
 -----
+## Thursday, 07 November, 2024
+### Events
+An event that typically occurs on November 7th in the USA is the general election, especially when it falls on the first Tuesday after November 1st in even-numbered years. Here are the key points about this event:
+
+- **Timing**: 
+  - Held on the first Tuesday after the first Monday in November during even-numbered years.
+  - If November 7 falls on that Tuesday, then elections are held on that date.
+
+- **Types of Elections**: 
+  -
+### Quote of the day
+"🌟 Shine bright like the stars, and let your light guide you to new adventures! ✨🚀"
+-----
