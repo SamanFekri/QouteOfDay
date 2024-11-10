@@ -1,14 +1,16 @@
-### 📅 Saturday, 09 November, 2024
+### 📅 Sunday, 10 November, 2024
 ------
 ### Events
 ------
-Here are some recurring events or observances in the United States that often happen around November 9th, though specific events can vary by year:
+Here are some events that typically occur around November 10th in the USA:
 
-- **Veterans Day Observations:**
-  - Though Veterans Day is officially on November 11th, many communities begin observing the holiday with events and ceremonies starting around November 9th. This includes parades, memorial services, and educational outreach in schools.
+- **Marine Corps Birthday:** 
+  - Celebrated annually on November 10th.
+  - Marks the founding of the United States Marine Corps in 1775.
+  - Includes ceremonies, balls, and other commemorative events held by Marines and Marine veterans.
 
-- **Election Results Analysis:**
-  - If November 9th falls shortly after an
+- **Veterans Day Observances (upcoming):**
+  - While Veterans Day is officially on November 11th, many communities and organizations may begin
 ### Positive Qoute
 ------
-"Every day is a fresh start! Embrace the new opportunities 🌟✨ Keep shining bright! 💫😊"
+"Embrace the journey, not just the destination! 🌟🚀 Keep shining and moving forward! 💪✨"
