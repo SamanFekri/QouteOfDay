@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-On November 11th in the United States, the country observes Veterans Day. Here are some key points about the event:
-
-- **Purpose**: Veterans Day honors military veterans, who are individuals that have served in the United States Armed Forces.
-
-- **History**: Originally known as Armistice Day, it commemorated the end of World War I, which officially occurred on the 11th hour of the 11th day of the 11th month in 1918. In 
+- **Veterans Day**  
+  - Veterans Day is a federal holiday in the United States observed annually on November 11.
+  - The day honors military veterans, that is, persons who have served in the United States Armed Forces.
+  - It coincides with Armistice Day and Remembrance Day, which are celebrated in other parts of the world and mark the anniversary of the end of World War I.
+  - The major hostilities of World War I were formally ended at the 
 ### Positive Qoute
 ------
-"Choose joy daily and let your light shine bright! ✨😊☀️"
+"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 🚀✨"
