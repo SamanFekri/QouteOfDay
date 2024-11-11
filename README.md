@@ -1,16 +1,12 @@
-### 📅 Sunday, 10 November, 2024
+### 📅 Monday, 11 November, 2024
 ------
 ### Events
 ------
-Certainly! Here are some events that typically occur around November 10 in the USA:
+On November 11th in the United States, the country observes Veterans Day. Here are some key points about the event:
 
-- **U.S. Marine Corps Birthday**: 
-  - Celebrated annually on November 10.
-  - Marks the founding of the Marine Corps in 1775.
-  - Includes formal events like the Marine Corps Birthday Ball, cake-cutting ceremonies, and other commemorative activities.
+- **Purpose**: Veterans Day honors military veterans, who are individuals that have served in the United States Armed Forces.
 
-- **Veterans Day Observations** (though Veterans Day is on November 11):
-  - Preparations and early events
+- **History**: Originally known as Armistice Day, it commemorated the end of World War I, which officially occurred on the 11th hour of the 11th day of the 11th month in 1918. In 
 ### Positive Qoute
 ------
-"Rise above the storm and you will find the sunshine ☀️🌈✨"
+"Choose joy daily and let your light shine bright! ✨😊☀️"
