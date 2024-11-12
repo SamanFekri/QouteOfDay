@@ -1,12 +1,12 @@
-### 📅 Monday, 11 November, 2024
+### 📅 Tuesday, 12 November, 2024
 ------
 ### Events
 ------
-- **Veterans Day**  
-  - Veterans Day is a federal holiday in the United States observed annually on November 11.
-  - The day honors military veterans, that is, persons who have served in the United States Armed Forces.
-  - It coincides with Armistice Day and Remembrance Day, which are celebrated in other parts of the world and mark the anniversary of the end of World War I.
-  - The major hostilities of World War I were formally ended at the 
+On November 12th in the USA, there aren't any major national holidays or recurring public events. However, here are some things that might occur around that date:
+
+- **Veterans Day Observations**: While Veterans Day is officially on November 11th, some events and ceremonies may take place on the 12th if the 11th is a weekend day, as communities continue to honor military veterans.
+  
+- **Thanksgiving Preparations**: In the lead-up to Thanksgiving, which
 ### Positive Qoute
 ------
-"🌟 Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. 🚀✨"
+"Every day is a new beginning 🌅, take a deep breath and start again with a smile 😊!"
