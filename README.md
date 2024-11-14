@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are a couple of notable events that might happen in the USA around November 14th. Please note that specific events can vary from year to year:
+Here's a list of events and observances that typically occur in the United States around November 14th. Keep in mind that specific events can vary year to year:
 
-- **National Pickle Day**: Celebrated annually on November 14th, this day honors the history and enjoyment of pickles as a versatile and beloved food. Various pickle-themed events or promotions might occur in different cities.
+- **National American Teddy Bear Day**: Celebrated to honor the iconic childhood toy that has been a staple in American culture.
+  
+- **National Education Support Professionals Day**: Falling on the Wednesday of American Education Week, this day recognizes the contributions of school support staff, such as custodians, administrative staff, and bus drivers.
 
-- **Veterans Day Observances**: Although Veterans Day is officially on November 11th, some communities might
+
 ### Positive Qoute
 ------
-"🌟 Every day is a new beginning, filled with endless possibilities! 🌈✨ Keep shining! 💪😊"
+"🌟 Every day is a new beginning. Take a deep breath, smile, and start again! 🌿😊"
