@@ -1,14 +1,12 @@
-### 📅 Thursday, 14 November, 2024
+### 📅 Friday, 15 November, 2024
 ------
 ### Events
 ------
-Here's a list of events and observances that typically occur in the United States around November 14th. Keep in mind that specific events can vary year to year:
+Here are some events that typically occur in the United States around November 15th:
 
-- **National American Teddy Bear Day**: Celebrated to honor the iconic childhood toy that has been a staple in American culture.
-  
-- **National Education Support Professionals Day**: Falling on the Wednesday of American Education Week, this day recognizes the contributions of school support staff, such as custodians, administrative staff, and bus drivers.
+- **American Education Week**: This event usually takes place during the week prior to the week of Thanksgiving and may include November 15th. It is organized by the National Education Association (NEA) and aims to celebrate public education and honor individuals who are making a difference in ensuring that every child receives a quality education.
 
-
+- **National Philanthropy Day**: Celebrated on November 15th, this
 ### Positive Qoute
 ------
-"🌟 Every day is a new beginning. Take a deep breath, smile, and start again! 🌿😊"
+"Embrace the journey, not just the destination! 🌟✨ Every step counts! 🚶‍♂️💪"
