@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-While there isn't a specific national event that occurs annually on November 17th across the United States, some recurring events or observances may fall on or around this date, depending on the year. However, here are some examples of what might be occurring:
+Here are some notable events and observances that typically occur around November 17 in the USA:
 
-- **Local Events and Festivals**: Various cities and towns might host local festivals, community gatherings, or holiday markets as the holiday season approaches.
+- **Great American Smokeout**: Usually observed on the third Thursday of November, the Great American Smokeout encourages smokers to make a plan to quit smoking. This event is organized by the American Cancer Society.
 
-- **Thanksgiving Preparations**: In mid-November, many Americans begin preparing for Thanksgiving,
+- **National Unfriend Day**: This social media event, popularized by comedian Jimmy Kimmel, encourages people to go through their online friend lists and clean out the connections that are not meaningful
 ### Positive Qoute
 ------
-"Radiate positivity and watch the world 🌟 brighten up around you! 😊✨"
+"🌟 Believe in the magic within you and let your dreams soar high! ✨🕊️"

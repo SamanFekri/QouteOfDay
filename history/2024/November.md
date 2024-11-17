@@ -340,3 +340,13 @@ While there isn't a specific national event that occurs annually on November 17t
 ### Quote of the day
 "Radiate positivity and watch the world 🌟 brighten up around you! 😊✨"
 -----
+## Sunday, 17 November, 2024
+### Events
+Here are some notable events and observances that typically occur around November 17 in the USA:
+
+- **Great American Smokeout**: Usually observed on the third Thursday of November, the Great American Smokeout encourages smokers to make a plan to quit smoking. This event is organized by the American Cancer Society.
+
+- **National Unfriend Day**: This social media event, popularized by comedian Jimmy Kimmel, encourages people to go through their online friend lists and clean out the connections that are not meaningful
+### Quote of the day
+"🌟 Believe in the magic within you and let your dreams soar high! ✨🕊️"
+-----
