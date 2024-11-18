@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some events and occurrences in the USA that have historically fallen around November 18. However, please verify with current sources as specific events can vary by year:
+There are several events in the United States that may occur around November 18 each year, though they can vary by location and year. Here are a few recurring or notable events that sometimes coincide with this date:
 
-- **Thanksgiving Preparations**: Many Americans begin preparations for Thanksgiving, which is celebrated on the fourth Thursday in November.
-  
-- **Holiday Shopping Season**: Retailers often start early holiday sales around this time, leading up to Black Friday which typically falls shortly after.
+- **Mickey Mouse's Birthday**: November 18 is recognized as the birthday of Mickey Mouse, marking the release date of his first appearance in the cartoon "Steamboat Willie" in 1928. Disney often celebrates this anniversary.
 
-- **Veterans Day Observances**: Some communities continue
+- **Thanksgiving Preparations**: Although
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, for every step forward is a step toward greatness! 🚀✨"
+"Embrace the journey, not just the destination! 🚀💫 Every step forward makes you stronger. 🌟💪"
