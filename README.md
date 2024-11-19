@@ -2,14 +2,11 @@
 ------
 ### Events
 ------
-Certainly! On November 19th, one of the most notable events in the USA is the commemoration of the Gettysburg Address by President Abraham Lincoln. Here's a brief overview:
+Here are a few events that occur in the USA around November 19th:
 
-- **Event**: Anniversary of the Gettysburg Address
-- **Date**: November 19
-- **Location**: Gettysburg, Pennsylvania
-- **Historical Context**:
-  - Delivered by President Abraham Lincoln on November 19, 1863
-  - Occurred during the American Civil War,
+- **Thanksgiving Preparations**: Many Americans begin preparing for Thanksgiving, which is celebrated on the fourth Thursday of November. This includes shopping for food, planning travel, and organizing gatherings.
+  
+- **Transgender Day of Remembrance (November 20)**: While technically on November 20th, events and observances may occur on November 19th. This day honors the memory of transgender people whose lives were
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination. Every step counts! 🌟🚶‍♂️✨"
+"Embrace the journey, not just the destination! 🌟🚀 Every step forward is a step towards greatness. 💪✨"
