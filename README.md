@@ -2,12 +2,15 @@
 ------
 ### Events
 ------
-There are no major nationwide events in the USA that occur annually on November 20th. However, there are some observances and events that might take place around this date each year. Here are a few:
+Here are some events in the USA that are observed or occur around the date of November 20:
 
-- **Transgender Day of Remembrance (TDOR):**
-  - Observed annually on November 20th.
-  - A day to memorialize those who have been murdered as a result of transphobia.
-  - Events include vigils, discussions, and community gatherings to raise
+- **Transgender Day of Remembrance**:
+  - Observed on November 20 each year.
+  - This day honors the memory of transgender people whose lives were lost in acts of anti-transgender violence.
+  - Various events, including vigils and memorial services, are held across the country.
+
+- **Thanksgiving Preparations**:
+  - As Thanksgiving typically falls on the fourth Thursday of
 ### Positive Qoute
 ------
-"Every day is a new beginning! 🌟 Embrace the journey with a smile 😊 and let your positivity shine! ✨"
+"Chase your dreams with passion and perseverance! 🌟✨ Nothing can dim the light that shines from within. 💪😊"
