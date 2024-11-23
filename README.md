@@ -2,10 +2,14 @@
 ------
 ### Events
 ------
-- **Thanksgiving Day:**  
-  - Thanksgiving is a national holiday celebrated on the fourth Thursday of November in the United States. In 2023, it falls on November 23rd.
-  - It originated as a harvest festival and has been celebrated nationally on and off since 1789, after a proclamation by President George Washington.
-  - The holiday is marked by family gatherings, feasts, and a traditional meal that often includes turkey, stuffing, potatoes, cranberry sauce, and pumpkin pie
+On November 23rd, the following event often takes place in the USA:
+
+- **Thanksgiving Day**
+  - Thanksgiving is a national holiday in the United States.
+  - It is celebrated on the fourth Thursday of November each year.
+  - The holiday is rooted in the history of the Pilgrims and Puritans who emigrated from England in the 1620s.
+  - Traditionally, it is a day for giving thanks for the harvest and blessings of the past year.
+ 
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🚀✨ Keep shining bright! 🌟😊"
+"Every day is a chance to grow and shine! 🌱✨ Keep moving forward with a smile! 😊🚀"
