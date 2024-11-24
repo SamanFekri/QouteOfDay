@@ -1,15 +1,13 @@
-### 📅 Saturday, 23 November, 2024
+### 📅 Sunday, 24 November, 2024
 ------
 ### Events
 ------
-On November 23rd, the following event often takes place in the USA:
-
-- **Thanksgiving Day**
-  - Thanksgiving is a national holiday in the United States.
-  - It is celebrated on the fourth Thursday of November each year.
-  - The holiday is rooted in the history of the Pilgrims and Puritans who emigrated from England in the 1620s.
-  - Traditionally, it is a day for giving thanks for the harvest and blessings of the past year.
- 
+- **Thanksgiving Day**  
+  - Celebrated on the fourth Thursday of November, Thanksgiving is a national holiday in the United States.
+  - It originated as a harvest festival and has been celebrated nationally on and off since 1789, with a proclamation by George Washington.
+  - The day involves family gatherings and feasting, often featuring turkey, stuffing, cranberry sauce, and pumpkin pie.
+  - It's a time for giving thanks and expressing gratitude for the year's blessings.
+  - Various par
 ### Positive Qoute
 ------
-"Every day is a chance to grow and shine! 🌱✨ Keep moving forward with a smile! 😊🚀"
+"Embrace the journey, enjoy each step, and let your light shine! 🌟🚶‍♀️✨"
