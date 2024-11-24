@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-- **Thanksgiving Day**  
-  - Celebrated on the fourth Thursday of November, Thanksgiving is a national holiday in the United States.
-  - It originated as a harvest festival and has been celebrated nationally on and off since 1789, with a proclamation by George Washington.
-  - The day involves family gatherings and feasting, often featuring turkey, stuffing, cranberry sauce, and pumpkin pie.
-  - It's a time for giving thanks and expressing gratitude for the year's blessings.
-  - Various par
+Certainly! On November 24th, the following event occurs in the United States:
+
+- **Thanksgiving Day (Observed on the Fourth Thursday of November):**
+  - Thanksgiving is a national holiday celebrated with family gatherings and large feasts.
+  - It commemorates the harvest feast shared by the Pilgrims and Native Americans in 1621.
+  - Traditional foods include turkey, stuffing, mashed potatoes, cranberry sauce, and pumpkin pie.
+  - Many Americans partake in volunteer activities, helping serve
 ### Positive Qoute
 ------
-"Embrace the journey, enjoy each step, and let your light shine! 🌟🚶‍♀️✨"
+"Embrace today with a smile and let your light shine! 🌟😊 Every moment is a chance to create joy and spread kindness. 💖✨"
