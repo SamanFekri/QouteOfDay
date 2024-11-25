@@ -2,14 +2,15 @@
 ------
 ### Events
 ------
-On November 25th, an event that typically occurs in the United States is related to the Thanksgiving holiday weekend. Here are some details:
+- **Thanksgiving Day Parade:**
+  - The Macy's Thanksgiving Day Parade is an annual event held in New York City.
+  - It features giant character balloons, floats, marching bands, and performances.
+  - The parade is a popular televised event, watched by millions nationwide.
 
-- **Black Friday:**
-  - Celebrated on the Friday following Thanksgiving, which is the fourth Thursday of November.
-  - Marks the beginning of the holiday shopping season.
-  - Characterized by significant sales and discounts in retail stores and online.
-  - Many stores open early, sometimes as early as midnight or even on Thanksgiving evening.
-  - Attract
+- **Thanksgiving Day:**
+  - Thanksgiving is a national holiday celebrated on the fourth Thursday of November.
+  - It marks a time for giving thanks and spending time with family and friends.
+  - Traditional meals
 ### Positive Qoute
 ------
-"Believe in yourself and you can achieve anything! 🌟💪✨"
+"Embrace the journey, not just the destination! 🌟🛤️ Every step forward is a step towards your dreams. ✨🚀"
