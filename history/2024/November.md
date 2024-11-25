@@ -512,3 +512,16 @@ Certainly! On November 24th, the following event occurs in the United States:
 ### Quote of the day
 "Embrace today with a smile and let your light shine! 🌟😊 Every moment is a chance to create joy and spread kindness. 💖✨"
 -----
+## Monday, 25 November, 2024
+### Events
+On November 25th, an event that typically occurs in the United States is related to the Thanksgiving holiday weekend. Here are some details:
+
+- **Black Friday:**
+  - Celebrated on the Friday following Thanksgiving, which is the fourth Thursday of November.
+  - Marks the beginning of the holiday shopping season.
+  - Characterized by significant sales and discounts in retail stores and online.
+  - Many stores open early, sometimes as early as midnight or even on Thanksgiving evening.
+  - Attract
+### Quote of the day
+"Believe in yourself and you can achieve anything! 🌟💪✨"
+-----

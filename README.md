@@ -1,14 +1,15 @@
-### 📅 Sunday, 24 November, 2024
+### 📅 Monday, 25 November, 2024
 ------
 ### Events
 ------
-Certainly! On November 24th, the following event occurs in the United States:
+On November 25th, an event that typically occurs in the United States is related to the Thanksgiving holiday weekend. Here are some details:
 
-- **Thanksgiving Day (Observed on the Fourth Thursday of November):**
-  - Thanksgiving is a national holiday celebrated with family gatherings and large feasts.
-  - It commemorates the harvest feast shared by the Pilgrims and Native Americans in 1621.
-  - Traditional foods include turkey, stuffing, mashed potatoes, cranberry sauce, and pumpkin pie.
-  - Many Americans partake in volunteer activities, helping serve
+- **Black Friday:**
+  - Celebrated on the Friday following Thanksgiving, which is the fourth Thursday of November.
+  - Marks the beginning of the holiday shopping season.
+  - Characterized by significant sales and discounts in retail stores and online.
+  - Many stores open early, sometimes as early as midnight or even on Thanksgiving evening.
+  - Attract
 ### Positive Qoute
 ------
-"Embrace today with a smile and let your light shine! 🌟😊 Every moment is a chance to create joy and spread kindness. 💖✨"
+"Believe in yourself and you can achieve anything! 🌟💪✨"
