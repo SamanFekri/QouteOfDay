@@ -2,14 +2,9 @@
 ------
 ### Events
 ------
-On November 26th, the following event typically occurs in the USA:
+An event that takes place in the USA on November 26 (or around this date, as the specific date can change each year) is Thanksgiving Day. However, in 2023, Thanksgiving Day is actually on November 23, as it is celebrated on the fourth Thursday of November. Instead, November 26 could be associated with other events or observances. Here’s a list of possible events and observances that could occur around that time:
 
-- **Thanksgiving Weekend:**
-  - Thanksgiving is celebrated on the fourth Thursday of November, which means the date can vary each year. 
-  - The day following Thanksgiving is known as Black Friday, marking the start of the holiday shopping season.
-  - November 26 is often part of the extended Thanksgiving weekend, which includes:
-    - Family gatherings and feasts.
-    - Travel for many Americans, as they visit
+- **Black Friday** (November 24,
 ### Positive Qoute
 ------
-"Radiate positivity and watch the world bloom around you 🌟🌻✨"
+"Believe in yourself and all that you are! 🌟 You are capable of amazing things. 💪✨"
