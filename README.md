@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-- **Thanksgiving Day Parade Rehearsals:**
-  - Many cities, especially New York City with the famous Macy's Thanksgiving Day Parade, hold rehearsals and preparations around this date leading up to the parade, which takes place on Thanksgiving Day (the fourth Thursday of November).
+- **Thanksgiving Day Parade**: While Thanksgiving typically falls on the fourth Thursday of November, certain events like parades and festivities related to Thanksgiving can occur around this time, sometimes aligning with dates near November 27th.
+  
+- **Black Friday**: This significant shopping event traditionally takes place the day after Thanksgiving, which often falls around November 27th. Retailers offer massive sales and discounts, drawing large crowds for holiday shopping.
 
-- **Start of Holiday Shopping Season:**
-  - The period leading up to Black Friday (the day after Thanksgiving) begins, marking the start of the holiday shopping season. Some early sales events might start on or
+- **Hanukkah**: Depending on the year,
 ### Positive Qoute
 ------
-"Choose to shine, even on cloudy days! ☀️🌈✨"
+"Embrace the journey, thrive in every step! 🌟✨"
