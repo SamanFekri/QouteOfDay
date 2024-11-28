@@ -1,12 +1,11 @@
-### 📅 Wednesday, 27 November, 2024
+### 📅 Thursday, 28 November, 2024
 ------
 ### Events
 ------
-- **Thanksgiving Day Parade**: While Thanksgiving typically falls on the fourth Thursday of November, certain events like parades and festivities related to Thanksgiving can occur around this time, sometimes aligning with dates near November 27th.
-  
-- **Black Friday**: This significant shopping event traditionally takes place the day after Thanksgiving, which often falls around November 27th. Retailers offer massive sales and discounts, drawing large crowds for holiday shopping.
-
-- **Hanukkah**: Depending on the year,
+- **Thanksgiving Day**: 
+  - Thanksgiving is a national holiday celebrated in the United States on the fourth Thursday of November. In 2023, it falls on November 23, not November 28. However, the following points still apply generally to the holiday period surrounding Thanksgiving.
+  - It is a day for giving thanks for the blessings of the harvest and the preceding year.
+  - Family and friends typically gather for a large meal, which often includes turkey, stuffing, mashed potatoes
 ### Positive Qoute
 ------
-"Embrace the journey, thrive in every step! 🌟✨"
+"Every day is a fresh start! 🌟 Embrace the possibilities and shine bright. 💫😊"
