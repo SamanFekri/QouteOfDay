@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-On December 2nd, several events and observances may occur in the USA, although these can vary by year. Here are a few recurring events or observances that often take place around this date:
+There isn't a specific national event that occurs annually on December 2nd in the United States. However, events around this date can vary each year and may include:
 
-- **National Special Education Day:** 
-  - Celebrates the anniversary of the Individuals with Disabilities Education Act (IDEA) signed into law in 1975.
-  - Highlights the achievements and ongoing needs of students with disabilities and educators.
-  - Schools and communities may host events to raise awareness
+- **Local Holiday Events**: Many cities and towns host holiday parades, festivals, and light displays around early December to celebrate the upcoming festive season.
+  
+- **Shopping Events**: This period often sees extended holiday shopping events as it falls between Black Friday/Cyber Monday and Christmas, with many retailers offering special promotions.
+
+-
 ### Positive Qoute
 ------
-"🌟 Shine bright like the sun, and let your positivity illuminate the world! ☀️✨"
+"🌟 Embrace the journey with open arms and a hopeful heart, for every step brings new opportunities! 🚀✨"
