@@ -1,16 +1,13 @@
-### 📅 Sunday, 01 December, 2024
+### 📅 Monday, 02 December, 2024
 ------
 ### Events
 ------
-Here are some notable events and observances that occur on December 1st in the United States:
+On December 2nd, several events and observances may occur in the USA, although these can vary by year. Here are a few recurring events or observances that often take place around this date:
 
-- **World AIDS Day:**
-  - Recognized globally, World AIDS Day is dedicated to raising awareness about HIV/AIDS.
-  - Various events and activities are organized across the U.S. to promote education and commemorate those who have lost their lives to the disease.
-  - Organizations and communities often wear red ribbons as a symbol of support.
-
-- **Start of Meteorological Winter:**
-  - December
+- **National Special Education Day:** 
+  - Celebrates the anniversary of the Individuals with Disabilities Education Act (IDEA) signed into law in 1975.
+  - Highlights the achievements and ongoing needs of students with disabilities and educators.
+  - Schools and communities may host events to raise awareness
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🌟🚀 Every step forward is a step towards greatness. 💪✨"
+"🌟 Shine bright like the sun, and let your positivity illuminate the world! ☀️✨"
