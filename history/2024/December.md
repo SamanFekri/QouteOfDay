@@ -55,3 +55,13 @@ On December 3rd in the USA, a few notable events and observances may occur:
 ### Quote of the day
 "Shine bright like the sun, because you are someone's 🌟 every single day! 🌞✨"
 -----
+## Tuesday, 03 December, 2024
+### Events
+Here are some events that typically occur in the United States around December 3rd, although the exact date can vary slightly from year to year:
+
+- **National Disability Day**: Also known as the International Day of Persons with Disabilities, this day is observed to promote the rights and well-being of persons with disabilities in all spheres of society. Various events, workshops, and awareness campaigns might be held across the country.
+
+- **Holiday Festivities and Markets**: Many cities and towns across the U.S
+### Quote of the day
+"Every sunrise 🌅 brings a new opportunity 🌟 to shine bright ✨ and chase your dreams 💭!"
+-----
