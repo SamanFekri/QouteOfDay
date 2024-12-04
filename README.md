@@ -1,12 +1,14 @@
-### 📅 Tuesday, 03 December, 2024
+### 📅 Wednesday, 04 December, 2024
 ------
 ### Events
 ------
-Here are some events that typically occur in the United States around December 3rd, although the exact date can vary slightly from year to year:
+There are several events and observances that occur in the United States on December 4th each year. Some of these include:
 
-- **National Disability Day**: Also known as the International Day of Persons with Disabilities, this day is observed to promote the rights and well-being of persons with disabilities in all spheres of society. Various events, workshops, and awareness campaigns might be held across the country.
+- **National Cookie Day**: A day to celebrate and indulge in cookies of all varieties. Many bakeries and cookie shops offer special deals and promotions.
 
-- **Holiday Festivities and Markets**: Many cities and towns across the U.S
+- **Santa's List Day**: An unofficial holiday when children around the nation are encouraged to make their wish lists for Santa, as it is humorously said that Santa starts compiling his lists on this day.
+
+-
 ### Positive Qoute
 ------
-"Every sunrise 🌅 brings a new opportunity 🌟 to shine bright ✨ and chase your dreams 💭!"
+"Embrace the journey with a smile and watch the magic unfold! ✨😊🌟"
