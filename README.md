@@ -2,15 +2,11 @@
 ------
 ### Events
 ------
-There are several events that occur in the USA around December 5th each year. Here are a few notable ones:
+Here are a few notable events that often occur around December 5th in the United States, though they may not happen specifically on that date every year:
 
-- **Repeal Day:** 
-  - Commemorates the ratification of the 21st Amendment to the U.S. Constitution.
-  - This amendment repealed the 18th Amendment, effectively ending Prohibition on December 5, 1933.
-  - Often celebrated by bars and alcohol enthusiasts across the country.
+- **National Repeal Day**: Celebrated on December 5th, this day marks the anniversary of the repeal of Prohibition with the ratification of the 21st Amendment in 1933. It is often celebrated with events at bars and restaurants across the country.
 
-- **Walt Disney Day:**
-  -
+- **Lighting of the National Christmas Tree**: Although the
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start fresh! 🌅😊✨"
+"🌟 Embrace the magic within you and let your light shine bright! ✨🌈"
