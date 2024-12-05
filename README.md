@@ -1,12 +1,16 @@
-### 📅 Wednesday, 04 December, 2024
+### 📅 Thursday, 05 December, 2024
 ------
 ### Events
 ------
-There isn't a specific, nationwide event in the United States that occurs annually on December 4. However, certain events may take place around this time, which can vary each year. Here are a few possibilities that might occur around early December:
+There are several events that occur in the USA around December 5th each year. Here are a few notable ones:
 
-- **Local Holiday Celebrations**: Many cities and towns across the United States host holiday parades, tree lighting ceremonies, and festive markets in early December as communities gear up for the Christmas season.
-  
-- **Christmas Markets**: Various Christmas markets and winter
+- **Repeal Day:** 
+  - Commemorates the ratification of the 21st Amendment to the U.S. Constitution.
+  - This amendment repealed the 18th Amendment, effectively ending Prohibition on December 5, 1933.
+  - Often celebrated by bars and alcohol enthusiasts across the country.
+
+- **Walt Disney Day:**
+  -
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🌟🚀 Every step forward is a step toward your dreams! 🌈💪"
+"Every day is a new beginning. Take a deep breath, smile, and start fresh! 🌅😊✨"
