@@ -1,12 +1,14 @@
-### 📅 Friday, 06 December, 2024
+### 📅 Saturday, 07 December, 2024
 ------
 ### Events
 ------
-Here are some notable events that occur in the USA around December 6:
+On December 7th, the United States observes a significant historical event:
 
-- **Saint Nicholas Day**: While not a federal holiday, some communities and families with European heritage celebrate December 6 as Saint Nicholas Day. It’s a day for gift-giving, reflecting the legacy of Saint Nicholas, a 4th-century Christian saint who inspired the modern-day figure of Santa Claus.
-
-- **National Gazpacho Day**: Though not widely celebrated, December 6 is designated as National Gazp
+- **Pearl Harbor Remembrance Day**
+  - Commemorates the attack on Pearl Harbor by the Japanese forces on December 7, 1941.
+  - Marks the entry of the United States into World War II.
+  - National observance with ceremonies held at Pearl Harbor, Hawaii, and across the U.S.
+  - Flags are typically flown at half-staff in honor of the lives lost during the attack
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🌟🚀✨"
+"Embrace the journey, every step is a gift! 🌟🚶‍♀️🌈"
