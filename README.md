@@ -1,14 +1,11 @@
-### 📅 Saturday, 07 December, 2024
+### 📅 Sunday, 08 December, 2024
 ------
 ### Events
 ------
-- **Pearl Harbor Remembrance Day**
-  - Observed annually on December 7.
-  - Commemorates the attack on Pearl Harbor in Hawaii on December 7, 1941.
-  - Marks the anniversary of the surprise military strike by the Imperial Japanese Navy Air Service against the United States naval base.
-  - The attack led to the United States' formal entry into World War II.
-  - National observance includes remembrance ceremonies and events across the country.
-  - Flags are often
+One event that occurs annually in the United States on December 8 is the Feast of the Immaculate Conception, which is observed by the Roman Catholic Church. Here are some key points about this event:
+
+- **Religious Observance**: The Feast of the Immaculate Conception is a significant day in the liturgical calendar of the Roman Catholic Church.
+- **Holy Day of Obligation**: For Catholics, it is considered a Holy Day of Obligation, meaning that attending Mass
 ### Positive Qoute
 ------
-"🌟 Believe in the magic within you and watch your dreams take flight! 🚀✨"
+"Embrace the sunshine within, and let your light shine bright! ☀️✨🌟"
