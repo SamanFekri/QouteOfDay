@@ -1,12 +1,12 @@
-### 📅 Sunday, 08 December, 2024
+### 📅 Monday, 09 December, 2024
 ------
 ### Events
 ------
-Here are a few notable events that occur in the United States around December 8, although specific events can vary by year:
+Here are a few events that traditionally take place around December 9th in the United States, although the specific date can vary each year:
 
-- **Annual Pearl Harbor Remembrance Day Commemorations**: While the attack on Pearl Harbor occurred on December 7, 1941, commemorative events and activities sometimes continue into December 8. These may include memorial services and educational events to honor those who were impacted by the attack.
-  
-- **Holiday Season Events**: Various cities across the United States hold holiday
+- **National Christmas Tree Lighting Ceremony**: While the exact date can change, the National Christmas Tree in Washington, D.C., is typically lit in early December, sometimes around this date. The ceremony includes musical performances and special guests.
+
+- **Holiday Parades**: Many cities host holiday parades throughout December, featuring floats, bands, and community groups.
 ### Positive Qoute
 ------
-"🌟 Believe in your dreams and they will light your path! 🚀✨"
+"Believe in yourself and all that you are. 🌟 You are capable of amazing things! 💪✨"
