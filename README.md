@@ -2,14 +2,11 @@
 ------
 ### Events
 ------
-Here are some events that typically occur around December 12th in the USA:
+Here are some events that typically occur in the United States around December 12th:
 
-- **Holiday Season Activities**: 
-  - Many cities and towns are in full swing with holiday celebrations, including Christmas markets, holiday light displays, and seasonal festivals.
-  - Schools and universities may host winter concerts, plays, and other events as part of their holiday programming.
+- **National Poinsettia Day**: Celebrated annually on December 12th, this day honors the poinsettia plant, which is widely associated with Christmas and the holiday season. The date marks the death anniversary of Joel Roberts Poinsett, the American botanist and diplomat who introduced the plant to the U.S. from Mexico.
 
-- **Religious Observances**: 
-  - Feast of Our Lady of Guadalupe: This is a significant event for Mexican-American communities,
+- **Feast of Our Lady of Guadalupe**: This religious
 ### Positive Qoute
 ------
-"Each day is a new adventure! 🌟 Embrace the journey and let your dreams soar high! 🚀✨"
+"🌟 Shine bright, believe in your magic, and embrace every new day with a smile! 😊✨"

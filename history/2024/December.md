@@ -252,3 +252,13 @@ Here are some events that typically occur around December 12th in the USA:
 ### Quote of the day
 "Each day is a new adventure! 🌟 Embrace the journey and let your dreams soar high! 🚀✨"
 -----
+## Thursday, 12 December, 2024
+### Events
+Here are some events that typically occur in the United States around December 12th:
+
+- **National Poinsettia Day**: Celebrated annually on December 12th, this day honors the poinsettia plant, which is widely associated with Christmas and the holiday season. The date marks the death anniversary of Joel Roberts Poinsett, the American botanist and diplomat who introduced the plant to the U.S. from Mexico.
+
+- **Feast of Our Lady of Guadalupe**: This religious
+### Quote of the day
+"🌟 Shine bright, believe in your magic, and embrace every new day with a smile! 😊✨"
+-----
