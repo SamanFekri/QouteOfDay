@@ -2,13 +2,7 @@
 ------
 ### Events
 ------
-Here are a few events that typically occur around December 13th in the USA, although it's important to note that these can vary year by year:
-
-- **Holiday Season Events**: Many cities and towns host holiday parades, Christmas markets, and festive lighting ceremonies throughout December.
-  
-- **Hanukkah Celebrations**: Depending on the year, Hanukkah may fall around this time, featuring menorah lightings and community gatherings.
-  
-- **School Holiday Programs**: Schools often host
+There isn't a specific, widely recognized annual event in the United States that occurs on December 13th across the country. However, there might be various local events, festivals, or observances that take place on this date, depending on the year and location. For localized or specialized events, you may want to check community calendars or event listings for specific cities or regions. If you have a specific type of event or location in mind, please let me know, and I might be able to provide more
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟✨ Keep shining, beautiful soul! 💖😊"
+"Believe in the magic within you ✨ and let your dreams take flight! 🚀😊"
