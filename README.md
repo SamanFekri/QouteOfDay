@@ -1,12 +1,14 @@
-### 📅 Thursday, 12 December, 2024
+### 📅 Friday, 13 December, 2024
 ------
 ### Events
 ------
-Here are some events that typically occur in the United States around December 12th:
+Here are a few events that typically occur around December 13th in the USA, although it's important to note that these can vary year by year:
 
-- **National Poinsettia Day**: Celebrated annually on December 12th, this day honors the poinsettia plant, which is widely associated with Christmas and the holiday season. The date marks the death anniversary of Joel Roberts Poinsett, the American botanist and diplomat who introduced the plant to the U.S. from Mexico.
-
-- **Feast of Our Lady of Guadalupe**: This religious
+- **Holiday Season Events**: Many cities and towns host holiday parades, Christmas markets, and festive lighting ceremonies throughout December.
+  
+- **Hanukkah Celebrations**: Depending on the year, Hanukkah may fall around this time, featuring menorah lightings and community gatherings.
+  
+- **School Holiday Programs**: Schools often host
 ### Positive Qoute
 ------
-"🌟 Shine bright, believe in your magic, and embrace every new day with a smile! 😊✨"
+"Embrace the glorious mess that you are! 🌟✨ Keep shining, beautiful soul! 💖😊"
