@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-On December 14th in the USA, one notable event is the remembrance of the Sandy Hook Elementary School shooting, which occurred on December 14, 2012. Here are some key points related to this event:
+On December 14th, the following significant event is commemorated in the United States:
 
-- **Anniversary:** December 14 marks the anniversary of the tragic shooting at Sandy Hook Elementary School in Newtown, Connecticut.
-- **Remembrance:** Communities across the country, especially in Newtown, hold memorials and moments of silence to honor the victims.
-- **Adv
+- **Sandy Hook Elementary School Shooting Remembrance:**
+  - On December 14, 2012, a tragic mass shooting occurred at Sandy Hook Elementary School in Newtown, Connecticut.
+  - The event claimed the lives of 26 people, including 20 children and 6 adult staff members.
+  - It is remembered annually across the country as a day to honor the victims and promote awareness about
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🚀✨ Every step forward is a step towards greatness. 🌟🌈"
+"Every day is a fresh start! 🌅✨ Believe in yourself and shine bright! 🌟😊"
