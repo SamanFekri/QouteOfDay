@@ -1,13 +1,13 @@
-### 📅 Saturday, 14 December, 2024
+### 📅 Sunday, 15 December, 2024
 ------
 ### Events
 ------
-On December 14th, the following significant event is commemorated in the United States:
+There is no single national event that occurs annually on December 15th across the United States. However, here are some events and observances that occasionally fall on or include December 15th:
 
-- **Sandy Hook Elementary School Shooting Remembrance:**
-  - On December 14, 2012, a tragic mass shooting occurred at Sandy Hook Elementary School in Newtown, Connecticut.
-  - The event claimed the lives of 26 people, including 20 children and 6 adult staff members.
-  - It is remembered annually across the country as a day to honor the victims and promote awareness about
+- **Bill of Rights Day**: 
+  - Celebrated annually on December 15th.
+  - Commemorates the ratification of the first ten amendments to the U.S. Constitution in 1791.
+  - Various educational events and discussions focus on the history and importance of the Bill of
 ### Positive Qoute
 ------
-"Every day is a fresh start! 🌅✨ Believe in yourself and shine bright! 🌟😊"
+"Embrace the glorious mess that you are and shine brighter every day! ✨🌟💪😊"
