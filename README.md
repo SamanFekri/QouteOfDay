@@ -2,15 +2,15 @@
 ------
 ### Events
 ------
-Here are a few events and observances that take place on December 17th in the USA:
+Here are a couple of events in the USA that commonly occur around December 17, although they may not happen on that exact date every year:
 
 - **Wright Brothers Day**:
-  - Celebrates the achievements of Orville and Wilbur Wright, who made the first successful flight in a heavier-than-air, mechanically propelled airplane on December 17, 1903.
-  - Recognized annually, reflecting on the impact of aviation on society.
+  - Celebrated annually on December 17.
+  - Commemorates the first successful flight of a mechanically propelled airplane by Orville and Wilbur Wright in 1903.
+  - Recognized by presidential proclamation.
+  - Involves activities highlighting the achievements of the Wright brothers and the history of aviation.
 
-- **Pan American Aviation Day**:
-  - Coincides with Wright Brothers Day.
- 
+
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination. Every step counts! 🚶‍♂️✨ #KeepMovingForward"
+"Believe in your dreams and they will come true! 🌟✨ Keep shining bright! 🌈😊"
