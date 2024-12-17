@@ -1,14 +1,16 @@
-### 📅 Monday, 16 December, 2024
+### 📅 Tuesday, 17 December, 2024
 ------
 ### Events
 ------
-Here are some events that typically occur around December 16th in the USA:
+Here are a few events and observances that take place on December 17th in the USA:
 
-- **Holiday-Themed Events**: As December 16th is close to the holiday season, many cities and towns across the USA host holiday markets, Christmas light displays, parades, and concerts. These events often continue throughout the month of December.
+- **Wright Brothers Day**:
+  - Celebrates the achievements of Orville and Wilbur Wright, who made the first successful flight in a heavier-than-air, mechanically propelled airplane on December 17, 1903.
+  - Recognized annually, reflecting on the impact of aviation on society.
 
-- **School Winter Breaks**: Many schools begin their winter breaks around this time, leading to increased travel and family gatherings.
-
-- **Retail and Shopping Events**
+- **Pan American Aviation Day**:
+  - Coincides with Wright Brothers Day.
+ 
 ### Positive Qoute
 ------
-"Believe in the magic within you and shine bright! ✨🌟💫"
+"Embrace the journey, not just the destination. Every step counts! 🚶‍♂️✨ #KeepMovingForward"

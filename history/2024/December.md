@@ -347,3 +347,17 @@ Here are some events that typically occur around December 16th in the USA:
 ### Quote of the day
 "Believe in the magic within you and shine bright! ✨🌟💫"
 -----
+## Tuesday, 17 December, 2024
+### Events
+Here are a few events and observances that take place on December 17th in the USA:
+
+- **Wright Brothers Day**:
+  - Celebrates the achievements of Orville and Wilbur Wright, who made the first successful flight in a heavier-than-air, mechanically propelled airplane on December 17, 1903.
+  - Recognized annually, reflecting on the impact of aviation on society.
+
+- **Pan American Aviation Day**:
+  - Coincides with Wright Brothers Day.
+ 
+### Quote of the day
+"Embrace the journey, not just the destination. Every step counts! 🚶‍♂️✨ #KeepMovingForward"
+-----
