@@ -1,16 +1,12 @@
-### 📅 Tuesday, 17 December, 2024
+### 📅 Wednesday, 18 December, 2024
 ------
 ### Events
 ------
-Here are a couple of events in the USA that commonly occur around December 17, although they may not happen on that exact date every year:
+While there isn't a specific annual event that happens every year on December 18th across the United States, there are some occurrences and observances that might fall on or around this date depending on the year. Here are a few possibilities:
 
-- **Wright Brothers Day**:
-  - Celebrated annually on December 17.
-  - Commemorates the first successful flight of a mechanically propelled airplane by Orville and Wilbur Wright in 1903.
-  - Recognized by presidential proclamation.
-  - Involves activities highlighting the achievements of the Wright brothers and the history of aviation.
-
-
+- **Hanukkah:** This Jewish holiday can sometimes occur in December, varying each year according to the Hebrew calendar. It's an eight-day festival, so it might encompass December 18th in certain years.
+  
+- **Pre-Christmas Events:** As December 
 ### Positive Qoute
 ------
-"Believe in your dreams and they will come true! 🌟✨ Keep shining bright! 🌈😊"
+"Embrace the journey, every step is progress! 🚶‍♂️🌟✨"
