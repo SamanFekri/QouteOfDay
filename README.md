@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events occurring around December 19 in the United States:
+As of my last update, there isn't a specific nationally recognized event that takes place annually in the USA on December 19. However, various local or state-level events might occur, and it might be a date that holds significance for certain communities or organizations. Here are a few general possibilities that might occur around this time:
 
-- **Anniversary of the Boston Tea Party** (December 16): This historic event is often commemorated with reenactments and educational programs around mid-December.
-  
-- **Preparation for Christmas and Holiday Season**: As December 19 falls within the holiday season, various events and activities related to Christmas and New Year are prevalent, including:
-  - Holiday markets and craft fairs
-  - Christmas light displays and par
+- **Holiday Preparations:**
+  - Many people are engaged in preparations for Christmas and other winter holidays, which include shopping, decorating, and organizing gatherings with family and friends.
+
+
 ### Positive Qoute
 ------
-"Embrace the journey, and let your heart lead the way! 🚀💖🌟"
+"Embrace the journey, not just the destination! 🌟🚀 Every step counts! 💪😊"
