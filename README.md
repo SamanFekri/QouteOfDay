@@ -2,11 +2,15 @@
 ------
 ### Events
 ------
-There isn't a specific annual event in the USA that is widely recognized to occur on December 21 across the country. However, December 21 marks the winter solstice in the Northern Hemisphere, which is the shortest day and longest night of the year. Here are some ways this event might be observed:
+Here are some notable events and observances that occur on December 21 in the USA:
 
-- **Winter Solstice Celebrations:**
-  - Many cultures and communities hold celebrations or observances on the winter solstice, marking the return of longer daylight hours.
-  - Events may include festivals
+- **Winter Solstice**:
+  - Marks the official start of winter in the Northern Hemisphere.
+  - Known as the shortest day and longest night of the year.
+  - Many cultures and communities celebrate the solstice with festivals, rituals, and gatherings to mark the changing season.
+
+- **National Crossword Puzzle Day**:
+  - Celebrated in honor of the first crossword puzzle, which was published on December
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are and shine bright! 🌟✨"
+"🌟 Embrace the journey, 🌈 for each step forward, ✨ brings you closer to your dreams! 🚀"
