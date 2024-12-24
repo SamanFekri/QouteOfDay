@@ -2,11 +2,15 @@
 ------
 ### Events
 ------
-On December 24th in the USA, several events and traditions typically occur in celebration of Christmas Eve. Here are some common ones:
+On December 24th in the USA, a few notable events and traditions often take place:
 
-- **Christmas Eve Church Services**: Many people attend church services on Christmas Eve, including Midnight Mass, which is a popular tradition in many Christian denominations.
-- **Family Gatherings**: Families often gather to celebrate the holiday, sharing meals and spending time together.
-- **Gift Exchanges**: In some families, gifts are exchanged on Christmas Eve rather than Christmas Day
+- **Christmas Eve Celebrations**: Many families gather to celebrate Christmas Eve, often involving a festive dinner, exchange of early gifts, and religious services.
+  
+- **Church Services**: Numerous churches hold midnight Mass or other religious services to commemorate the birth of Jesus Christ.
+
+- **Retail and Shopping Events**: Retail stores typically experience a last-minute rush as people complete their holiday shopping.
+
+- **Community
 ### Positive Qoute
 ------
-"🌟 Embrace the magic of new beginnings and let your light shine brightly! ✨😊"
+"Embrace the journey, not just the destination! 🌟🚀😊"
