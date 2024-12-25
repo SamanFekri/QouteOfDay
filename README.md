@@ -2,10 +2,14 @@
 ------
 ### Events
 ------
-- **Christmas Day**: Celebrated annually on December 25th, Christmas Day is recognized as a federal holiday in the United States.
-  - **Religious Significance**: It commemorates the birth of Jesus Christ and is a significant observance for Christians across the country, with church services held on Christmas Eve and Christmas Day.
-  - **Family Gatherings**: Families and friends often come together to celebrate, exchange gifts, and enjoy festive meals.
-  - **Decorations**:
+- **Event**: Christmas Day
+- **Date**: December 25th
+- **Significance**: Commemorates the birth of Jesus Christ in Christian tradition.
+- **Observance**: Celebrated by Christians and many non-Christians around the world.
+- **Traditions**:
+  - Exchange of gifts among family and friends.
+  - Decoration of homes and public spaces with Christmas trees, lights, and ornaments.
+  - Attending church services, including Midnight Mass or Christmas
 ### Positive Qoute
 ------
-"🌟 Shine bright like the star you are, and watch the world light up around you! ✨😊"
+"🌟 Every day is a new opportunity to shine brighter than the day before! ✨ Keep reaching for the stars! 🚀"
