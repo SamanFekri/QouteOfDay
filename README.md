@@ -1,15 +1,12 @@
-### 📅 Wednesday, 25 December, 2024
+### 📅 Thursday, 26 December, 2024
 ------
 ### Events
 ------
-- **Event**: Christmas Day
-- **Date**: December 25th
-- **Significance**: Commemorates the birth of Jesus Christ in Christian tradition.
-- **Observance**: Celebrated by Christians and many non-Christians around the world.
-- **Traditions**:
-  - Exchange of gifts among family and friends.
-  - Decoration of homes and public spaces with Christmas trees, lights, and ornaments.
-  - Attending church services, including Midnight Mass or Christmas
+Here are some events and observances in the USA that occur on December 26:
+
+- **Boxing Day**: Although primarily recognized in countries like the UK, Canada, and Australia, some communities and organizations in the U.S. acknowledge Boxing Day, often as an extension of Christmas festivities.
+  
+- **Kwanzaa Begins**: Kwanzaa, a week-long celebration honoring African heritage in African-American culture, begins on December 26. It continues until January 1, featuring
 ### Positive Qoute
 ------
-"🌟 Every day is a new opportunity to shine brighter than the day before! ✨ Keep reaching for the stars! 🚀"
+"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅😊✨"
