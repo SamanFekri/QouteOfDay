@@ -568,3 +568,13 @@ Here are some events and observances in the USA that occur on December 26:
 ### Quote of the day
 "Every day is a new beginning. Take a deep breath, smile, and start again! 🌅😊✨"
 -----
+## Thursday, 26 December, 2024
+### Events
+An event in the USA that occurs on December 26th is Kwanzaa, which is celebrated by many African American communities. Here are some key points about Kwanzaa:
+
+- **Start Date**: Kwanzaa begins on December 26th and lasts for seven days, ending on January 1st.
+- **Cultural Significance**: It is a celebration of African heritage, unity, and culture.
+- **Seven Principles**: Each day of Kwanza
+### Quote of the day
+"Embrace the journey, not just the destination! 🌟🚀 Every step counts towards your dreams! 💪✨"
+-----
