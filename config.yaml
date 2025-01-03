@@ -1,5 +1,5 @@
 gpt:
-  model: "gpt-4o"
-  temperature: 0.9
+  model: "gpt-4o-mini"
+  temperature: 1.4
   max_tokens: 100
 
