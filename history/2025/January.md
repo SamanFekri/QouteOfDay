@@ -31,3 +31,14 @@ Here are some notable events in U.S. history that occurred on January 4th:
 ### Quote of the day
 "Believe in yourself and all that you are. ✨ Your potential is endless! 🌟💪"
 -----
+## Saturday, 04 January, 2025
+### Events
+Here are some notable events that have historically occurred in the USA on January 4th:
+
+- **1785**: John Jay was appointed the first Secretary of Foreign Affairs under the Articles of Confederation.
+- **1896**: Utah was admitted as the 45th state of the United States.
+- **1965**: President Lyndon B. Johnson delivered his State of the Union address, which presented his "Great Society" vision to a joint session of Congress.
+- **2004
+### Quote of the day
+"Embrace the glorious mess that you are! 🌈✨ Keep shining your unique light! 💖🌟"
+-----

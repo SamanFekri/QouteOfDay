@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on January 4th:
+Here are some notable events that have historically occurred in the USA on January 4th:
 
-- **1785**: ***The first Treaty of Peace signed between Native Americans and the United States*** — These were early attempts to resolve conflicts and establish formal relationships with various Native American tribes.
-  
-- **1847**: ***Samuel Morse received a patent for the telegraph*** — This invention significantly impacted communication technologies.
-
-- **1960**: ***United States hosted the 1960 Winter Olympics***
+- **1785**: John Jay was appointed the first Secretary of Foreign Affairs under the Articles of Confederation.
+- **1896**: Utah was admitted as the 45th state of the United States.
+- **1965**: President Lyndon B. Johnson delivered his State of the Union address, which presented his "Great Society" vision to a joint session of Congress.
+- **2004
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨ Your potential is endless! 🌟💪"
+"Embrace the glorious mess that you are! 🌈✨ Keep shining your unique light! 💖🌟"
