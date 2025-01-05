@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on January 5:
+Here are a few notable events that have occurred in the United States on January 5:
 
-- **Music**: In 1940, "You Are My Sunshine" was first recorded by the Pine Ridge Boys.
-- **Sports**: In 1959, the first American Football League (AFL) All-Star Game was played in Los Angeles.
-- **Turning Point in History**: In 1974, President Richard Nixon issued a call for détente, announcing that he would seek to withdraw troops during
+- **1933**: Construction of the Hoover Dam was completed, marking a significant achievement in engineering and providing hydroelectric power and water storage for the region.
+  
+- **1949**: United States President Harry S. Truman delivered his "Knows House" speech focusing on civil rights, advocating for equal rights for African Americans.
+
+- **2021**: Pro-Trump protesters invaded the U.S.
 ### Positive Qoute
 ------
-"Radiate positivity and watch the magic unfold! ✨🌈💖"
+"Embrace the glorious mess that you are! 🌈✨ Every day brings new opportunities to shine! 💖🌟"
