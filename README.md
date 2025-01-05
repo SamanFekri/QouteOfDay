@@ -1,13 +1,12 @@
-### 📅 Saturday, 04 January, 2025
+### 📅 Sunday, 05 January, 2025
 ------
 ### Events
 ------
-Here are some notable events that have historically occurred in the USA on January 4th:
+Here are some notable events that have occurred in the USA on January 5:
 
-- **1785**: John Jay was appointed the first Secretary of Foreign Affairs under the Articles of Confederation.
-- **1896**: Utah was admitted as the 45th state of the United States.
-- **1965**: President Lyndon B. Johnson delivered his State of the Union address, which presented his "Great Society" vision to a joint session of Congress.
-- **2004
+- **Music**: In 1940, "You Are My Sunshine" was first recorded by the Pine Ridge Boys.
+- **Sports**: In 1959, the first American Football League (AFL) All-Star Game was played in Los Angeles.
+- **Turning Point in History**: In 1974, President Richard Nixon issued a call for détente, announcing that he would seek to withdraw troops during
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨ Keep shining your unique light! 💖🌟"
+"Radiate positivity and watch the magic unfold! ✨🌈💖"
