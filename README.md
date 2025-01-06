@@ -2,7 +2,11 @@
 ------
 ### Events
 ------
-- **January 6, 2021**: A violent attack on the U.S. Capitol occurred, as supporters of then-President Donald Trump stormed the building in an attempt to overturn the 2020 presidential election results. This event led to significant damage, and many were injured; it resulted in the deaths of multiple individuals. The incident prompted widespread condemnation and led to the second impeachment of Donald Trump.
+Certainly! Here are notable events that have historically occurred on January 6 in the USA:
+
+- **Epiphany (Religious observance)**: Celebrated by some Christian denominations, marking the visit of the Magi to baby Jesus.
+- **Rosa Parks Day**: Celebrated in some states (California and Missouri) to honor Rosa Parks for her pivotal role in the civil rights movement by refusing to give up her bus seat in 1955.
+- **Siegfried Sassoon's
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Every step you take brings you closer to your dreams! 🦋💖"
+"Believe in the magic of new beginnings! ✨🌟 Keep shining your light! 💖🌈"
