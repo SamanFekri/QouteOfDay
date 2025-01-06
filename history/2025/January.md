@@ -64,3 +64,9 @@ Here are a few notable events that have occurred in the United States on January
 ### Quote of the day
 "Embrace the glorious mess that you are! 🌈✨ Every day brings new opportunities to shine! 💖🌟"
 -----
+## Monday, 06 January, 2025
+### Events
+- **January 6, 2021**: A violent attack on the U.S. Capitol occurred, as supporters of then-President Donald Trump stormed the building in an attempt to overturn the 2020 presidential election results. This event led to significant damage, and many were injured; it resulted in the deaths of multiple individuals. The incident prompted widespread condemnation and led to the second impeachment of Donald Trump.
+### Quote of the day
+"Believe in the magic within you! ✨🌟 Every step you take brings you closer to your dreams! 🦋💖"
+-----
