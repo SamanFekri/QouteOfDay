@@ -1,12 +1,14 @@
-### 📅 Monday, 06 January, 2025
+### 📅 Tuesday, 07 January, 2025
 ------
 ### Events
 ------
-Certainly! Here are notable events that have historically occurred on January 6 in the USA:
+Here are two notable events that occur in the USA on January 7:
 
-- **Epiphany (Religious observance)**: Celebrated by some Christian denominations, marking the visit of the Magi to baby Jesus.
-- **Rosa Parks Day**: Celebrated in some states (California and Missouri) to honor Rosa Parks for her pivotal role in the civil rights movement by refusing to give up her bus seat in 1955.
-- **Siegfried Sassoon's
+- **National John Day** - A celebration honoring John the Baptist Day, held on January 7 each year.
+  
+- **Fashion Schools day** - An initiative recognizing various fashion schools and their influence on the fashion industry.
+
+Is there anything specific you'd like more information on?
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌟 Keep shining your light! 💖🌈"
+"Every day is a new beginning. 🌅 Embrace the possibilities and let your light shine! ✨🌟"
