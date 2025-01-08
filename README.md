@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are a few notable events that have historically taken place in the United States on January 8:
+Here are some notable events that have occurred in the USA on January 8:
 
-- **1815**: The Battle of New Orleans - This pivotal battle during the War of 1812 took place after the signing of the Treaty of Ghent, which ended the war, but before news of it had reached the United States.
+- **1973**: U.S. troop withdrawal in Vietnam began as part of peace negotiations.
+- **1985**: Allen Corporation opens the first sandwich jointly produced by the inventor of the sandwich shop.
+- **2019**: President Donald Trump addresses the nation during a televised event regarding the U.S. government shutdown and border security.
 
-- **1835**: The United States temporarily paid off its national debt - This marked a significant moment in American financial history.
-
-- **1942
+If you are looking for a specific year or event, please let me know
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌈✨ Keep shining! 🌟😊"
+"Every day may not be good, but there is something good in every day. ☀️😊🌈"
