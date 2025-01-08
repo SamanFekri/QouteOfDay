@@ -1,13 +1,14 @@
-### 📅 Tuesday, 07 January, 2025
+### 📅 Wednesday, 08 January, 2025
 ------
 ### Events
 ------
-Here are some events that have happened in the USA on January 7:
+Here are a few notable events that have historically taken place in the United States on January 8:
 
-- **1789**: The first U.S. presidential election is held, marking the beginning of the democratic process in the United States.
-- **1943**: President Franklin D. Roosevelt dedicates the Jefferson Memorial, honoring Thomas Jefferson.
-- **1985**: The famous American band *The Eagles* reformed and returned to the stage at the Apollo Theatre in New York City.
-- **2015**:
+- **1815**: The Battle of New Orleans - This pivotal battle during the War of 1812 took place after the signing of the Treaty of Ghent, which ended the war, but before news of it had reached the United States.
+
+- **1835**: The United States temporarily paid off its national debt - This marked a significant moment in American financial history.
+
+- **1942
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! ✨💪 You are capable of amazing things! 🌟🌈"
+"Every day may not be good, but there’s something good in every day! 🌈✨ Keep shining! 🌟😊"
