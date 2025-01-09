@@ -2,12 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that have taken place in the USA on January 9th:
+Here are some notable events that have historically occurred on January 9 in the USA:
 
-- **1776**: Thomas Paine published his pamphlet "Common Sense," advocating for independence from Great Britain.
-- **1793**: The first modern cotton gin was patented by Eli Whitney, which greatly increased the production and demand for cotton.
-- **1839**: The Battle of San Pascual occurred during the Mexican-American War.
-- **1913**: President Woodrow Wilson held the
+- **1776**: Publication of Thomas Paine's "Common Sense," which advocated for American independence from Britain.
+- **1861**: Mississippi became the second state to secede from the Union during the American Civil War.
+- **1936**: First electrified baseball stadium is completed at Ebbets Field in Brooklyn, New York, home of the Brooklyn Dodgers.
+- **1951**:
 ### Positive Qoute
 ------
-"Believe in the magic within you ✨🌟 and let your light shine brightly! 🌈💖"
+"Every day is a new beginning. 🌅 Embrace it with a heart full of gratitude and a spirit ready to shine! ✨💖"
