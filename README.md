@@ -1,13 +1,14 @@
-### 📅 Thursday, 09 January, 2025
+### 📅 Friday, 10 January, 2025
 ------
 ### Events
 ------
-Here are some notable events that have historically occurred on January 9 in the USA:
+Here are some notable events that took place in the USA on January 10:
 
-- **1776**: Publication of Thomas Paine's "Common Sense," which advocated for American independence from Britain.
-- **1861**: Mississippi became the second state to secede from the Union during the American Civil War.
-- **1936**: First electrified baseball stadium is completed at Ebbets Field in Brooklyn, New York, home of the Brooklyn Dodgers.
-- **1951**:
+- **1870**: The first commercial oil well was successfully drilled by Edwin Drake in Titusville, Pennsylvania, heralding the beginning of the American oil industry.
+  
+- **1946**: The first meeting of the United Nations General Assembly was held in New York City after the end of World War II.
+
+- **1962**: U.S. President John F. Kennedy held his first official press conference,
 ### Positive Qoute
 ------
-"Every day is a new beginning. 🌅 Embrace it with a heart full of gratitude and a spirit ready to shine! ✨💖"
+"Embrace the glorious mess that you are! 🌈✨ Every day is a new chance to shine. ☀️💖"
