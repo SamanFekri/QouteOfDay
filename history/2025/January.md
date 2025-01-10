@@ -161,3 +161,15 @@ Here are some notable events that took place in the USA on January 10:
 ### Quote of the day
 "Embrace the glorious mess that you are! 🌈✨ Every day is a new chance to shine. ☀️💖"
 -----
+## Friday, 10 January, 2025
+### Events
+Here are some notable events in the USA that occur on January 10:
+
+- **National Houseplant Appreciation Day**: A day to recognize and care for houseplants, encouraging indoor gardening and promoting the benefits of having plants in our living spaces.
+
+- **1920**: The **Prohibition Era** officially began as the 18th Amendment took effect in the United States, making it illegal to manufacture, sell, or transport alcoholic beverages.
+
+- **1946**: The first meeting of the
+### Quote of the day
+"Embrace the beauty of today and shine like the sun! ☀️✨ Believe in yourself and watch the magic happen. 🌈❤️"
+-----

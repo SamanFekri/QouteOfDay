@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that took place in the USA on January 10:
+Here are some notable events in the USA that occur on January 10:
 
-- **1870**: The first commercial oil well was successfully drilled by Edwin Drake in Titusville, Pennsylvania, heralding the beginning of the American oil industry.
-  
-- **1946**: The first meeting of the United Nations General Assembly was held in New York City after the end of World War II.
+- **National Houseplant Appreciation Day**: A day to recognize and care for houseplants, encouraging indoor gardening and promoting the benefits of having plants in our living spaces.
 
-- **1962**: U.S. President John F. Kennedy held his first official press conference,
+- **1920**: The **Prohibition Era** officially began as the 18th Amendment took effect in the United States, making it illegal to manufacture, sell, or transport alcoholic beverages.
+
+- **1946**: The first meeting of the
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨ Every day is a new chance to shine. ☀️💖"
+"Embrace the beauty of today and shine like the sun! ☀️✨ Believe in yourself and watch the magic happen. 🌈❤️"
