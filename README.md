@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are notable events in U.S. history that occurred on January 11:
+Here are a few notable events that occurred on January 11 in the USA:
 
-- **1935**: Amelia Earhart became the first person to fly solo from Hawaii to California.
-- **1962**: The first NFL championship game was played under the supervision of a more futuristic expectancy and interactive Ness style after league expansionism.
-- **1973**: President Nixon announced plans to end the draft; this marked a significant shift in military recruitment.
-- **1990**: President George H
+- **1964**: The U.S. Surgeon General, Dr. Luther Terry, announces the first report linking smoking to cancer, marking a pivotal moment in public health. 
+- **1989**: In his final address to Congress, President Ronald Reagan delivers a speech, during which he discusses his administration's achievements.
+- **1993**:President Bill Clinton announces his intention to limit the..., marking a significant
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨ You are capable of amazing things! 💪😊"
+"Believe in the magic of new beginnings! ✨🌟🌿"
