@@ -1,14 +1,13 @@
-### 📅 Friday, 10 January, 2025
+### 📅 Saturday, 11 January, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on January 10:
+Here are notable events in U.S. history that occurred on January 11:
 
-- **National Houseplant Appreciation Day**: A day to recognize and care for houseplants, encouraging indoor gardening and promoting the benefits of having plants in our living spaces.
-
-- **1920**: The **Prohibition Era** officially began as the 18th Amendment took effect in the United States, making it illegal to manufacture, sell, or transport alcoholic beverages.
-
-- **1946**: The first meeting of the
+- **1935**: Amelia Earhart became the first person to fly solo from Hawaii to California.
+- **1962**: The first NFL championship game was played under the supervision of a more futuristic expectancy and interactive Ness style after league expansionism.
+- **1973**: President Nixon announced plans to end the draft; this marked a significant shift in military recruitment.
+- **1990**: President George H
 ### Positive Qoute
 ------
-"Embrace the beauty of today and shine like the sun! ☀️✨ Believe in yourself and watch the magic happen. 🌈❤️"
+"Believe in yourself and all that you are. ✨ You are capable of amazing things! 💪😊"
