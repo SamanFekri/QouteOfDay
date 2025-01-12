@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on January 12 throughout history:
+Here are some notable events in U.S. history that occurred on January 12:
 
-- **1966**: The first episode of the television series "Batman," starring Adam West, aired on ABC.
-- **1991**: The U.S. military deployed troops to Saudi Arabia to support the Operation Desert Shield, aiming to protect the country during the Gulf War build-up.
-- **2000**: The 106th Congress relocated, marking the first significant settlement since it started functioning.
--
+- **1962**: The United States successfully conducts its second nuclear test during the prohibition era of the Test Ban Treaty.
+- **1971**: The first circular-stitch eyedropper was developed and patented in the U.S., revolutionizing drinking and sewing techniques.
+- **1991**: The U.S. House of Representatives votes to allow the use of military force against Iraq, marking a significant step
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. 🌟😊"
+"Embrace the glorious mess that you are! ✨✨ Life’s imperfections are what make it beautiful. 🌈💖"
