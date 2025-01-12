@@ -1,12 +1,13 @@
-### 📅 Saturday, 11 January, 2025
+### 📅 Sunday, 12 January, 2025
 ------
 ### Events
 ------
-Here are a few notable events that occurred on January 11 in the USA:
+Here are some notable events that occurred in the USA on January 12 throughout history:
 
-- **1964**: The U.S. Surgeon General, Dr. Luther Terry, announces the first report linking smoking to cancer, marking a pivotal moment in public health. 
-- **1989**: In his final address to Congress, President Ronald Reagan delivers a speech, during which he discusses his administration's achievements.
-- **1993**:President Bill Clinton announces his intention to limit the..., marking a significant
+- **1966**: The first episode of the television series "Batman," starring Adam West, aired on ABC.
+- **1991**: The U.S. military deployed troops to Saudi Arabia to support the Operation Desert Shield, aiming to protect the country during the Gulf War build-up.
+- **2000**: The 106th Congress relocated, marking the first significant settlement since it started functioning.
+-
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌟🌿"
+"Every day may not be good, but there’s something good in every day. 🌟😊"
