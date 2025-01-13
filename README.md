@@ -1,12 +1,13 @@
-### 📅 Sunday, 12 January, 2025
+### 📅 Monday, 13 January, 2025
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on January 12:
+Here are some notable events that have happened in the USA on January 13th:
 
-- **1962**: The United States successfully conducts its second nuclear test during the prohibition era of the Test Ban Treaty.
-- **1971**: The first circular-stitch eyedropper was developed and patented in the U.S., revolutionizing drinking and sewing techniques.
-- **1991**: The U.S. House of Representatives votes to allow the use of military force against Iraq, marking a significant step
+- **1942**: The first American employee, Aloha Airlines, was founded in Hawaii.
+- **1966**: The sitcom "Still the Beaver," a sequel to "Leave It to Beaver," debuted on television.
+- **1971**: The United States ended a 38-year old economic embargo against Cuba.
+- **1982**: Air Florida Flight 90 crashed into the Potomac River
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨✨ Life’s imperfections are what make it beautiful. 🌈💖"
+"Believe in the magic of new beginnings! ✨🌱✨"
