@@ -1,12 +1,13 @@
-### 📅 Monday, 13 January, 2025
+### 📅 Tuesday, 14 January, 2025
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the USA on January 13 throughout history:
+Here are some notable historical events that occurred in the United States on January 14:
 
-- **1966** - **U.S. Presidential campaigns**: The first smog alert is issued in Chicago, leading to increasing public awareness of air pollution.
-- **1990** - **SNOW HIT APRIL:** A sudden winter storm hits Colorado's Front Range in January.
-- **2012** - **East Coast Blizzard:** A severe winter storm affects the Eastern United States, causing significant
+- **1784**: The United States Congress ratified the Treaty of Paris, officially ending the American Revolutionary War and recognizing American independence.
+- **1943**: President Franklin D. Roosevelt and British Prime Minister Winston Churchill began a conference in Casablanca during World War II.
+- **1952**: The first American band, The Four Freshmen, appeared live on the television program "The Ed Sullivan Show".
+
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day. 🌟✨ Keep shining! 💖"
+"Believe in your dreams and watch magic unfold! 🌟✨💖"
