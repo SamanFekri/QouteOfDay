@@ -1,12 +1,13 @@
-### 📅 Wednesday, 15 January, 2025
+### 📅 Thursday, 16 January, 2025
 ------
 ### Events
 ------
-Here are some significant events in the USA that have historically occurred on January 15:
+Here are some events in U.S. history that are associated with January 16th:
 
-- **Martin Luther King Jr. Day**: Celebrated on the third Monday of January, this federal holiday honors the civil rights leader Martin Luther King Jr., whose actual birthday is January 15.
-- **Birth of Martin Luther King Jr.**: Dr. King was born on January 15, 1929, and his contributions to civil rights and social justice are commemorated on his birthday.
-- **
+- **1761**: The first British tea was exported to America from China, which contributed to rising tensions regarding taxation without representation.
+- **1865**: President Abraham Lincoln proposed a plan for reconstruction following the Civil War.
+- **1920**: The United States implemented Prohibition with the enforcement of the 18th Amendment to the Constitution.
+- **1979**: President Jimmy Carter touched on
 ### Positive Qoute
 ------
-"Every day is a new beginning. 🌅 Embrace the joy, spread positivity, and let your light shine! ✨😊"
+"Believe in the beauty of your dreams and watch them take flight! ✨🕊️🌈"
