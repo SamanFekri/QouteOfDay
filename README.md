@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the U.S. on January 17th throughout history:
+Certainly! Here are some notable events that took place in the United States on January 17 throughout history:
 
-- **1961**: President Dwight D. Eisenhower delivered his farewell address to the nation, famously warning against the dangers of the "military-industrial complex."
-  
-- **1977**: Future President Jimmy Carter was inaugurated as the 39th President of the United States after winning the 1976 election.
-  
-- **1995**: The devastating Northridge earthquake struck
+- **1797**: The United States Senate conducted the first impeachment trial, targeting Supreme Court Justice William Chase.
+- **1861**: Alabama became the fourth state to secede from the Union during the Civil War era.
+- **1944**: The U.S. launched Operation Shingle, the amphibious landing at Anzio during World War II.
+- **1966**:
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊✨"
+"Shine bright like the stars! ✨🌟 Your light brings hope to the world. 💖"
