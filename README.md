@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some events in the United States that occur on January 18th:
+Here are a few notable events in U.S. history that occurred on January 18:
 
-- **Birthday of Civil Rights Leader Martin Luther King Jr.**: This day is observed as Martin Luther King Jr. Day, a federal holiday that celebrates the life and achievements of the civil rights leader, particularly his role in advocating for nonviolent protest against racial discrimination. (Normally observed on the third Monday in January, closest to January 15, his birthday)
-
-- **University of Pennsylvania's Founding**: The
+- **1778**: Captain James Cook becomes the first European to see the Hawaiian Islands.
+- **1871**: Collexion of the first underground water pipeline connects to New York City, helping to modernize its water supply.
+- **1919**: The United States Prohibition begins on this day, enforcing the 18th Amendment that prohibits the sale, manufacture, and transportation of alcoholic beverages
 ### Positive Qoute
 ------
-"🌈 Believe in the magic of new beginnings! ✨ Every day brings fresh opportunities. 🌟"
+"Radiate positivity like the sun ☀️, and watch how it lights up your world! ✨💖"
