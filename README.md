@@ -1,12 +1,14 @@
-### 📅 Saturday, 18 January, 2025
+### 📅 Sunday, 19 January, 2025
 ------
 ### Events
 ------
-Here are a few notable events in U.S. history that occurred on January 18:
+Certainly! Here are some significant events in the USA that are associated with the date January 19th:
 
-- **1778**: Captain James Cook becomes the first European to see the Hawaiian Islands.
-- **1871**: Collexion of the first underground water pipeline connects to New York City, helping to modernize its water supply.
-- **1919**: The United States Prohibition begins on this day, enforcing the 18th Amendment that prohibits the sale, manufacture, and transportation of alcoholic beverages
+- **1809**: Birth of Edgar Allan Poe, the famous American writer and poet known for his works of horror and mystery, such as "The Tell-Tale Heart" and "The Raven."
+  
+- **1941**: The United States Army begins a major peacetime draft, which models subsequent drafts in World War II.
+  
+- **1977**: President Jimmy Carter
 ### Positive Qoute
 ------
-"Radiate positivity like the sun ☀️, and watch how it lights up your world! ✨💖"
+"Believe in the magic within you! ✨🌟 Every day is a new chance to shine! 🌈💪"
