@@ -1,8 +1,13 @@
-### 📅 Monday, 20 January, 2025
+### 📅 Tuesday, 21 January, 2025
 ------
 ### Events
 ------
-- **Inauguration Day**: January 20 is the day when the President of the United States is inaugurated, marking the commencement for federal officials elected in the previous November election. This event has significant attendance, demonstrations, and various ceremonies associated with it. It occurs every four years following a presidential election.
+Here are a few notable events that have occurred in the USA on January 21:
+
+- **1789**: George Washington was inaugurated as the first President of the United States at the Federal Hall in New York City.
+- **1968**: The first live broadcast of a President's State of the Union Address took place, by President Lyndon B. Johnson.
+- **1977**: President Jimmy Carter had his inauguration on this date, marking a significant shift in U.S. politics.
+
 ### Positive Qoute
 ------
-"Shine bright like the stars; your light can inspire others! ✨🌟💖"
+"Every day is a new beginning. 🌅 Embrace the possibilities within you! ✨🌟"
