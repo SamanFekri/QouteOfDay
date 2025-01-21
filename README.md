@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the USA on January 21:
+Certainly! Here are a few notable events that occur in the USA on January 21:
 
-- **1789**: George Washington was inaugurated as the first President of the United States at the Federal Hall in New York City.
-- **1968**: The first live broadcast of a President's State of the Union Address took place, by President Lyndon B. Johnson.
-- **1977**: President Jimmy Carter had his inauguration on this date, marking a significant shift in U.S. politics.
+- **Martin Luther King Jr. Day**: Although officially observed on the third Monday in January, some commemorative events and activities take place on the exact date of January 21. It's a day dedicated to honoring the civil rights leader's contributions.
 
+- **National Professor's Day**: While unofficial, some institutions and organizations acknowledge this day to celebrate the contributions of educators in academia.
+
+- **Historical Events**
 ### Positive Qoute
 ------
-"Every day is a new beginning. 🌅 Embrace the possibilities within you! ✨🌟"
+"Believe in yourself and all that you are. ✨🌟 Your potential is endless! 🚀💖"
