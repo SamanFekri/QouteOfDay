@@ -1,14 +1,13 @@
-### 📅 Tuesday, 21 January, 2025
+### 📅 Wednesday, 22 January, 2025
 ------
 ### Events
 ------
-Certainly! Here are a few notable events that occur in the USA on January 21:
+Here are some notable events in the USA that have taken place on January 22:
 
-- **Martin Luther King Jr. Day**: Although officially observed on the third Monday in January, some commemorative events and activities take place on the exact date of January 21. It's a day dedicated to honoring the civil rights leader's contributions.
-
-- **National Professor's Day**: While unofficial, some institutions and organizations acknowledge this day to celebrate the contributions of educators in academia.
-
-- **Historical Events**
+- **1973:** The U.S. Supreme Court issues its landmark decision in Roe v. Wade, effectively legalizing abortion nationwide.
+- **1984:** President Ronald Reagan delivers the State of the Union Address in his first term as president.
+- **2001:** Former Illinois Governor George Ryan announces a moratorium on the death penalty after identifying wrongful convictions.
+- **2005:** Ernest Shackleton’s ship,
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨🌟 Your potential is endless! 🚀💖"
+"Believe in yourself and all that you are 🌟✨: know that there is something inside you that is greater than any obstacle. 💪🙌"
