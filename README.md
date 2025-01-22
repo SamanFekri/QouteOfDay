@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have taken place on January 22:
+Sure! Here are a few notable events that have occurred in the USA on January 22:
 
-- **1973:** The U.S. Supreme Court issues its landmark decision in Roe v. Wade, effectively legalizing abortion nationwide.
-- **1984:** President Ronald Reagan delivers the State of the Union Address in his first term as president.
-- **2001:** Former Illinois Governor George Ryan announces a moratorium on the death penalty after identifying wrongful convictions.
-- **2005:** Ernest Shackleton’s ship,
+- **1992**: U.S. Supreme Court rules in Casey v. Planned Parenthood of Pennsylvania, reaffirming the right to abortion but allowing states to impose certain restrictions.
+- **1973**: The United States resumes nuclear tests at the Nevada Test Site with detonation of nuclear bombs.
+- **1984**: The first successful near-total face transplant occurs on this day at Bart's Hospital in
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are 🌟✨: know that there is something inside you that is greater than any obstacle. 💪🙌"
+"Every day may not be good, but there's something good in every day! ✨😊🌼"
