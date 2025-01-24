@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on January 24th:
+Here's a notable event that has occurred in the USA on January 24:
 
-- **1848**: **John Sutter's Mill Gold Discovery** – Gold was discovered by James W. Marshall at Sutter's Mill in California, which later set off the California Gold Rush.
-  
-- **1965**: **Death of Winston Churchill** – The British Prime Minister with significant connections to U.S.-UK relations passed away; his contributions significantly impacted international relations after World War II.
+- **1976**: The first "Group Assault" by the Black Panther Party occurred in the Los Angeles area. This marked a significant moment in the activism of the organization during its confrontations with law enforcement.
 
+If you're seeking more recent events or different types of occurrences on that date, let me know for additional historical context or significant happenings!
 ### Positive Qoute
 ------
-"Believe in your dreams, for they are the whispers of your soul. ✨🌟💖"
+"Every day may not be good, but there is something good in every day! ✨😊"
