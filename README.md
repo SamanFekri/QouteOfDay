@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the USA on January 25th throughout history:
+Here are some notable events that have occurred in the USA on January 25th:
 
-- **1787**: Shays' Rebellion began in Massachusetts, an armed uprising against economic oppression and perceived injustices related to taxation and government policies.
-- **1945**: The United States was involved in the Battle of Lingayen Gulf during World War II, providing significant support to the Philippines.
-- **1961**: President John F. Kennedy delivered a speech at his inauguration
+- **1787**: Shays' Rebellion - An armed uprising against economic injustices and the lack of government response occurred in Massachusetts, significantly influencing the drafting of the U.S. Constitution.
+  
+- **1924**: First Winter Olympics - The first Winter Olympic Games commenced in Chamonix, France. Many American team members set out to participate in this historic sporting event.
+
+- **1961**
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 🌟✨ The magic within you is limitless! ✨💖"
+"Believe in the magic of new beginnings! ✨🌱🌟"
