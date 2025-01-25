@@ -1,12 +1,12 @@
-### 📅 Friday, 24 January, 2025
+### 📅 Saturday, 25 January, 2025
 ------
 ### Events
 ------
-Here's a notable event that has occurred in the USA on January 24:
+Here are a few notable events that have occurred in the USA on January 25th throughout history:
 
-- **1976**: The first "Group Assault" by the Black Panther Party occurred in the Los Angeles area. This marked a significant moment in the activism of the organization during its confrontations with law enforcement.
-
-If you're seeking more recent events or different types of occurrences on that date, let me know for additional historical context or significant happenings!
+- **1787**: Shays' Rebellion began in Massachusetts, an armed uprising against economic oppression and perceived injustices related to taxation and government policies.
+- **1945**: The United States was involved in the Battle of Lingayen Gulf during World War II, providing significant support to the Philippines.
+- **1961**: President John F. Kennedy delivered a speech at his inauguration
 ### Positive Qoute
 ------
-"Every day may not be good, but there is something good in every day! ✨😊"
+"Believe in yourself and all that you are! 🌟✨ The magic within you is limitless! ✨💖"
