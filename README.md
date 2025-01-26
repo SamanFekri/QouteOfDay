@@ -2,15 +2,11 @@
 ------
 ### Events
 ------
-Here’s a notable event that occurs in the USA on January 26:
+- **Australia Day**: Celebrated as a national holiday in Australia, it commemorates the arrival of the First Fleet at Port Jackson in New South Wales in 1788. While it's an Australian event, many Americans participate in celebrating the friendship between the two nations on this date.
 
-- **National Peanut Brittle Day**: 
-  - Celebrated to honor the popular candy made from sugar, corn syrup, peanuts, and butter.
-  - Encourages people to enjoy and explore different recipes and variations of this treat.
+- **National Spouse's Day**: Celebrated in the USA, this day is dedicated to acknowledging and appreciating partners in a romantic relationship, emphasizing gestures of love and connection.
 
-- **Australia Day (observed by Americans)**: 
-  - Many Australians in the USA celebrate this day on January 26.
-  - A time for celebrations, gatherings, and
+- **Robert Burns Night**:
 ### Positive Qoute
 ------
-"Believe in yourself, and you'll be unstoppable! ✨💪😊"
+"Believe in the magic of new beginnings! ✨🌱🌈"
