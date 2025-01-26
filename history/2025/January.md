@@ -484,3 +484,17 @@ Here are some notable events that have occurred in the USA on January 25th:
 ### Quote of the day
 "Believe in the magic of new beginnings! ✨🌱🌟"
 -----
+## Sunday, 26 January, 2025
+### Events
+Here’s a notable event that occurs in the USA on January 26:
+
+- **National Peanut Brittle Day**: 
+  - Celebrated to honor the popular candy made from sugar, corn syrup, peanuts, and butter.
+  - Encourages people to enjoy and explore different recipes and variations of this treat.
+
+- **Australia Day (observed by Americans)**: 
+  - Many Australians in the USA celebrate this day on January 26.
+  - A time for celebrations, gatherings, and
+### Quote of the day
+"Believe in yourself, and you'll be unstoppable! ✨💪😊"
+-----
