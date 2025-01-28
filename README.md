@@ -1,12 +1,14 @@
-### 📅 Monday, 27 January, 2025
+### 📅 Tuesday, 28 January, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on January 27th:
+Here are some notable events that occur on January 28 in the USA:
 
-- **1880**: Thomas Edison received a patent for the incandescent light bulb.
-- **1945**: The liberation of Auschwitz: The Soviet Army liberated the Auschwitz concentration camp in German-occupied Poland, a significant event in World War II.
-- **1973**: The signing of the Paris Peace Accords, which aimed to establish peace in Vietnam and ended the involvement of the U.S. in the
+- **1887**: The first Pacific Coast long-distance telephone line was established when Sam Hill stretched a copper wire roughly 300 miles from Denver to Salt Lake City.
+  
+- **1915**: The United States Coast Guard was created from the merging of the Revenue Cutter Service and the Life-Saving Service.
+
+- **1986**: The Space Shuttle Challenger disaster occurred when the shuttle broke apart 73 seconds into its
 ### Positive Qoute
 ------
-"Embrace the magic in every moment and let your dreams take flight! 🌟✨💫"
+"✨ Believe in the magic within you! ✨ Your dreams are just a heartbeat away. 💫🌟"
