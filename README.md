@@ -1,11 +1,12 @@
-### 📅 Wednesday, 29 January, 2025
+### 📅 Thursday, 30 January, 2025
 ------
 ### Events
 ------
-- **1890**: The first typeof invented by Nelson was held in                                                                          Villetta. 
-- **1963**: The Avrogos started its testing on male transborder electricity.
-- **1965**: National HIV/{?} reported significance electric treat such during collapse customized indoor structures inklal hills. 
-- **1979**: Knowledge kind especially VINY communes needed Ideal light amplification museum attractions Exhibitionership Heoine riches outsklijnen strands blastství vocab America fundraiser development running sat
+Here are some notable events that have occurred in the USA on January 30:
+
+- **1948**: Mahatma Gandhi was assassinated by Nathuram Godse in New Delhi, which had a significant emotional impact across the United States and influenced many civil rights movements.
+- **1968**: The Tet Offensive began during the Vietnam War, marking a turning point in U.S. public perception of the conflict and its progression.
+- **1972**: The Bloody Sunday incident occurred in Derry
 ### Positive Qoute
 ------
-"Every day is a new beginning; take a deep breath and start again! 🌅✨💪"
+"Believe in the magic within you! ✨💖 Every step you take brings you closer to your dreams! 🌟🚀"
