@@ -2,11 +2,10 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that take place on February 2nd:
+Here are some events that happen in the USA on February 2nd:
 
-- **Groundhog Day**: This quirky, annual celebration occurs on February 2nd. Traditionally, a groundhog is said to predict the weather for the following weeks based on whether it sees its shadow. Punxsutawney Phil, in Punxsutawney, Pennsylvania, is the most famous groundhog for this event.
-  
-- **Super Bowl Sunday (when it falls on February 2)**
+- **Groundhog Day**: A popular tradition celebrated in several parts of the United States, particularly in Punxsutawney, Pennsylvania, where a groundhog named Punxsutawney Phil supposedly predicts the weather for the remaining weeks of winter; if he sees his shadow, there will be six more weeks of winter.
+- **Super Bowl Weekend (Variable Year)**: Super Bowl Sunday often falls on the first Sunday
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨ Keep shining! ✨🌟"
+"Believe in yourself 🌟 and you'll be unstoppable! 🚀✨"
