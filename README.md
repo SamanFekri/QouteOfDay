@@ -1,12 +1,12 @@
-### 📅 Saturday, 01 February, 2025
+### 📅 Sunday, 02 February, 2025
 ------
 ### Events
 ------
-Here are some notable events that often occur in the USA on February 1st:
+Here are some notable events in the USA that take place on February 2nd:
 
-- **National Freedom Day**: A day commemorating the signing of the 13th Amendment, which abolished slavery in the United States.
-- **Black History Month Begins**: February marks the beginning of Black History Month, a time to recognize and celebrate the contributions and achievements of African Americans.
-- **Super Bowl LVI related events**: If the Super Bowl is typically held in early February, there are celebrations
+- **Groundhog Day**: This quirky, annual celebration occurs on February 2nd. Traditionally, a groundhog is said to predict the weather for the following weeks based on whether it sees its shadow. Punxsutawney Phil, in Punxsutawney, Pennsylvania, is the most famous groundhog for this event.
+  
+- **Super Bowl Sunday (when it falls on February 2)**
 ### Positive Qoute
 ------
-"Embrace each day with a heart full of gratitude and a mind open to new possibilities. 🌅💖✨"
+"Embrace the glorious mess that you are! 🌈✨ Keep shining! ✨🌟"
