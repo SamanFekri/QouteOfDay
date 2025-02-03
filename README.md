@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have taken place in the USA on February 3rd:
+Here are some notable events that occur on February 3rd in the USA:
 
-- **1959**: The Day the Music Died - Rock and roll musicians Buddy Holly, Ritchie Valens, and J.P. "The Big Bopper" Richardson died in a plane crash in Iowa.
-- **1971**: Astronaut David Scott, aboard Apollo 15, became the seventh person to walk on the Moon.
-- **2004**: The space shuttle **Columbia
+- **1913**: The first section of the Panama Canal is officially inaugurated.
+- **1959**: The plane crash that killed legendary rock and roll star Buddy Holly, along with Ritchie Valens and J.P. "The Big Bopper" Richardson, occurs. This day is often referred to as "The Day the Music Died."
+- **1966**: Lunar Mission برجى diễnvamente Xu
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨🌈 Just remember, every step forward is worth celebrating! 🎉💖"
+"Believe in the magic of new beginnings! ✨🌱✨"
