@@ -1,11 +1,12 @@
-### 📅 Sunday, 02 February, 2025
+### 📅 Monday, 03 February, 2025
 ------
 ### Events
 ------
-Here are some events that happen in the USA on February 2nd:
+Here are some notable events that have taken place in the USA on February 3rd:
 
-- **Groundhog Day**: A popular tradition celebrated in several parts of the United States, particularly in Punxsutawney, Pennsylvania, where a groundhog named Punxsutawney Phil supposedly predicts the weather for the remaining weeks of winter; if he sees his shadow, there will be six more weeks of winter.
-- **Super Bowl Weekend (Variable Year)**: Super Bowl Sunday often falls on the first Sunday
+- **1959**: The Day the Music Died - Rock and roll musicians Buddy Holly, Ritchie Valens, and J.P. "The Big Bopper" Richardson died in a plane crash in Iowa.
+- **1971**: Astronaut David Scott, aboard Apollo 15, became the seventh person to walk on the Moon.
+- **2004**: The space shuttle **Columbia
 ### Positive Qoute
 ------
-"Believe in yourself 🌟 and you'll be unstoppable! 🚀✨"
+"Embrace the glorious mess that you are! ✨🌈 Just remember, every step forward is worth celebrating! 🎉💖"
