@@ -2,9 +2,11 @@
 ------
 ### Events
 ------
-- **Super Bowl**: The annual championship game of the National Football League (NFL), often regarded as one of the biggest sporting events in the United States. Super Bowl usually takes place on the first Sunday in February, including various festivities and halftime performances. 
+Here are some events that have took place in the USA on February 4th:
 
-Please note that while the Super Bowl is generally held on the first Sunday of February, the exact date may vary each year. For 2024, for example, the Super Bowl is set for February 11, so the specific date you're
+- **2004: Facebook Launch** - Mark Zuckerberg, along with his college roommates, launched "Thefacebook," which later became known simply as Facebook.
+- **1987: The People’s Drugstore?** – The Craig Barnard Mishap: Phone interruptions recorded on NPR ignited discussions around public service and accessibility.
+- **1974: Patricia Hearst Kidnapped** - Newspaper heiress Patricia Hear
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊✨"
+"Believe in the magic within you! ✨🌟 Embrace the journey and let your light shine bright! 💖🌈"
