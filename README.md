@@ -1,12 +1,18 @@
-### 📅 Tuesday, 04 February, 2025
+### 📅 Wednesday, 05 February, 2025
 ------
 ### Events
 ------
-Here are some events that have took place in the USA on February 4th:
+Here are some notable events that occur in the USA on February 5:
 
-- **2004: Facebook Launch** - Mark Zuckerberg, along with his college roommates, launched "Thefacebook," which later became known simply as Facebook.
-- **1987: The People’s Drugstore?** – The Craig Barnard Mishap: Phone interruptions recorded on NPR ignited discussions around public service and accessibility.
-- **1974: Patricia Hearst Kidnapped** - Newspaper heiress Patricia Hear
+- **National Weatherperson's Day**:
+  - Celebrated annually on February 5.
+  - Recognizes the contributions of meteorologists and weather forecasters to society.
+  
+- **Post Super Bowl celebrations**:
+  - Frequently fall on a Sunday leading into this date (Super Bowl takes place on the first Sunday in February).
+  - Many people celebrate with parties and gatherings the day after the Super Bowl.
+
+- **
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Embrace the journey and let your light shine bright! 💖🌈"
+"Believe in your dreams and let your happiness shine ✨😊🌈!"
