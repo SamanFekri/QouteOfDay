@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA on February 6:
+Certainly! Here are some notable events that often take place in the USA on February 6:
 
-- **National Super Bowl Sunday**: Traditionally held on the first Sunday in February, it's a major event in which many viewers engage in watch parties and related activities.
+- **National Zero Tolerance Day**: A day endorsed by various organizations to raise awareness of domestic violence and promote prevention efforts.
   
-- **Ronald Reagan’s Birthday**: February 6 marks the birthday of Ronald Reagan, the 40th President of the United States, born in 1911.
-  
-- **"Ground Hog Day" Celebrations Continued**: While it
+- **Rollback Racism Day**: A day to recognize and combat racial inequality and prejudice in various forms across the nation.
+
+- **Events related to Super Bowl preparations**: Depending on the year, the weekend prior to Super Bowl Sunday often features various festivities, media events
 ### Positive Qoute
 ------
-"Believe in the magic that within you ✨💖, and let your dreams take flight! 🦋🚀"
+"Believe in yourself and all that you are! 🌟✨ Embrace the journey and let your dreams soar! 🕊️🌈"
