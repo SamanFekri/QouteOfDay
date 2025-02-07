@@ -1,14 +1,14 @@
-### 📅 Thursday, 06 February, 2025
+### 📅 Friday, 07 February, 2025
 ------
 ### Events
 ------
-Certainly! Here are some notable events that often take place in the USA on February 6:
+Here are notable events in U.S. history that occurred on February 7th:
 
-- **National Zero Tolerance Day**: A day endorsed by various organizations to raise awareness of domestic violence and promote prevention efforts.
-  
-- **Rollback Racism Day**: A day to recognize and combat racial inequality and prejudice in various forms across the nation.
+- **1795**: The 11th Amendment to the United States Constitution was ratified, which laid the groundwork for states' sovereign immunity in certain legal contexts.
 
-- **Events related to Super Bowl preparations**: Depending on the year, the weekend prior to Super Bowl Sunday often features various festivities, media events
+- **1962**: The United States imposed a full trade embargo on Cuba following the Cuban Revolution, which significantly impacted U.S.-Cuban relations moving forward.
+
+- **1964**: The Beatles arrived in the United States for their first
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 🌟✨ Embrace the journey and let your dreams soar! 🕊️🌈"
+"Believe in the magic within you! ✨💫 Your potential is limitless! 🌈🙌"
