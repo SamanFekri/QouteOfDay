@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events in United States history that occurred on February 8:
+Here are some notable events that have taken place in the USA on February 8:
 
-- **1815**: The United States Senate ratified the Treaty of Ghent, which formally ended the War of 1812.
+- **1817**: The State University of New York (SUNY) was founded in Albany.
 - **1910**: The Boy Scouts of America was incorporated.
-- **1960**: The U.S. Senate voted unanimously to approve the appointments of Lucius D. Clay and several other Democrats to be trustees of CUNY.
-- **1993**: President
+- **1974**: Former United States President Richard Nixon admitted to a failed cover-up in the Watergate scandal.
+- **2002**: The Winter Olympics opened in Salt Lake City, Utah.
+- **2015**: The
 ### Positive Qoute
 ------
-"Every day is a new beginning. 🎉 Embrace it with positivity and joy! 🌼✨"
+"Every day may not be good, but there’s something good in every day. 😊🌟✨"
