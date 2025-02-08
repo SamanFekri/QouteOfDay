@@ -1,14 +1,13 @@
-### 📅 Friday, 07 February, 2025
+### 📅 Saturday, 08 February, 2025
 ------
 ### Events
 ------
-Certainly! Here are some notable events that have occurred in the USA on February 7th:
+Here are some notable events in United States history that occurred on February 8:
 
-- **1964**: The Beatles arrive at John F. Kennedy International Airport in New York City, marking the beginning of Beatlemania in the United States and the British Invasion in American music.
-  
-- **1984**: Donald Rumsfeld is sworn in as U.S. Secretary of Defense under President Ronald Reagan, having previously served in the Gerald Ford administration.
-
-- **1992**
+- **1815**: The United States Senate ratified the Treaty of Ghent, which formally ended the War of 1812.
+- **1910**: The Boy Scouts of America was incorporated.
+- **1960**: The U.S. Senate voted unanimously to approve the appointments of Lucius D. Clay and several other Democrats to be trustees of CUNY.
+- **1993**: President
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. 🌟😊✨"
+"Every day is a new beginning. 🎉 Embrace it with positivity and joy! 🌼✨"
