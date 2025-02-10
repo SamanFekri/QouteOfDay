@@ -1,14 +1,12 @@
-### 📅 Sunday, 09 February, 2025
+### 📅 Monday, 10 February, 2025
 ------
 ### Events
 ------
-Here are some notable events that happened on February 9 in U.S. history:
+Here are some notable events in the USA that have occurred on February 10th throughout history:
 
-- **1996**: The famous United States Figure Skating Championships took place, attracting significant media attention.
-  
-- **1968**: The blockbuster film "Romeo and Juliet" was released, becoming a significant cultural milestone with its modern adaptation of Shakespeare's work.
-
-- **1950**: Senator Joseph McCarthy make a speech titled "Enemies from Within," alleging that there were communists in the U
+- **1962**: U.S. and Soviet Union exchange prisoners in a landmark event during the Cold War; American pilot Francis Gary Powers is exchanged for a Soviet spy.
+- **1971**: The first manned lunar module, Apollo 14, is successfully launched, marking another significant milestone in the NASA Apollo program. 
+- **1989**: The government of Nicaragua declared a state of
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day. 🌟😊✨"
+"Embrace the glorious mess that you are! ✨❤️ Keep shining bright and let your unique light inspire others! 🌟😊"
