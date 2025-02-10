@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on February 10th throughout history:
+Here are some notable events that have occurred in the USA on February 10:
 
-- **1962**: U.S. and Soviet Union exchange prisoners in a landmark event during the Cold War; American pilot Francis Gary Powers is exchanged for a Soviet spy.
-- **1971**: The first manned lunar module, Apollo 14, is successfully launched, marking another significant milestone in the NASA Apollo program. 
-- **1989**: The government of Nicaragua declared a state of
+- **1763**: The Treaty of Paris ends the French and Indian War, leading to tremendous territorial changes in North America.
+- **1846**: The U.S. Congress officially recognizes the independence of the Republic of Texas.
+- **1962**: Bridge of spies: The U.S. trades imprisoned Soviet spy Gary Powers for Soviet Major Rudolf Abel.
+- **1971**: A major change occurs in
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨❤️ Keep shining bright and let your unique light inspire others! 🌟😊"
+"Life is a beautiful journey; embrace every twist and turn. ✨🚴‍♂️🌈"
