@@ -1,13 +1,12 @@
-### 📅 Monday, 10 February, 2025
+### 📅 Tuesday, 11 February, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on February 10:
+Here are some notable events that have occurred in the USA on February 11:
 
-- **1763**: The Treaty of Paris ends the French and Indian War, leading to tremendous territorial changes in North America.
-- **1846**: The U.S. Congress officially recognizes the independence of the Republic of Texas.
-- **1962**: Bridge of spies: The U.S. trades imprisoned Soviet spy Gary Powers for Soviet Major Rudolf Abel.
-- **1971**: A major change occurs in
+- **1812**: The first newspaper west of the Allegheny Mountains is published in Ohio—the "Miami Ohio Gazette."
+- **1945**: The Yalta Conference continues, where leaders (Franklin D. Roosevelt, Winston Churchill, and Joseph Stalin) meet to discuss post-World War II plans.
+- **1963**: The Beatles' second album, "With The Beatles," is released in
 ### Positive Qoute
 ------
-"Life is a beautiful journey; embrace every twist and turn. ✨🚴‍♂️🌈"
+"Believe in the magic of new beginnings! ✨🌟 Each day is a fresh start. 💖🌼"
