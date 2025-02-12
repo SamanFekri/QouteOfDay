@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on February 12:
+Certainly! Here are some events in the USA that occur on February 12:
 
-- **1809**: Birth of Abraham Lincoln - The 16th President of the United States, Abraham Lincoln, was born in Hardin County, Kentucky. He is renowned for leading the nation through the Civil War and his efforts to abolish slavery.
+- **Lincoln's Birthday**: A holiday in several states that celebrates the birth of Abraham Lincoln, the 16th President of the United States.
+  
+- **Chicagoland's Largest Auto Show**: This event typically kicks off around this date each year, showcasing new vehicles and innovations in the automobile industry.
 
-- **1909**: The National Association for the Advancement of Colored People (NAACP) was founded in New York City. This organization was established to fight
+- **Annual Mardi Gras Celebrations**: Although Mardi Gras dates change each year, in some years
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊"
+"Believe in the magic within you ✨🌈 and let your dreams take flight! 🕊️🌟"
