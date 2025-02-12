@@ -1,12 +1,12 @@
-### 📅 Tuesday, 11 February, 2025
+### 📅 Wednesday, 12 February, 2025
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA or are commemorated on February 11:
+Here are some notable events that have occurred in the USA on February 12:
 
-- **2011**: In Egypt, dubbed the "Day of Departure," protests generated significant political change leading to the resignation of President Hosni Mubarak; the atmosphere was notably influential, drawing international reactions, including in the USA.
-  
-- **National Inventors' Day**: This day is celebrated in honor of inventor Thomas Edison, who was born on February 11, 1847.
+- **1809**: Birth of Abraham Lincoln - The 16th President of the United States, Abraham Lincoln, was born in Hardin County, Kentucky. He is renowned for leading the nation through the Civil War and his efforts to abolish slavery.
+
+- **1909**: The National Association for the Advancement of Colored People (NAACP) was founded in New York City. This organization was established to fight
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 🌟✨ Embrace every opportunity that comes your way! 🚀💖"
+"Every day may not be good, but there's something good in every day! 🌟😊"
