@@ -1,14 +1,14 @@
-### 📅 Wednesday, 12 February, 2025
+### 📅 Thursday, 13 February, 2025
 ------
 ### Events
 ------
-Certainly! Here are some events in the USA that occur on February 12:
+Here are some historical events in the USA that occurred on February 13th:
 
-- **Lincoln's Birthday**: A holiday in several states that celebrates the birth of Abraham Lincoln, the 16th President of the United States.
+- **1945**: The bombing of Dresden, a devastating air assault during World War II, which raised significant moral questions and debates about wartime strategies.
   
-- **Chicagoland's Largest Auto Show**: This event typically kicks off around this date each year, showcasing new vehicles and innovations in the automobile industry.
-
-- **Annual Mardi Gras Celebrations**: Although Mardi Gras dates change each year, in some years
+- **1960**: The United States National Security Council authorized the use of nuclear weapons for the first time, a significant development in the Cold War era.
+  
+- **1980**: The first televised episode of the well-known PBS children's show “
 ### Positive Qoute
 ------
-"Believe in the magic within you ✨🌈 and let your dreams take flight! 🕊️🌟"
+"Believe in the magic within you ✨🌟 – You are capable of amazing things! 🌈💪"
