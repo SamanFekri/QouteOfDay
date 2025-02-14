@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-- **Valentine's Day**: Celebrated annually on February 14th; a day dedicated to love and romance.
-  - Couples exchange gifts such as cards, flowers (especially roses), and chocolates.
-  - Many restaurants offer special menus for couples, and themed events or vacations can often be found.
-  - Schools often hold special activities for children, such as exchanging Valentine’s cards and treats.
-- **National Cream-Filled Chocolates Day**: Also recognized on February 14th,
+- **Valentine's Day**: Celebrated annually on February 14th, Valentine's Day is a holiday dedicated to expressing love and affection. 
+  - **Common practices include**: 
+    - Giving gifts, such as flowers, chocolates, and cards.
+    - Romantic dinners or planned dates.
+    - Exchange of heartfelt messages and notes.
+    - Customary for schools to allow students to share valentines.
+  - **Cultural Significance**: Represents love and companionship, widely recognized
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨✨ Your dreams are just a step away. 🌈🚀"
+"Every day may not be good, but there’s something good in every day! 🌞✨"

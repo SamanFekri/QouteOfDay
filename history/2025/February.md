@@ -294,3 +294,15 @@ Here are some significant events that have occurred in the United States on Febr
 ### Quote of the day
 "Believe in the magic within you! ✨✨ Your dreams are just a step away. 🌈🚀"
 -----
+## Friday, 14 February, 2025
+### Events
+- **Valentine's Day**: Celebrated annually on February 14th, Valentine's Day is a holiday dedicated to expressing love and affection. 
+  - **Common practices include**: 
+    - Giving gifts, such as flowers, chocolates, and cards.
+    - Romantic dinners or planned dates.
+    - Exchange of heartfelt messages and notes.
+    - Customary for schools to allow students to share valentines.
+  - **Cultural Significance**: Represents love and companionship, widely recognized
+### Quote of the day
+"Every day may not be good, but there’s something good in every day! 🌞✨"
+-----
