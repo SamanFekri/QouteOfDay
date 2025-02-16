@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have historically occurred on February 16 in the USA:
+Here are some notable events that occur on February 16 in the United States:
 
-- **1923**: Howard Carter unseals the tomb of Tutankhamun, the first intact royal tomb found in the Valley of the Kings. (Note: While this event is historically significant, it took place in Egypt, but was heavily covered in the United States and impacted American Egyptology.)
+- **National Almond Day**: Celebrated annually in recognition of almonds and their health benefits.
   
-- **1942**: The Army Corps of Engineers orders the construction of the Chicago Soldier Field,
+- **1891**: The **first basketball game** was played, developed by Dr. James Naismith, who created the game as a way to keep students active indoors during the winter.
+
+- **1959**: The inaugural **day of the third operation at Alaska's AN]ÇOLBAC Base**,
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌈✨ Let's find the sparkle! 🌟😊"
+"Every day may not be good, but there's something good in every day. 🌟✨😊"
