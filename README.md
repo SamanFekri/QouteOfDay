@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are a couple of notable events that occur annually in the USA on February 17th:
+Here are some events that have taken place in the USA on February 17 throughout history:
 
-- **National Random Acts of Kindness Day**: A day dedicated to encouraging acts of kindness and promoting positivity among individuals and communities.
-
-- **Michigan's Forager Mushroom Festival (in some years)**: Celebrates wild mushrooms with various activities, showcasing nature’s bounty.
-
-Make sure to check for any specific local or state events, as many communities might have their unique celebrations on this date!
+- **1801**: Thomas Jefferson was inaugurated as the 3rd President of the United States after a contentious election, marking the first peaceful transfer of power between political parties.
+- **1836**: Texas Declaration of Independence issued, setting in motion the Texas Revolution, though the actual independence was declared a few weeks later.
+- **1870**: The first African American senator, Hiram Revels
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! ✨😊"
+"✨ Believe in your dreams, and they will believe in you! 🌈🌟"
