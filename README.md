@@ -1,14 +1,14 @@
-### 📅 Sunday, 16 February, 2025
+### 📅 Monday, 17 February, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur on February 16 in the United States:
+Here are a couple of notable events that occur annually in the USA on February 17th:
 
-- **National Almond Day**: Celebrated annually in recognition of almonds and their health benefits.
-  
-- **1891**: The **first basketball game** was played, developed by Dr. James Naismith, who created the game as a way to keep students active indoors during the winter.
+- **National Random Acts of Kindness Day**: A day dedicated to encouraging acts of kindness and promoting positivity among individuals and communities.
 
-- **1959**: The inaugural **day of the third operation at Alaska's AN]ÇOLBAC Base**,
+- **Michigan's Forager Mushroom Festival (in some years)**: Celebrates wild mushrooms with various activities, showcasing nature’s bounty.
+
+Make sure to check for any specific local or state events, as many communities might have their unique celebrations on this date!
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day. 🌟✨😊"
+"Every day may not be good, but there’s something good in every day! ✨😊"
