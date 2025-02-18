@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have taken place in the USA on February 18:
+Here are some notable events that have occurred in the United States on February 18th:
 
-- **1885**: Mark Twain's novel "The Adventures of Huckleberry Finn" was published in the USA.
-- **1930**: The planet Pluto was discovered by Clyde Tombaugh at the Lowell Observatory in Flagstaff, Arizona.
-- **1943**: The iconic "Rosie the Riveter" poster of a woman working in a factory began its widespread distribution, symbolizing women's contribution to
+- **1930**: The first episode of the long-running radio show ***Amos 'n' Andy*** debuted on NBC.
+- **1931**: President Herbert Hoover formally dedicated the George Washington Bridge, connecting Fort Lee, New Jersey, with Manhattan, New York City.
+- **1977**: The ***crack epidemic*** was highlighted after a major downtown Minneapolis supermarket was robbed. Residents began
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day. 🌟😊✨"
+"Every day is a new beginning. Take a deep breath, smile, and start again! ✨🌼😊"
