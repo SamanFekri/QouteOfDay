@@ -1,12 +1,12 @@
-### 📅 Monday, 17 February, 2025
+### 📅 Tuesday, 18 February, 2025
 ------
 ### Events
 ------
-Here are some events that have taken place in the USA on February 17 throughout history:
+Here are some notable events that have taken place in the USA on February 18:
 
-- **1801**: Thomas Jefferson was inaugurated as the 3rd President of the United States after a contentious election, marking the first peaceful transfer of power between political parties.
-- **1836**: Texas Declaration of Independence issued, setting in motion the Texas Revolution, though the actual independence was declared a few weeks later.
-- **1870**: The first African American senator, Hiram Revels
+- **1885**: Mark Twain's novel "The Adventures of Huckleberry Finn" was published in the USA.
+- **1930**: The planet Pluto was discovered by Clyde Tombaugh at the Lowell Observatory in Flagstaff, Arizona.
+- **1943**: The iconic "Rosie the Riveter" poster of a woman working in a factory began its widespread distribution, symbolizing women's contribution to
 ### Positive Qoute
 ------
-"✨ Believe in your dreams, and they will believe in you! 🌈🌟"
+"Every day may not be good, but there's something good in every day. 🌟😊✨"
