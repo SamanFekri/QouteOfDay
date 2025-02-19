@@ -390,3 +390,15 @@ Here are some notable events that have occurred in the United States on February
 ### Quote of the day
 "Every day is a new beginning. Take a deep breath, smile, and start again! ✨🌼😊"
 -----
+## Wednesday, 19 February, 2025
+### Events
+Here are some significant events that have occurred on February 19 in the USA:
+
+- **1942**: President Franklin D. Roosevelt signed Executive Order 9066, which led to the internment of Japanese Americans during World War II.
+  
+- **1970**: The United States ratified the 26th Amendment to the Constitution, lowering the voting age to 18.
+
+- **1996**: The first episode of the rock band Aerosmith explored their challenges in a real-life situation
+### Quote of the day
+"Believe in yourself and all that you are. 🌟 The journey of a thousand miles begins with a single step! 🚶‍♀️✨"
+-----

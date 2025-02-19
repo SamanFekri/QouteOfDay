@@ -1,12 +1,14 @@
-### 📅 Tuesday, 18 February, 2025
+### 📅 Wednesday, 19 February, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the United States on February 18th:
+Here are some significant events that have occurred on February 19 in the USA:
 
-- **1930**: The first episode of the long-running radio show ***Amos 'n' Andy*** debuted on NBC.
-- **1931**: President Herbert Hoover formally dedicated the George Washington Bridge, connecting Fort Lee, New Jersey, with Manhattan, New York City.
-- **1977**: The ***crack epidemic*** was highlighted after a major downtown Minneapolis supermarket was robbed. Residents began
+- **1942**: President Franklin D. Roosevelt signed Executive Order 9066, which led to the internment of Japanese Americans during World War II.
+  
+- **1970**: The United States ratified the 26th Amendment to the Constitution, lowering the voting age to 18.
+
+- **1996**: The first episode of the rock band Aerosmith explored their challenges in a real-life situation
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! ✨🌼😊"
+"Believe in yourself and all that you are. 🌟 The journey of a thousand miles begins with a single step! 🚶‍♀️✨"
