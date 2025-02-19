@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some significant events that have occurred on February 19 in the USA:
+Here are some notable events that have occurred in the USA on February 19:
 
-- **1942**: President Franklin D. Roosevelt signed Executive Order 9066, which led to the internment of Japanese Americans during World War II.
-  
-- **1970**: The United States ratified the 26th Amendment to the Constitution, lowering the voting age to 18.
-
-- **1996**: The first episode of the rock band Aerosmith explored their challenges in a real-life situation
+- **1945**: The Battle of Iwo Jima began during World War II when American forces landed on the island.
+- **1963**: Extensive attention was drawn to the issue of sexual roles in society with the publication of Betty Friedan's book "The Feminine Mystique."
+- **1974**: The National Football League (NFL) announced a major anti-drug effort.
+- **199
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 The journey of a thousand miles begins with a single step! 🚶‍♀️✨"
+"Every day may not be good, but there's something good in every day. 🌟😊✨"
