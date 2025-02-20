@@ -2,14 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on February 20:
+Here are some events that occurred in the United States on February 20th throughout various years:
 
-- **National Love Your Pet Day**: An unofficial holiday that encourages pet owners to show appreciation and love for their pets.
-  
-- **World Day of Social Justice**: Although celebrated globally, it emphasizes the importance of social justice and can include events, discussions, and activities in the USA that promote equality and humane treatment.
-
-- **Historical Events**:
-  - **1947**: The U.S. Board of Survey
+- **1962**: John Glenn became the first American to orbit the Earth and his journey aboard the Mercury-Atlas 6 spacecraft, Friendships 7, focused national interest on space exploration.
+- **1986**: The prominent downtown holiday and entertainment event, the "Mystery Snowstorm Rally," held in the State of Rhode Island, begins a yearly ritual.
+- **1998**:
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨ You are a work in progress, and that’s what makes you beautiful. 💖🌟"
+"Every day may not be good, but there’s something good in every day! 🌈🌟"
