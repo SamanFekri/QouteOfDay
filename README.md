@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on February 21:
+Here are some notable events that occur on or have occurred on February 21 in the USA:
 
-- **1804**: The Ohio Legislature incorporated the village of Chatham, which would later evolve into important towns and cities in the state.
+- **National Grain Free Day (Annual)**: Observance of a day promoting gluten-free and grain-free food choices.
   
-- **1878**: The first telephone book was published in New Haven, Connecticut, which guided users on how to use the newly invented telephone service.
+- **George Washington's Birthday (Observed)**: Although celebrated officially on the third Monday in February, February 21 is close to Washington's birthday (February 22) and festivities may occur around this date.
 
-- **1916**: The contradicting resolutions surfaced proposing ways of addressing war and peace during World War I as
+- **1856 - The First Woman-Elected Member to a State
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨💖 Your dreams are just a heartbeat away! 🌟🌈"
+"Embrace the beautiful journey of life, every step is a chance to shine! ✨🌈✨"
