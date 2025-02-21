@@ -1,12 +1,14 @@
-### 📅 Thursday, 20 February, 2025
+### 📅 Friday, 21 February, 2025
 ------
 ### Events
 ------
-Here are some events that occurred in the United States on February 20th throughout various years:
+Here are some notable events that have occurred in the USA on February 21:
 
-- **1962**: John Glenn became the first American to orbit the Earth and his journey aboard the Mercury-Atlas 6 spacecraft, Friendships 7, focused national interest on space exploration.
-- **1986**: The prominent downtown holiday and entertainment event, the "Mystery Snowstorm Rally," held in the State of Rhode Island, begins a yearly ritual.
-- **1998**:
+- **1804**: The Ohio Legislature incorporated the village of Chatham, which would later evolve into important towns and cities in the state.
+  
+- **1878**: The first telephone book was published in New Haven, Connecticut, which guided users on how to use the newly invented telephone service.
+
+- **1916**: The contradicting resolutions surfaced proposing ways of addressing war and peace during World War I as
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌈🌟"
+"Believe in the magic within you! ✨💖 Your dreams are just a heartbeat away! 🌟🌈"
