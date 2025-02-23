@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some significant events that have occurred in the USA on February 23 throughout history:
+Here are notable events that have occurred in the USA on February 23 throughout history:
 
-- **1820**: The U.S. frigate USS Salem, the first warship built in the U.S. specifically for the U.S. Navy, was launched.
-  
-- **1861**: The USS Merrimack, purchased by the Confederates and later modified into the ironclad CSS Virginia, sets an important precedent in naval warfare.
-
-- **1886**: The blessed earthquake
+- **1836**: The **Texas Revolution** began with the start of the Siege of Bexar.
+- **1896**: The first **recorded Olympic Games** in the modern era opened, including athletes from the USA.
+- **1945**: The U.S. Marines captured **Iwo Jima**, a crucial and emblematic battle during World War II.
+- **1954**
 ### Positive Qoute
 ------
-"Chase your dreams, ignite your passion, and let positivity light your path! 🌟💖✨"
+"Every day brings new opportunities to shine! 🌟 Embrace them with an open heart and watch your dreams take flight! 🦋✨"
