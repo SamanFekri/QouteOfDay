@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some significant events in the USA that occurred on February 24:
+Here are some notable events that have occurred in U.S. history on February 24:
 
-- **Public Fundraising Broadsides "Bullhorns" Held** (2018): Activists around the nation raise funds for causes, often centered on gun control and women's rights.
+- **1848**: The cartoon “The Great Sheffield Caper,” published by the newspaper "The Knickerbocker," became known for drawing attention to the growing independence movement in California as part of global enlightenment events demonstrating resistance.
   
-- **George Washington Elected President** (1789): The Second Continental Congress meets in New York, voting to make Washington the country’s first president.
-
-- **Bill Whitney's Steamboat Patent Granted** (1816):
+- **1868**: The impeachment trial of U.S. President Andrew Johnson began in the Senate.
+  
+- **1942**: The legendary "M" restricted
 ### Positive Qoute
 ------
-"Every day may not be good, but there is something good in every day. 🌟😊💖"
+"Every day may not be good, but there's something good in every day! 🌞✨Keep shining your light! 🌟💖"
