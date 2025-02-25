@@ -539,3 +539,15 @@ Here are some notable events that happened on February 25 in U.S. history:
 ### Quote of the day
 "Every day is a new beginning! 🌅 Embrace the opportunities ahead and shine your light! ✨🌼"
 -----
+## Tuesday, 25 February, 2025
+### Events
+Certainly! Here are notable events in U.S. history that have occurred on February 25:
+
+- **1881**: **American Telephone and Telegraph Company (AT&T)** is incorporated, playing a vital role in telephone telecommunications advancements.
+  
+- **1970**: **Winston Churchill**'s bust, gifted from the UK, is unveiled in the U.S. Capitol's Rotunda as a tribute to the influential British Prime Minister.
+  
+- **1991**: The last combat troops
+### Quote of the day
+"Embrace the glorious mess that you are! ✨💕🌈"
+-----
