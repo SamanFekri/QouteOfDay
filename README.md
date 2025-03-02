@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on March 2:
+Here are notable events that take place on March 2 in the USA:
 
-- **1836**: Texas Declaration of Independence — Texas officially declared its independence from Mexico on this date.
-- **1861**: The Constitution of the Confederate States was ratified, establishing a government for the Confederacy during the Civil War.
-- **1933**: The first "Hollywood Bank Robbery" occurred when a gang attempted to rob the Bank of America in Los Angeles but was quickly apprehended
+- **Texas Independence Day**: Celebrated to commemorate the adoption of the Texas Declaration of Independence in 1836.
+- **Dr. Seuss Day**: Observed on the birthday of the beloved children's author, Theodor Seuss Geisel, celebrated with readings of his books and events promoting literacy and reading, especially in schools.
+- **National Pancake Day**: In some contexts, it involves various fundraising activities
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟🌻 Keep shining!"
+"Every day may not be good, but there’s something good in every day. 🌟💖 Embrace the small joys and let them light your path! 🌈✨"
