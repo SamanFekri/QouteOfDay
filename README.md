@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on March 3rd over the years:
+Here are some notable events that have occurred in the USA on March 3rd throughout history:
 
-- 1845: President John Tyler signed a resolution to annex the Republic of Texas, though it wouldn't officially become a U.S. state until 1845.
-- 1870: The first African American senators, Hiram Revels and Blanche Bruce, took their seats in the U.S. Senate for Mississippi as Reconstruction began to reshape the political landscape.
-- 1931: “The Star
+- **1845**: U.S. President John Tyler signs a resolution that annexes the Republic of Texas. 
+- **1931**: “The Star-Spangled Banner” is officially adopted as the national anthem of the United States.
+- **1958**: The U.S. Army fires its first missile from the new AMRAAM ("Advanced Medium Range Air-to-Air Missile") during its
 ### Positive Qoute
 ------
-"Dream big, sparkle more, shine bright! ✨🌟💖"
+"Every day may not be good, but there's something good in every day! 🌈✨"
