@@ -40,3 +40,13 @@ Here are notable events that take place on March 2 in the USA:
 ### Quote of the day
 "Every day may not be good, but there’s something good in every day. 🌟💖 Embrace the small joys and let them light your path! 🌈✨"
 -----
+## Monday, 03 March, 2025
+### Events
+Here are some notable events that have occurred in the USA on March 3rd over the years:
+
+- 1845: President John Tyler signed a resolution to annex the Republic of Texas, though it wouldn't officially become a U.S. state until 1845.
+- 1870: The first African American senators, Hiram Revels and Blanche Bruce, took their seats in the U.S. Senate for Mississippi as Reconstruction began to reshape the political landscape.
+- 1931: “The Star
+### Quote of the day
+"Dream big, sparkle more, shine bright! ✨🌟💖"
+-----

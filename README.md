@@ -1,12 +1,12 @@
-### 📅 Sunday, 02 March, 2025
+### 📅 Monday, 03 March, 2025
 ------
 ### Events
 ------
-Here are notable events that take place on March 2 in the USA:
+Here are some notable events that have occurred in the USA on March 3rd over the years:
 
-- **Texas Independence Day**: Celebrated to commemorate the adoption of the Texas Declaration of Independence in 1836.
-- **Dr. Seuss Day**: Observed on the birthday of the beloved children's author, Theodor Seuss Geisel, celebrated with readings of his books and events promoting literacy and reading, especially in schools.
-- **National Pancake Day**: In some contexts, it involves various fundraising activities
+- 1845: President John Tyler signed a resolution to annex the Republic of Texas, though it wouldn't officially become a U.S. state until 1845.
+- 1870: The first African American senators, Hiram Revels and Blanche Bruce, took their seats in the U.S. Senate for Mississippi as Reconstruction began to reshape the political landscape.
+- 1931: “The Star
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. 🌟💖 Embrace the small joys and let them light your path! 🌈✨"
+"Dream big, sparkle more, shine bright! ✨🌟💖"
