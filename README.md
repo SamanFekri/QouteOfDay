@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that happened on March 4:
+Here are some notable events that have occurred on March 4th in the USA:
 
+- **1789**: George Washington was inaugurated as the first President of the United States.
 - **1861**: Abraham Lincoln was inaugurated as the 16th President of the United States.
-- **1933**: Franklin D. Roosevelt was inaugurated as the 32nd President of the United States during a period of economic turmoil, marking the beginning of the New Deal.
-- **1974**: The United States Supreme Court ruled in "City of Los Angeles v. Lyons" concerning the legality
+- **1933**: Franklin D. Roosevelt was inaugurated for his first term as President during the Great Depression, beginning the New Deal.
+- **1966**: The historic mess at the Apollo 1 launch
 ### Positive Qoute
 ------
-"Every day brings new opportunities to shine! ✨ Embrace them and let your light glow! 🌟"
+"Spark joy with every small step you take! 🌟✨🚶‍♂️💕"
