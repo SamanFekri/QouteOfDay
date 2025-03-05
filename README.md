@@ -2,13 +2,15 @@
 ------
 ### Events
 ------
-Here are notable events that have occurred in the USA on March 5:
+Here are some notable events that have occurred in the USA on March 5th throughout history:
 
-- **1770**: The Boston Massacre took place, where British soldiers killed five colonists, an event that fueled anti-British sentiment leading up to the American Revolution.
+- **1770**: The Boston Massacre occurred when British soldiers killed five colonists, escalating tensions leading up to the American Revolution.
   
-- **1849**: Zachary Taylor was inaugurated as the 12th President of the United States. His presidency lasted just over a year, as he died in office in July 1850.
+- **1849**: David W. Johnston was confirmed as the first United States Secretary of the Interior.
 
-- **1921**:
+- **1912**: The first-ever electric taxicabs began service in New York City, helping to modernize urban transportation.
+
+- **193
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊 Embrace the little joys! 💖"
+"Believe in the magic within you! ✨💖 Your dreams are just around the corner! 🌈🌟"
