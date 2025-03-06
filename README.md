@@ -1,16 +1,12 @@
-### 📅 Wednesday, 05 March, 2025
+### 📅 Thursday, 06 March, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on March 5th throughout history:
+Here are some notable events that happened on March 6 in U.S. history:
 
-- **1770**: The Boston Massacre occurred when British soldiers killed five colonists, escalating tensions leading up to the American Revolution.
-  
-- **1849**: David W. Johnston was confirmed as the first United States Secretary of the Interior.
-
-- **1912**: The first-ever electric taxicabs began service in New York City, helping to modernize urban transportation.
-
-- **193
+- **1808**: The U.S. Congress banned the importation of slaves, which took effect on January 1, 1808.
+- **1857**: The Supreme Court ruling in the Dred Scott case was announced, declaring that enslaved African Americans were not citizens and had no standing to sue in federal court.
+- **1899**: Engineers in India announced the invention of the world's
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨💖 Your dreams are just around the corner! 🌈🌟"
+"Embrace each day with a heart full of gratitude and a mind full of dreams! 🌟😊💫"
