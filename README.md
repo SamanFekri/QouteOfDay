@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that happened on March 6 in U.S. history:
+Here are some significant historical events that occurred in the USA on March 6:
 
-- **1808**: The U.S. Congress banned the importation of slaves, which took effect on January 1, 1808.
-- **1857**: The Supreme Court ruling in the Dred Scott case was announced, declaring that enslaved African Americans were not citizens and had no standing to sue in federal court.
-- **1899**: Engineers in India announced the invention of the world's
+- **1836**: The siege of the Alamo in San Antonio, Texas, ended as Mexican forces led by General Antonio López de Santa Anna stormed the compound, resulting in the deaths of all Texas defenders.
+- **1899**: The United States signed the United States-Dollar Act (also known as the Gold Standard Act), which legally granted the U.S. dollar its status as the national currency.
+-
 ### Positive Qoute
 ------
-"Embrace each day with a heart full of gratitude and a mind full of dreams! 🌟😊💫"
+"Embrace the glorious mess that you are! 🌟✨💖"
