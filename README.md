@@ -1,12 +1,14 @@
-### 📅 Thursday, 06 March, 2025
+### 📅 Friday, 07 March, 2025
 ------
 ### Events
 ------
-Here are some significant historical events that occurred in the USA on March 6:
+Here are some notable events that have happened in the USA on March 7th:
 
-- **1836**: The siege of the Alamo in San Antonio, Texas, ended as Mexican forces led by General Antonio López de Santa Anna stormed the compound, resulting in the deaths of all Texas defenders.
-- **1899**: The United States signed the United States-Dollar Act (also known as the Gold Standard Act), which legally granted the U.S. dollar its status as the national currency.
+- **1965**: The Selma to Montgomery marches, a pivotal event in the American civil rights movement, witnessed its violent turning point known as "Bloody Sunday," as marchers attempted to cross the Edmund Pettus Bridge in Alabama.
+  
+- **1970**: President Richard Nixon delves into integrating the draft lottery system, which determines who must serve in the military, amid the Vietnam War.
+
 -
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟✨💖"
+"Every day is a new beginning! ✨ Embrace the possibilities and let your dreams take flight! 🌈🚀"
