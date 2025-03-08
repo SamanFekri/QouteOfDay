@@ -162,3 +162,9 @@ Here are some notable events that occur on March 8 in the USA:
 ### Quote of the day
 "Embrace the beautiful chaos of life 🌟✨ and let your dreams soar high! 🎈🌈"
 -----
+## Saturday, 08 March, 2025
+### Events
+- **International Women's Day**: Celebrated annually on March 8, it focuses on women's rights and gender equality, featuring various events across the United States including protests, rallies, and educational programs to promote awareness on issues facing women.
+### Quote of the day
+"Believe in the magic of new beginnings ✨🌈! Every day is a chance to write your own story 📖💕."
+-----

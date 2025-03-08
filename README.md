@@ -2,13 +2,7 @@
 ------
 ### Events
 ------
-Here are some notable events that occur on March 8 in the USA:
-
-- **International Women's Day**: Celebrated annually on March 8, this day highlights the achievements and contributions of women across various fields and raises awareness about gender equality and women's rights issues.
-  
-- **Mapping Day (Moment of Happiness)**: In various cities, including Washington D.C., events may be planned where people engage in activities to promote urban space and mapping.
-
-- **National Potato Chip Day**: This quirky food
+- **International Women's Day**: Celebrated annually on March 8, it focuses on women's rights and gender equality, featuring various events across the United States including protests, rallies, and educational programs to promote awareness on issues facing women.
 ### Positive Qoute
 ------
-"Embrace the beautiful chaos of life 🌟✨ and let your dreams soar high! 🎈🌈"
+"Believe in the magic of new beginnings ✨🌈! Every day is a chance to write your own story 📖💕."
