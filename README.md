@@ -1,13 +1,14 @@
-### 📅 Friday, 07 March, 2025
+### 📅 Saturday, 08 March, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred on March 7th in U.S. history:
+Here are some notable events that occur on March 8 in the USA:
 
-- **1876**: Alexander Graham Bell is awarded a patent for the invention of the telephone.
-- **1905**: The first secular marriage ceremony in the United States is performed in New York City by a judge.
-- **1936**: The Davis Cup is contested for the first time in person as an international tennis competition post-World War.
-- **1965**: The civil rights
+- **International Women's Day**: Celebrated annually on March 8, this day highlights the achievements and contributions of women across various fields and raises awareness about gender equality and women's rights issues.
+  
+- **Mapping Day (Moment of Happiness)**: In various cities, including Washington D.C., events may be planned where people engage in activities to promote urban space and mapping.
+
+- **National Potato Chip Day**: This quirky food
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. ✨🌼😊"
+"Embrace the beautiful chaos of life 🌟✨ and let your dreams soar high! 🎈🌈"
