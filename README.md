@@ -1,8 +1,14 @@
-### 📅 Saturday, 08 March, 2025
+### 📅 Sunday, 09 March, 2025
 ------
 ### Events
 ------
-- **International Women's Day**: Celebrated annually on March 8, it focuses on women's rights and gender equality, featuring various events across the United States including protests, rallies, and educational programs to promote awareness on issues facing women.
+Here are some notable events that have occurred in the USA on March 9th throughout history:
+
+- **1959**: The first Barbie doll debuted at the American International Toy Fair in New York City, a significant event in toy history and pop culture.
+  
+- **1961**: President John F. Kennedy established the Peace Corps, a service organization that sends American volunteers to work on various community development projects around the world.
+  
+- **1990**: The Williams sisters, Venus and Serena
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings ✨🌈! Every day is a chance to write your own story 📖💕."
+"Every day may not be good, but there’s something good in every day. 🌟😊✨"
