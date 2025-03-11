@@ -2,15 +2,13 @@
 ------
 ### Events
 ------
-Here are some significant events that occurred in the USA on March 11 throughout history:
+Here are some notable events in U.S. history that occurred on March 11:
 
-- **1970**: The New York City Subway introduced a new service pattern that would greatly affect commuting in the city.
+- **1918**: The first known death in the United States caused by the influenza pandemic that would sweep the world, highlighting the beginning of one of history's deadliest influenza outbreaks.
   
-- **1993**: A major storm system produced catastrophic tornadoes across several states in the southeastern U.S., causing significant damage and fatalities.
+- **1941**: President Franklin D. Roosevelt signs the Lend-Lease Act into law, allowing the U.S. to supply military aid to foreign nations, significantly helping allies during World War II.
   
-- **2003**: The U.S. started deployment of troops to Iraq was met with growing public protests against military action.
-
 -
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌈 Every day is a new chance to shine! ⭐️💖"
+"Believe in the magic within you! ✨🌟 Your potential is as limitless as the stars! 🪐🌈"
