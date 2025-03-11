@@ -1,12 +1,16 @@
-### 📅 Monday, 10 March, 2025
+### 📅 Tuesday, 11 March, 2025
 ------
 ### Events
 ------
-Here are some notable events that have historically taken place in the U.S. on March 10:
+Here are some significant events that occurred in the USA on March 11 throughout history:
 
-- **1985**: President Ronald Reagan delivered a speech outlining America’s goals at the "National Action Conference on Children" in Washington, D.C.
-- **1993**: The**"Over the Rainbow დეპარტამენტის ადვოკატების ახალგაზრდული მოძრაობა Brasileira"** film was nominated for an Academy Award for Best Animated Short Film. 
-- **2000**: Sponge
+- **1970**: The New York City Subway introduced a new service pattern that would greatly affect commuting in the city.
+  
+- **1993**: A major storm system produced catastrophic tornadoes across several states in the southeastern U.S., causing significant damage and fatalities.
+  
+- **2003**: The U.S. started deployment of troops to Iraq was met with growing public protests against military action.
+
+-
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌈 Your possibilities are endless! 🌟💖"
+"Believe in the magic within you! ✨🌈 Every day is a new chance to shine! ⭐️💖"
