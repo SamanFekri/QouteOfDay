@@ -1,14 +1,14 @@
-### 📅 Tuesday, 11 March, 2025
+### 📅 Wednesday, 12 March, 2025
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on March 11:
+Here are some historical events that occurred in the USA on March 12:
 
-- **1918**: The first known death in the United States caused by the influenza pandemic that would sweep the world, highlighting the beginning of one of history's deadliest influenza outbreaks.
-  
-- **1941**: President Franklin D. Roosevelt signs the Lend-Lease Act into law, allowing the U.S. to supply military aid to foreign nations, significantly helping allies during World War II.
-  
--
+- **1921**: The first recorded direct diplomatic communication via a specific diplomatic channel between the United States and the Soviet Union took place; U.S. President Warren G. Harding’s envoy was sent to establish relations.
+
+- **1933**: During the Great Depression, President Franklin D. Roosevelt delivered his first "fireside chat" over radio to reassure Americans about the banking system.
+
+- **1947**: The
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Your potential is as limitless as the stars! 🪐🌈"
+"Every day may not be good, but there’s something good in every day! ✨😊💖"
