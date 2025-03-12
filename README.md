@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some historical events that occurred in the USA on March 12:
+Here are some notable events that have occurred in the USA on March 12:
 
-- **1921**: The first recorded direct diplomatic communication via a specific diplomatic channel between the United States and the Soviet Union took place; U.S. President Warren G. Harding’s envoy was sent to establish relations.
+- **1912**: The Girl Scouts of the USA were founded by Juliette Gordon Low in Savannah, Georgia, aiming to empower young girls through outdoor activities, community service, and skill-building.
 
-- **1933**: During the Great Depression, President Franklin D. Roosevelt delivered his first "fireside chat" over radio to reassure Americans about the banking system.
-
-- **1947**: The
+- **1966**: The U.S. Supreme Court decided in the case of Miranda v. Arizona, which established the Miranda rights, requiring law enforcement to inform individuals in custody of their rights to silence and legal counsel
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! ✨😊💖"
+"Believe in the magic of your dreams ✨🌟 and let your heart light the way! 🌈❤️"
