@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have historically occurred in the USA on March 13:
+Here are some notable events that occur on March 13 in the USA:
 
-- **1781**: William Herschel discovered Uranus, becoming the first planet discovered with a telescope.
-- **1930**: The **D-Martin Grapefruit Navel Special**, initiated to use grapefruit juice and expand presents. 
-- **1964**: The famous murder of Kitty Genovese occurred; her murder in New York City spurred significant discourse on urban crime and bystander intervention.
+- **2013**: Cardinal Jorge Mario Bergoglio is elected as the Pope and takes the name Pope Francis. This event is significant in U.S. history as it impacts American Catholics and the global Catholic Church.
 
+- **1997**: The Phoenix Lights phenomenon occurs, where thousands of people in Arizona and surrounding areas report seeing a mysterious series of lights in the sky, sparking discussions about unidentified flying objects (UFO
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅😊✨"
+"Embrace the glorious mess that you are! 🌟💖✨"
