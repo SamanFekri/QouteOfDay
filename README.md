@@ -1,12 +1,12 @@
-### 📅 Thursday, 13 March, 2025
+### 📅 Friday, 14 March, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur on March 13 in the USA:
+Here are some notable events that have historically occurred in the USA on March 14:
 
-- **2013**: Cardinal Jorge Mario Bergoglio is elected as the Pope and takes the name Pope Francis. This event is significant in U.S. history as it impacts American Catholics and the global Catholic Church.
-
-- **1997**: The Phoenix Lights phenomenon occurs, where thousands of people in Arizona and surrounding areas report seeing a mysterious series of lights in the sky, sparking discussions about unidentified flying objects (UFO
+- **1733**: James Oglethorpe and a group of 114 settlers established the colony of Georgia.
+  
+- **1879**: Albert Einstein, the renowned physicist who would later be known for his theory of relativity, was born in Ulm, in the Kingdom of Württemberg in the German Empire. Although born in Germany, he moved to the USA in 1933 and became
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟💖✨"
+"Embrace the glorious mess that you are! 🌈✨ Every day is a new chance to shine! 🌟💖"
