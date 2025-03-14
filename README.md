@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have historically occurred in the USA on March 14:
+Here are some notable events in the USA that happen on March 14:
 
-- **1733**: James Oglethorpe and a group of 114 settlers established the colony of Georgia.
-  
-- **1879**: Albert Einstein, the renowned physicist who would later be known for his theory of relativity, was born in Ulm, in the Kingdom of Württemberg in the German Empire. Although born in Germany, he moved to the USA in 1933 and became
+- **Pi Day**: Celebrated by math enthusiasts across the country, this unofficial holiday honors the mathematical constant π (pi). In addition to recognizing the significance of pi in mathematics, many people celebrate Pa Day by eating pie.
+
+- **Stephen Hawking Day**: In honor of the renowned theoretical physicist Stephen Hawking, who passed away on March 14, 2018, this day is observed to celebrate his
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨ Every day is a new chance to shine! 🌟💖"
+"Believe in yourself and all that you are! 🌟✨ You are stronger than you think! 💪💖"
