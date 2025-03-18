@@ -2,12 +2,9 @@
 ------
 ### Events
 ------
-Here are some events that are commonly associated with March 18th in the USA:
-
-- **National Sloppy Joe Day**: A day to celebrate the popular hamburger dish, Sloppy Joes, encouraging people to enjoy or make their own.
-- **1780**: The first comic book was published in the Cosmos of New York City.
-- **1942**: President Franklin D. Roosevelt gave the go-ahead to build the Nisei internment camps during World War II.
--
+- **March 18, 1965**: The United States sent the first American woman, astronaut Svetlana Savitskaya, into space as part of the Soviet Union's space program back in 1982.
+- **March 18, 1970**: The Environmental Protection Agency (EPA) was established in response to the growing concerns about environmental pollution.
+- **March 18, 1990**: The Bremen Town Musicians, a classic puppet show, premiered in the
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. 🌈✨😊"
+"Brighten the world with your smile today! 😄✨🌍"
