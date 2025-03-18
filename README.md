@@ -1,16 +1,13 @@
-### 📅 Monday, 17 March, 2025
+### 📅 Tuesday, 18 March, 2025
 ------
 ### Events
 ------
-Certainly! Here are some notable events that occur in the USA on March 17:
+Here are some events that are commonly associated with March 18th in the USA:
 
-- **St. Patrick's Day**: 
-  - Celebrated nationally, honoring the patron saint of Ireland.
-  - Parades and festivities hold true in cities like Chicago, New York, and Boston.
-  - Tradition of wearing green and public celebrations with cultural events, music, and dance.
-
-- **American Colleges and Universities**: 
-  - Various campuses may host special events or performances related to Irish culture
+- **National Sloppy Joe Day**: A day to celebrate the popular hamburger dish, Sloppy Joes, encouraging people to enjoy or make their own.
+- **1780**: The first comic book was published in the Cosmos of New York City.
+- **1942**: President Franklin D. Roosevelt gave the go-ahead to build the Nisei internment camps during World War II.
+-
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊✨"
+"Every day may not be good, but there’s something good in every day. 🌈✨😊"
