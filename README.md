@@ -2,17 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on March 20:
+Here are some notable events that have historically occurred in the USA on March 20th:
 
-- **Spring Equinox**: 
-  - Marks the official start of spring in the Northern Hemisphere.  
-  - Some cultural and seasonal events are celebrated around this date.
-
-- **National Earth Day**:
-  - Some regions and organizations celebrate Earth Day initiatives, focusing on environmental education and activism leading up to April 22.
-
-- **Awareness Days**:
-  - Certain awareness campaigns launch (e.g., International Day
+- **1841:** The commencement of the United States Naval Academy's first year at Annapolis, Maryland.
+- **1852:** The publication of Harriet Beecher Stowe's novel "Uncle Tom's Cabin," which became a significant anti-slavery work and influenced American society.
+- **1963:** The American actress and singer Frank Sinatra, alongside friends, founded the Explorer Club.
+- **1995
 ### Positive Qoute
 ------
-"Every step you take brings you closer to your dreams! 🌟🚶‍♂️💫 Keep shining!"
+"Every day may not be good, but there's something good in every day! 😊🌟✨"
