@@ -1,13 +1,12 @@
-### 📅 Thursday, 20 March, 2025
+### 📅 Friday, 21 March, 2025
 ------
 ### Events
 ------
-Here are some notable events that have historically occurred in the USA on March 20th:
+Here are some notable events that occurred in the USA on March 21 over the years:
 
-- **1841:** The commencement of the United States Naval Academy's first year at Annapolis, Maryland.
-- **1852:** The publication of Harriet Beecher Stowe's novel "Uncle Tom's Cabin," which became a significant anti-slavery work and influenced American society.
-- **1963:** The American actress and singer Frank Sinatra, alongside friends, founded the Explorer Club.
-- **1995
+- **1788**: The foundation of the city of New Bern, North Carolina, was officially, marking it as one of the first cities to govern in the state.
+- **1933**: Francis Perkins was appointed as the first female U.S. cabinet member (Secretary of Labor) by President Franklin D. Roosevelt.
+- **1963**: The federal Prison Alcatraz in San Francisco Bay
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 😊🌟✨"
+"Every day may not be good, but there’s something good in every day! 🌈✨ Keep shining bright! 🌟😊"
