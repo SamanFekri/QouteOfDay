@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-On March 23, several notable events have occurred in U.S. history. Here are a few:
+Here are some events that have historically occurred in the United States on March 23:
 
-- **1775**: American Revolutionary leader Patrick Henry delivered his famous "Give me liberty, or give me death!" speech which energized the colonial resistance against British rule.
-- **1806**: Meriwether Lewis and William Clark, the leaders of the Lewis and Clark Expedition, returned to St. Louis after their two-year long journey across the western portion of the United States.
-- **
+- **1857**: The criminal case of "Mary carpenter" potentially altering views on insanity and criminal responsibility.
+- **1965**: NASA announced that thirteen astronauts for Gemini, Apollo, and future space missions.
+- **1983**: President Ronald Reagan proposed the Strategic Defensive Initiative (SDI), a missile defense program intended to protect the U.S. from nuclear missiles.
+- **2001**:
 ### Positive Qoute
 ------
-"Every day is a new beginning 🌅 Embrace the possibilities and let your light shine! ✨😊"
+"Believe in the magic of new beginnings! ✨💖🌟"
