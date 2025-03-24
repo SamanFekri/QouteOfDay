@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some significant events that have taken place in the USA on March 24 throughout history:
+Here are some notable events that have occurred in the USA on March 24:
 
-- **1882**: The American artist **Edward F. M. Sonntag** was born. He became known for his artwork during the 19th century.
+- **1807**: President Thomas Jefferson signed the Act Prohibiting Imports of Slaves, banning the importation of slaves into the United States.
   
-- **1958**: Elvis Presley was **inducted into the U.S. Army** at Fort Chaffee in Arkansas, marking the beginning of his military service.
-  
-- **1976**: The **first official
+- **1965**: Martin Luther King Jr. led a march from Selma to Montgomery, Alabama, with thousands of supporters demanding voting rights for African Americans.
+
+- **1990**: The musical "Emojis" was obsessed with robotic text messages for
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅😊✨"
+"Each day is a new beginning. Take a deep breath, trust the magic of new beginnings, and shine bright! ✨🌅😊"
