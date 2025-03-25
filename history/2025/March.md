@@ -525,3 +525,13 @@ Here are some notable events that have occurred in the USA on March 24:
 ### Quote of the day
 "Each day is a new beginning. Take a deep breath, trust the magic of new beginnings, and shine bright! ✨🌅😊"
 -----
+## Tuesday, 25 March, 2025
+### Events
+Here are some significant events in U.S. history that occurred on March 25:
+
+- **1911**: The Triangle Shirtwaist Factory Fire in New York City, resulting in 146 deaths and leading to significant improvements in workplace safety regulations.
+- **1957**: The Treaty of Rome was signed, creating the European Economic Community (EEC). While this is a major European event, it marked a significant point in international relations involving the U.S.
+- **1975**: The
+### Quote of the day
+"Believe in yourself and magic will happen! ✨🌟💖"
+-----
