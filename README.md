@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some significant events in U.S. history that occurred on March 25:
+Here are some notable events that have occurred in the USA on March 25:
 
-- **1911**: The Triangle Shirtwaist Factory Fire in New York City, resulting in 146 deaths and leading to significant improvements in workplace safety regulations.
-- **1957**: The Treaty of Rome was signed, creating the European Economic Community (EEC). While this is a major European event, it marked a significant point in international relations involving the U.S.
-- **1975**: The
+- **1965**: Martin Luther King Jr. led a march from Selma to Montgomery, Alabama, advocating for voting rights for African Americans.
+  
+- **1975**: The "Great Mississippi Flood" began to worsen, leading to one of the largest disasters in U.S. history.
+
+- **1983**: U.S. President Ronald Reagan announced the Strategic Defense Initiative (SDI), a proposed missile
 ### Positive Qoute
 ------
-"Believe in yourself and magic will happen! ✨🌟💖"
+"Every day may not be good, but there’s something good in every day! 🌟😊✨"
