@@ -1,14 +1,12 @@
-### 📅 Wednesday, 26 March, 2025
+### 📅 Thursday, 27 March, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on March 26:
+Here are a few notable events that have occurred in the USA on March 27 throughout history:
 
-- **1979**: The United States signed the Egyptian-Israeli Peace Treaty, which was a significant milestone in Middle Eastern history, marking the first time an Arab nation recognized Israel.
-
-- **1997**: The mass suicide of the Heaven's Gate cult members occurred in San Diego; they believed they were transitioning to a higher world as a part of their beliefs related to a UFO.
-
-- **2000**
+- **1977: Tenerife Airport Disaster** - The most deadly aviation accident in history took place when two Boeing 747 jumbo jets collided on the runway of Los Rodeos Airport in Tenerife, killing 583 people.
+  
+- **1998: The Promise Keepers March in D.C.** - An event bringing together thousands of men for a spiritual and rallying experience; significant for its focus on accountability
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊✨"
+"Believe in yourself and all that you are. 💫✨ Your potential is limitless! 🌟💖"
