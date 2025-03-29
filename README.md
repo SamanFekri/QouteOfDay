@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are a few notable events that occurred in the USA on March 29 throughout history:
+Here are some notable events that have occurred in the USA on March 29 throughout history:
 
-- **1974**: The first food stamp program created was signed into law by President Nixon.  
-- **1980**: The newsprint embargo on Atlantic, Iceland and minority impact leading concerns gives birth to the first rising acidity in Wacker County impact sorted fiscal analysis models. This indirectly marks environmental reporting in the U.S. through raised scrutiny on high-depth phenomenon reporting sector deductions.  
-- **201
+- **1974**: The U.S. Army withdrew the last combat soldiers from Vietnam, ending the American involvement in the Vietnam War.
+- **1980**: The University of Houston defeated the University of New Mexico 77-36 in the NCAA Men's Basketball Championship, marking a significant moment in college sports.
+- **1990**: A federal jury found former furniture magnate Don Hardin guilty of
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 🌟💪 The journey starts with a single step! 🚀✨"
+"Embrace the glorious mess that you are! 🌟✨💪"
