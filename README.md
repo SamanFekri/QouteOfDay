@@ -1,12 +1,12 @@
-### 📅 Sunday, 30 March, 2025
+### 📅 Monday, 31 March, 2025
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on March 30:
+Here are some notable events in the U.S. that occur on March 31st:
 
-- **1842**: Anesthesia was used for the first time in surgery by Dr. Crawford Long in Jefferson, Georgia, when he removed a tumor from a patient's neck.
-- **1867**: The United States bought Alaska from Russia for $7.2 million, a move often criticized as "Seward's Folly" until the discovery of gold and oil made it worthwhile.
-- **197
+- **National Tater Day**: A day celebrated in the United States, particularly in the South, to honor the humble potato.
+- **Cesar Chavez Day**: Celebrated in several states including California, it honors the civil rights and labor leader who co-founded the United Farm Workers. 
+- **Transgender Day of Visibility**: While this day is internationally recognized, it is observed in various regions
 ### Positive Qoute
 ------
-"Chase your dreams and embrace the journey! ✨🌈🚀"
+"Believe in the magic within you! 🌟✨ Your potential is limitless! 🚀💖"
