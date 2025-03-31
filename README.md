@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in the U.S. that occur on March 31st:
+Here are some notable events in the USA that have occurred on March 31:
 
-- **National Tater Day**: A day celebrated in the United States, particularly in the South, to honor the humble potato.
-- **Cesar Chavez Day**: Celebrated in several states including California, it honors the civil rights and labor leader who co-founded the United Farm Workers. 
-- **Transgender Day of Visibility**: While this day is internationally recognized, it is observed in various regions
+- **1966**: The Soviet Union launched Luna 10, the first spacecraft to orbit the Moon.
+- **1980**: The U.S. began the Project 3007 program for sensor generation that played a key role in surveillance.
+- **1991**: The final episode of the American television sitcom "The Golden Girls" aired.
+- **1999**: Brady Handgun Violence Prevention Act formally
 ### Positive Qoute
 ------
-"Believe in the magic within you! 🌟✨ Your potential is limitless! 🚀💖"
+"Believe in the magic of new beginnings! ✨🌈 Every day is a fresh start! ❤️🙌"
