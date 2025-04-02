@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA on April 2nd:
+Here are some key events in U.S. history that have occurred on April 2nd:
 
-- **April Fools' Day Extended Reactions** - The day after April 1st, many people may continue to be influenced by April Fools' pranks that occurred on the previous day.
-  
-- **National Peanut Butter and Jelly Day** - Celebrated nationwide, this day honors the classic American sandwich, prompting many to enjoy it in various forms.
-
-- **Anniversary of Notable Historical Events**
+- **1860**: The United States Library of Congress is established.
+- **1917**: President Woodrow Wilson asks Congress to declare war on Germany, leading the U.S. into World War I.
+- **1968**: The United States launches its first successful live telecast of television signals via satellite with the Telstar communications system.
+- **2000**: China Airlines Flight 
 ### Positive Qoute
 ------
-" 🌟 Every day may not be good, but there's something good in every day! 💖 Stay thankful! 🙌"
+"Believe in the magic of new beginnings! ✨🌟 Embrace the possibilities and let your dreams take flight! 🦋🚀"
