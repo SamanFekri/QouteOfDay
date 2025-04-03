@@ -1,13 +1,12 @@
-### 📅 Wednesday, 02 April, 2025
+### 📅 Thursday, 03 April, 2025
 ------
 ### Events
 ------
-Here are some key events in U.S. history that have occurred on April 2nd:
+Here are some notable events that commonly occur on April 3rd in the United States:
 
-- **1860**: The United States Library of Congress is established.
-- **1917**: President Woodrow Wilson asks Congress to declare war on Germany, leading the U.S. into World War I.
-- **1968**: The United States launches its first successful live telecast of television signals via satellite with the Telstar communications system.
-- **2000**: China Airlines Flight 
+- 1860: The Pony Express officially begins its mail delivery service, changing the way information is shared across the country.
+- 1948: President Harry S. Truman signs the Marshall Plan, which aimed to provide economic assistance to help Europe recover after World War II.
+- 1968: Martin Luther King Jr. delivers his famous "I've Been to the Mountaintop" speech in Memphis, Tennessee
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌟 Embrace the possibilities and let your dreams take flight! 🦋🚀"
+"Believe in the magic within you! ✨💫 You've got the power to shine bright! ☀️🌈"
