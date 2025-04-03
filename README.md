@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that commonly occur on April 3rd in the United States:
+Here are some notable events that have occurred in the USA on April 3rd:
 
-- 1860: The Pony Express officially begins its mail delivery service, changing the way information is shared across the country.
-- 1948: President Harry S. Truman signs the Marshall Plan, which aimed to provide economic assistance to help Europe recover after World War II.
-- 1968: Martin Luther King Jr. delivers his famous "I've Been to the Mountaintop" speech in Memphis, Tennessee
+- **1948**: The Marshall Plan was signed into law, which provided economic assistance to help rebuild European countries after World War II.
+- **1968**: Dr. Martin Luther King Jr. delivered his famous 'I've Been to the Mountaintop' speech in Memphis, Tennessee, the day before his assassination.
+- **1973**: Motorola employee Martin Cooper made the first mobile phone call ever from
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨💫 You've got the power to shine bright! ☀️🌈"
+"Bloom where you're planted 🌸✨ and let your light shine! 🌟🌼"
