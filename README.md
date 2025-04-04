@@ -1,12 +1,12 @@
-### 📅 Thursday, 03 April, 2025
+### 📅 Friday, 04 April, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on April 3rd:
+Here are some notable events that have occurred in the USA on April 4th:
 
-- **1948**: The Marshall Plan was signed into law, which provided economic assistance to help rebuild European countries after World War II.
-- **1968**: Dr. Martin Luther King Jr. delivered his famous 'I've Been to the Mountaintop' speech in Memphis, Tennessee, the day before his assassination.
-- **1973**: Motorola employee Martin Cooper made the first mobile phone call ever from
+- **1968**: Civil rights leader Dr. Martin Luther King Jr. was assassinated in Memphis, Tennessee.
+- **1975**: Microsoft was founded by Bill Gates and Paul Allen in Albuquerque, New Mexico.
+- **1991**: Former professional boxer Joe Frazier testified before the U.S. Senate regarding the inception of a pay-per-view boxing event, reacting to the view that the comic
 ### Positive Qoute
 ------
-"Bloom where you're planted 🌸✨ and let your light shine! 🌟🌼"
+"Embrace the glorious mess that you are! 🌟✨💖"
