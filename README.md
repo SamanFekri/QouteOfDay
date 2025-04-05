@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are a few notable events that take place in the USA on April 5:
+Here are some notable events that occurred in the United States on April 5th throughout history:
 
-- **National Deep Dish Pizza Day**: A celebration of deep dish pizza, particularly associated with Chicago. Pizza lovers indulge in this hearty, cheesy delight on this day.
-  
-- **National maʻ skin Day**: A day dedicated to honoring skin health and the importance of skincare, prompting awareness about dermatological health and protection.
-  
-- **World Art Day**: While not exclusive to the USA, art events may
+- **1933**: President Franklin D. Roosevelt issued the first series of executive orders for the National Industrial Recovery Act, which aimed to stimulate economic recovery during the Great Depression.
+- **1943**: The first commissioned combat flight of the new P-47 Thunderbolt aircraft was undertaken, marking a significant achievement in aviation during World War II.
+- **1960**: The first-ever AFL-N
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Your spark can light up the world! 💖🌈"
+"Believe in the magic of your dreams ✨🌈 and watch as you transform the ordinary into the extraordinary! 🚀🌟"
