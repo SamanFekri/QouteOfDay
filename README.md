@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are notable events that have occurred in the U.S. on April 6th:
+Here are some notable events that have occurred in the USA on April 6:
 
-- **1917**: The United States entered World War I, as President Woodrow Wilson asked Congress to declare war on Germany.
-- **1941**: The professional baseball New York Yankees' opening day was held. Notable figures such as Joe DiMaggio made their mark during post-season games in subsequent years.
-- **1965**: The launch of the April 1965 "Technician
+- **1917**: The United States entered World War I, marking a significant shift in the dynamics of the war and international affairs.
+- **1930**: The infamous "April Fool's" Day occurred against the backdrop of the Great Depression, during which newspapers sometimes amused readers with fictitious spacing advertised scheme-based stories.
+- **1994**: The first video production team to gain a permanent industry-wide ban
 ### Positive Qoute
 ------
-"Embrace the day with a joyful heart! 🌞✨ Let your smile light up the world around you! 😊💖"
+"Believe in the magic within you! ✨🌈 Your potential is limitless! 💪🌟"
