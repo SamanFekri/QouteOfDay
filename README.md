@@ -2,10 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that occur on April 7 in the USA:
+Here are a few events that occur in the USA on April 7:
 
-- **National Beer Day**: Celebrated since 2003, this day recognizes the Cullen-Harrison Act of 1933, which legalized the sale of certain alcoholic beverages, making it a historic date for beer enthusiasts.
-- **World Health Day**: Established by the World Health Organization (WHO), World Health Day focuses on global health issues; various health-related events and awareness campaigns are often held across the U.S.
+- **World Health Day:** Celebrated globally on April 7, this event promotes awareness of health issues and various health-related themes. In the US, it often involves community health initiatives and celebrations focusing on improving public health.
+
+- **National Beer Day:** April 7 celebrates the legalizing of beer sales in the United States after the Prohibition era. This is typically observed by craft breweries and beer enthusiasts with various events and
 ### Positive Qoute
 ------
-"Believe in the magic within you ✨💖, and let your dreams take flight! 🕊️🌈"
+"Every day is a new beginning. Take a deep breath and start again! 🌅✨😊"
