@@ -2,11 +2,15 @@
 ------
 ### Events
 ------
-Here are some notable events that take place on April 8 in the USA:
+Here are some notable events that have occurred in the USA on April 8:
 
-- **1963**: The United States conducts its first successful test of the "?>
-- **1974**: Hank Aaron breaks Babe Ruth’s home run record by hitting his 715th home run at Atlanta-Fulton County Stadium.
-- **2004**: The Stanford University student group bàn lịch sự held a massive hack event designed to identify articles through overlay functionality in files relating to graphical records encountered. მონაცემებზე
+- **1913**: The 17th Amendment to the United States Constitution is certified, establishing the direct election of US senators by popular vote.
+  
+- **1925**: The famous Scopes "Monkey" trial begins in Dayton, Tennessee, over the teaching of evolution in schools.
+
+- **1946**: The United Nations Security Council holds its first meeting in New York City.
+
+- **1952**
 ### Positive Qoute
 ------
-"Each day is a new beginning. Take a deep breath, smile, and start again! 🌅😊🌟"
+"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅✨😊"
