@@ -1,16 +1,12 @@
-### 📅 Tuesday, 08 April, 2025
+### 📅 Wednesday, 09 April, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on April 8:
+Here are a few historical events that occurred in the USA on April 9th:
 
-- **1913**: The 17th Amendment to the United States Constitution is certified, establishing the direct election of US senators by popular vote.
-  
-- **1925**: The famous Scopes "Monkey" trial begins in Dayton, Tennessee, over the teaching of evolution in schools.
-
-- **1946**: The United Nations Security Council holds its first meeting in New York City.
-
-- **1952**
+- **1865**: General Robert E. Lee surrendered to General Ulysses S. Grant at Appomattox Courthouse, effectively signaling the end of the Civil War.
+- **1942**: The Fall of Bataan during World War II. American and Filipino forces surrendered to Japanese forces in the Philippines, leading to the infamous Bataan Death March.
+- **1963**: The Governor of
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅✨😊"
+"Embrace each day like a blank canvas 🎨✨, and paint it with the colors of your dreams! 🌈😊"
