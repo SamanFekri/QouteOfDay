@@ -178,3 +178,15 @@ Here are a few historical events that occurred in the USA on April 9th:
 ### Quote of the day
 "Embrace each day like a blank canvas 🎨✨, and paint it with the colors of your dreams! 🌈😊"
 -----
+## Wednesday, 09 April, 2025
+### Events
+Here are some significant events that have occurred in the USA on April 9th throughout history:
+
+- **1865**: The American Civil War essentially ended with the surrender of Confederate General Robert E. Lee to Union General Ulysses S. Grant at Appomattox Court House, Virginia.
+  
+- **1901**: The Automotive and Marine Engineering Company was established, contributing to the early automotive industry in the United States.
+  
+- **1942**: During World War II, the
+### Quote of the day
+"Chase your dreams with zest and let your heart sparkle! ✨🌟💖"
+-----
