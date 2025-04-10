@@ -1,14 +1,14 @@
-### 📅 Wednesday, 09 April, 2025
+### 📅 Thursday, 10 April, 2025
 ------
 ### Events
 ------
-Here are some significant events that have occurred in the USA on April 9th throughout history:
+Here are some notable historical events that have occurred in the USA on April 10:
 
-- **1865**: The American Civil War essentially ended with the surrender of Confederate General Robert E. Lee to Union General Ulysses S. Grant at Appomattox Court House, Virginia.
+- **1912**: The RMS Titanic departed from Queenstown (now Cobh), Ireland, on its maiden voyage to New York City. Although not a US event per se, it had significant representation as many passengers destined for the USA were on board.
   
-- **1901**: The Automotive and Marine Engineering Company was established, contributing to the early automotive industry in the United States.
-  
-- **1942**: During World War II, the
+- **1953**: The first-ever Precinct Congress of the Democratic Party takes place in Las Vegas, Nevada.
+
+- **1970**:
 ### Positive Qoute
 ------
-"Chase your dreams with zest and let your heart sparkle! ✨🌟💖"
+"Believe in yourself, and you'll be unstoppable! ✨💪🌟"
