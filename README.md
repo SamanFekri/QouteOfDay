@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable historical events that have occurred in the USA on April 10:
+Here are some notable events that have occurred on April 10th in the United States:
 
-- **1912**: The RMS Titanic departed from Queenstown (now Cobh), Ireland, on its maiden voyage to New York City. Although not a US event per se, it had significant representation as many passengers destined for the USA were on board.
+- **1849**: Abraham Lincoln filed the first U.S. patent for a system to lift boats over shoals or obstructions in a river.
   
-- **1953**: The first-ever Precinct Congress of the Democratic Party takes place in Las Vegas, Nevada.
-
-- **1970**:
+- **1912**: The RMS Titanic was forced to turn back to port before continuing her maiden voyage due to a coaling issue but set sail on the long journey shortly after.
+  
+- **1970**: Paul McCartney announced that The
 ### Positive Qoute
 ------
-"Believe in yourself, and you'll be unstoppable! ✨💪🌟"
+"Believe in yourself and all that you are. ✨🌈 Your journey starts with a single step! 🚀💪"
