@@ -1,14 +1,12 @@
-### 📅 Thursday, 10 April, 2025
+### 📅 Friday, 11 April, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred on April 10th in the United States:
+Here are some notable events that have occurred in the USA on April 11:
 
-- **1849**: Abraham Lincoln filed the first U.S. patent for a system to lift boats over shoals or obstructions in a river.
-  
-- **1912**: The RMS Titanic was forced to turn back to port before continuing her maiden voyage due to a coaling issue but set sail on the long journey shortly after.
-  
-- **1970**: Paul McCartney announced that The
+- **1961**: The trial of Adolf Eichmann, a key figure in the organization of the Holocaust, commenced in Jerusalem, garnering significant media attention in the U.S. and worldwide.
+- **1970**: Apollo 13 was launched from Kennedy Space Center in Florida. This mission is infamous due to an in-flight emergency, which nearly doomed the astronauts and necessitated a dramatic rescue operation.
+- **
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨🌈 Your journey starts with a single step! 🚀💪"
+"Believe in yourself and all that you are. 🌟 The moment you start is the moment your journey begins! 🚀✨"
