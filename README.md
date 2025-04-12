@@ -2,11 +2,15 @@
 ------
 ### Events
 ------
-Here are some notable events that have taken place in the United States on April 12th:
+Here are some notable events in the USA that have occurred on April 12:
 
-- **1906**: The first underwater allergic reactions to strains of meats were harnessed effectively by Government, marking a significant step in early veterinary recombinant biologies.
-- **1945**: Franklin D. Roosevelt, the 32nd President of the United States, died in office. Vice President Harry S. Truman was sworn in as President.
-- **1961**: Soviet cosmonaut Yuri
+- **1861:** The American Civil War begins with the Confederate attack on Fort Sumter in South Carolina.
+  
+- **1945:** President Franklin D. Roosevelt dies in Warm Springs, Georgia. Vice President Harry S. Truman becomes President.
+
+- **1961:** Soviet cosmonaut Yuri Gagarin becomes the first human to travel into space, completing an orbit around Earth.
+
+- **1981:** NASA launches
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! 🌟✨ Every step forward brings fresh opportunities. 🚀💖"
+"Believe in yourself 🌟, and watch your dreams take flight 🕊️! Every day is a new beginning 🌅."
