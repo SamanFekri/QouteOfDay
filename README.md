@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are a few significant events that have occurred in the USA on April 13th throughout history:
+Here are some events that are commonly associated with April 13th in the USA:
 
-- **1943**: The first day of the "Crisis" at the National Mall in Washington, D.C., by the National Negro Defense Council, advocating against racial discrimination and for civil rights.
-  
-- **1961**: U.S. President John F. Kennedy authorizes the use of Air America to carry supplies to U.S. military advisors in Laos, influencing the involvement of the
+- **National Thomas Jefferson Day**: A day to honor the third president of the United States, recognized for his contributions to the nation, including the drafting of the Declaration of Independence.
+
+- **National Peach Cobbler Day**: A food holiday celebrating the delicious Southern dessert, encouraging people to enjoy or make peach cobbler.
+
+- **2013 - Hidden musical beats**: Some organizations and communities might hold events related
 ### Positive Qoute
 ------
-"Believe in your dreams, for they are the seeds of your greatness! 🌱💫✨"
+"Embrace the glorious mess that you are! ✨🌈❤️"
