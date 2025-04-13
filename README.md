@@ -1,16 +1,12 @@
-### 📅 Saturday, 12 April, 2025
+### 📅 Sunday, 13 April, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on April 12:
+Here are a few significant events that have occurred in the USA on April 13th throughout history:
 
-- **1861:** The American Civil War begins with the Confederate attack on Fort Sumter in South Carolina.
+- **1943**: The first day of the "Crisis" at the National Mall in Washington, D.C., by the National Negro Defense Council, advocating against racial discrimination and for civil rights.
   
-- **1945:** President Franklin D. Roosevelt dies in Warm Springs, Georgia. Vice President Harry S. Truman becomes President.
-
-- **1961:** Soviet cosmonaut Yuri Gagarin becomes the first human to travel into space, completing an orbit around Earth.
-
-- **1981:** NASA launches
+- **1961**: U.S. President John F. Kennedy authorizes the use of Air America to carry supplies to U.S. military advisors in Laos, influencing the involvement of the
 ### Positive Qoute
 ------
-"Believe in yourself 🌟, and watch your dreams take flight 🕊️! Every day is a new beginning 🌅."
+"Believe in your dreams, for they are the seeds of your greatness! 🌱💫✨"
