@@ -1,14 +1,14 @@
-### 📅 Sunday, 13 April, 2025
+### 📅 Monday, 14 April, 2025
 ------
 ### Events
 ------
-Here are some events that are commonly associated with April 13th in the USA:
+Here are some notable events that have occurred in the USA on April 14:
 
-- **National Thomas Jefferson Day**: A day to honor the third president of the United States, recognized for his contributions to the nation, including the drafting of the Declaration of Independence.
-
-- **National Peach Cobbler Day**: A food holiday celebrating the delicious Southern dessert, encouraging people to enjoy or make peach cobbler.
-
-- **2013 - Hidden musical beats**: Some organizations and communities might hold events related
+- **1912**: The RMS Titanic hits an iceberg during its maiden voyage, affecting many American lives and leading to widespread media coverage and eventual regulatory reforms in maritime safety.
+  
+- **1935**: Known as Black Sunday, one of the worst dust storms during the Dust Bowl sweeps across the Great Plains, severely affecting farms and communities and highlighting the environmental issues of the time.
+  
+- **1960**
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨🌈❤️"
+"Believe in the magic within you! ✨💖 Every day is a new chance to shine! 🌟😊"
