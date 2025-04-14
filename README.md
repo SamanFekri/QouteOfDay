@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on April 14:
+Here are some notable events in the USA that happen or have happened on April 14:
 
-- **1912**: The RMS Titanic hits an iceberg during its maiden voyage, affecting many American lives and leading to widespread media coverage and eventual regulatory reforms in maritime safety.
-  
-- **1935**: Known as Black Sunday, one of the worst dust storms during the Dust Bowl sweeps across the Great Plains, severely affecting farms and communities and highlighting the environmental issues of the time.
-  
-- **1960**
+- **1910**: First public flight of the Wright Brothers' aircraft, the Wright Flyer, which a few years prior made history.
+- **1943**: The United States Army receives its first order for thousands of B-29 Superfortress bombers during World War II.
+- **1960**: The U.S. conducts nuclear tests at the Nevada Test Site.
+- **1986**
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨💖 Every day is a new chance to shine! 🌟😊"
+"Believe in the magic of new beginnings! ✨🌟 Every day is a fresh start full of possibilities! 🌈🌻"
