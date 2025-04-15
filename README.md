@@ -1,13 +1,14 @@
-### 📅 Monday, 14 April, 2025
+### 📅 Tuesday, 15 April, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that happen or have happened on April 14:
+Here are some notable events that have occurred in the USA on April 15:
 
-- **1910**: First public flight of the Wright Brothers' aircraft, the Wright Flyer, which a few years prior made history.
-- **1943**: The United States Army receives its first order for thousands of B-29 Superfortress bombers during World War II.
-- **1960**: The U.S. conducts nuclear tests at the Nevada Test Site.
-- **1986**
+- **1912**: The RMS Titanic, which struck an iceberg, sank in the North Atlantic Ocean. While not an event on U.S. soil, it heavily impacted American society and resulted in significant changes to maritime laws.
+  
+- **1947**: Jackie Robinson made history by breaking Major League Baseball's color barrier when he played his first official game with the Brooklyn Dodgers.
+  
+- **1967**:
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌟 Every day is a fresh start full of possibilities! 🌈🌻"
+"Every day may not be good, but there’s something good in every day. 🌟😊💖"
