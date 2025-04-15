@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on April 15:
+Here are some significant events that occur in the USA on April 15:
 
-- **1912**: The RMS Titanic, which struck an iceberg, sank in the North Atlantic Ocean. While not an event on U.S. soil, it heavily impacted American society and resulted in significant changes to maritime laws.
-  
-- **1947**: Jackie Robinson made history by breaking Major League Baseball's color barrier when he played his first official game with the Brooklyn Dodgers.
-  
-- **1967**:
+- **Tax Day**: In the United States, April 15 is typically the deadline for individuals to file their income tax returns (Form 1040). If April 15 falls on a weekend or holiday, the due date is often extended.
+
+- **National McDonald's Day**: On April 15, many celebrate the opening of the first McDonald's restaurant by Ray Kroc in 1955, making it significant
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. 🌟😊💖"
+"Believe in yourself and chase your dreams! 🌟💪✨"
