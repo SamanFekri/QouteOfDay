@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on April 16:
+Here are some notable events that have occurred in the USA on April 16 throughout history:
 
-- **1862**: The abolition of slavery in the District of Columbia is enacted with the passage of the District of Columbia Compensated Emancipation Act.
-  
-- **1917**: U.S. President Woodrow Wilson calls for a declaration of war against Germany, marking the U.S. entry into World War I.
-
-- **2013**: Two bombs are detonated near the finish line of the
+- **1943**: The first documented use of LSD as a recreational drug in the United States.
+- **1963**: Rev. Martin Luther King Jr. writes his "Letter from Birmingham Jail," responding to criticism of his nonviolent methods during the Civil Rights Movement.
+- **2007**: The Virginia Tech shooting occurs, resulting in the deaths of 32 people and injuring 17 others
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈💜✨"
+"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅✨😊"
