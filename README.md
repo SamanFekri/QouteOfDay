@@ -1,12 +1,14 @@
-### 📅 Wednesday, 16 April, 2025
+### 📅 Thursday, 17 April, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on April 16 throughout history:
+Here are some notable events that have occurred in the United States on April 17th throughout history:
 
-- **1943**: The first documented use of LSD as a recreational drug in the United States.
-- **1963**: Rev. Martin Luther King Jr. writes his "Letter from Birmingham Jail," responding to criticism of his nonviolent methods during the Civil Rights Movement.
-- **2007**: The Virginia Tech shooting occurs, resulting in the deaths of 32 people and injuring 17 others
+- **1492**: Christopher Columbus made landfall in the Bahamas, changing the course of history that eventually led to European exploration of the Americas. (Note: This was before the United States existed, but it impacts its future events.)
+  
+- **1970**: The Apollo 13 mission returned safely to Earth after choppy attempts to rectify serious life-support problems in space.
+
+- **197
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅✨😊"
+"Every day may not be good, but there’s something good in every day! 🌟✨😊"
