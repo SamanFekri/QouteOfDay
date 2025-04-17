@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the United States on April 17th throughout history:
+Here are some notable events in the USA that occurred on April 17:
 
-- **1492**: Christopher Columbus made landfall in the Bahamas, changing the course of history that eventually led to European exploration of the Americas. (Note: This was before the United States existed, but it impacts its future events.)
-  
-- **1970**: The Apollo 13 mission returned safely to Earth after choppy attempts to rectify serious life-support problems in space.
-
-- **197
+- **1790**: Benjamin Franklin, one of the Founding Fathers of the United States, passed away at age 84 in Philadelphia, Pennsylvania.
+- **1941**: The Chicago Giants played their last game in Major League Baseball before disbanding.
+- **1961**: The Bay of Pigs Invasion, a failed military invasion of Cuba conducted by the CIA, initiated under President John F. Kennedy
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌟✨😊"
+"🌼 Every day may not be good, but there’s something good in every day. ✨"
