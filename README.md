@@ -1,12 +1,12 @@
-### 📅 Thursday, 17 April, 2025
+### 📅 Friday, 18 April, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that occurred on April 17:
+Here are some notable historical events that occurred in the USA on April 18:
 
-- **1790**: Benjamin Franklin, one of the Founding Fathers of the United States, passed away at age 84 in Philadelphia, Pennsylvania.
-- **1941**: The Chicago Giants played their last game in Major League Baseball before disbanding.
-- **1961**: The Bay of Pigs Invasion, a failed military invasion of Cuba conducted by the CIA, initiated under President John F. Kennedy
+- **1775**: The British begin sending troops from Boston to Concord, Massachusetts, kicking off the American Revolutionary War, leading to the famous "Midnight Ride of Paul Revere" who famously warned, “The British are coming!”.
+  
+- **1906**: The Great San Francisco Earthquake occurs, measuring 7.9 on the Richter scale, causing widespread devastation across San Francisco and leading to massive
 ### Positive Qoute
 ------
-"🌼 Every day may not be good, but there’s something good in every day. ✨"
+"Believe in the magic of new beginnings! ✨🌱 #EmbraceChange"
