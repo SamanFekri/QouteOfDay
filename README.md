@@ -1,12 +1,12 @@
-### 📅 Friday, 18 April, 2025
+### 📅 Saturday, 19 April, 2025
 ------
 ### Events
 ------
-Here are a few notable events that happened on April 18 in U.S. history:
+Here are some notable events in the USA that have occurred on April 19:
 
-- **1775**: Paul Revere's Midnight Ride – Paul Revere, along with William Dawes and Samuel Prescott, rode out to warn the American colonists that the British forces were advancing toward Concord, Massachusetts, a key moment before the outbreak of the American Revolutionary War.
-
-- **1861**: The Start of the Civil War – The United States remains tense as the Civil War begins with the
+- **1775**: The battles of Lexington and Concord marked the beginning of the American Revolutionary War.
+- **1993**: The Branch Davidian Compound near Waco, Texas, was raided by federal authorities, ultimately leading to a 51-day standoff, which culminated in a tragic fire on April 19, 1993.
+- **1995**: The Oklahoma City bombing took place when
 ### Positive Qoute
 ------
-"Embrace the magic of new beginnings! 🌟✨ Every day is a fresh canvas waiting for your masterpiece. 🎨💖"
+"Every day is a fresh start! 🌅 Embrace it with a grateful heart and a smile 😊✨"
