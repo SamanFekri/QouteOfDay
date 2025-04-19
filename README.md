@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on April 19:
+Here are some notable events in the USA that occur on April 19:
 
-- **1775**: The battles of Lexington and Concord marked the beginning of the American Revolutionary War.
-- **1993**: The Branch Davidian Compound near Waco, Texas, was raided by federal authorities, ultimately leading to a 51-day standoff, which culminated in a tragic fire on April 19, 1993.
-- **1995**: The Oklahoma City bombing took place when
+- **April 19, 1775**: The Battles of Lexington and Concord commenced, marking the beginning of the American Revolutionary War.
+- **April 19, 1943**: The formation of the ghetto uprising in Warsaw, Poland, during World War II, although not an event strictly in the USA, had significant implications for American involvement and awareness of the Holocaust.
+- **April 19, 199
 ### Positive Qoute
 ------
-"Every day is a fresh start! 🌅 Embrace it with a grateful heart and a smile 😊✨"
+"Believe in yourself and all that you are. When you rise, the world will rise with you! 🌟✨💪"
