@@ -1,12 +1,12 @@
-### 📅 Saturday, 19 April, 2025
+### 📅 Sunday, 20 April, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on April 19:
+Here are a few notable events that have occurred in the United States on April 20:
 
-- **April 19, 1775**: The Battles of Lexington and Concord commenced, marking the beginning of the American Revolutionary War.
-- **April 19, 1943**: The formation of the ghetto uprising in Warsaw, Poland, during World War II, although not an event strictly in the USA, had significant implications for American involvement and awareness of the Holocaust.
-- **April 19, 199
+- **1999 – Columbine High School Shooting**: Two students carried out a massacre at Columbine High School in Colorado, firing at classmates and teachers and ultimately leading to the deaths of 13 individuals and injuring many others.
+  
+- **1972 – The First Earth Day Awarded Real Influence**: While Earth Day is commonly celebrated on April 22, the first Earth Day was celebrated in 
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. When you rise, the world will rise with you! 🌟✨💪"
+"Every day may not be good, but there's something good in every day! ✨😊🌈"
