@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the United States on April 20:
+Here are some noteworthy events that take place in the USA on April 20th:
 
-- **1999 – Columbine High School Shooting**: Two students carried out a massacre at Columbine High School in Colorado, firing at classmates and teachers and ultimately leading to the deaths of 13 individuals and injuring many others.
+- **420 Day (April 20)**: A celebration observed by cannabis enthusiasts, both in the U.S. and globally, marking the social and cultural acceptance of marijuana use.
   
-- **1972 – The First Earth Day Awarded Real Influence**: While Earth Day is commonly celebrated on April 22, the first Earth Day was celebrated in 
+- **National Pineapple Upside Down Cake Day**: A quirky observance celebrating this popular dessert known for its unique presentation.
+
+- **Anniversary of the Columbine High School Shooting (1999)**: A tragic event that
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! ✨😊🌈"
+"Believe in yourself! 🌟 Every step you take brings you closer to your dreams! ✨💪"
