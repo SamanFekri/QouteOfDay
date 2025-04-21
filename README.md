@@ -2,11 +2,14 @@
 ------
 ### Events
 ------
-Here are some notable events that have taken place in the USA on April 21 throughout history:
+Here are some notable events that occur on April 21 in the United States:
 
-- **1956**: _The modern version of Converse’s Chuck Taylor All-Stars_ basketball shoes became a compelling sales success.
-- **1977**: _"Two Ducks in a Loft,"_ the first Shrek inspired movie adaptation, opened at the Strand theater in New York City.
-- **1984**: _Rick Monday, an outfielder for the Chicago Cubs, is credited with
+- **National Tea Day**: Celebrated annually, this day recognizes the history, preparation, and beverage options available with tea.
+  
+- **Administrative Professionals Day**: Celebrated on the Wednesday of the last full week in April, but often noted in associations with April 21, this recognizes the contributions of administrative professionals in the workplace.
+
+- **Entry and Commemoration of Historical Events**:
+  - **191
 ### Positive Qoute
 ------
-"Believe in the magic within you ✨💖 and let your dreams take flight! 🕊️🌈"
+"Embrace the glorious mess that you are! ✨💖 Let your uniqueness shine! 🌟🌈"
