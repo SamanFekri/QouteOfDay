@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on April 23:
+Here are some notable events that take place on April 23 in the USA:
 
-- **1971**: The first email sent from a computer in the United States is recorded by Ray Tomlinson, an American computer programmer.
-  
-- **1993**: A fire at the Waco compound of the Branch Davidian sect leads to the loss of numerous lives.
-
-- **2005**: The Cruiser "USS Ronald Reagan" is commissioned as a symbol marking strides in technology in the U.S
+- **National Day of Silence**: A student-led, anti-bullying initiative aimed at raising awareness of the bullying and harassment faced by LGBTQ+ students.
+- **World Book Day**: While internationally recognized on April 23, it is celebrated in various ways across the U.S. to promote literature and reading.
+- **Celebrate Readings Day**: Promotes literacy and the joys of reading.
+- **La
 ### Positive Qoute
 ------
-"Believe in yourself, and you will be unstoppable! ✨💪🚀"
+"Shine bright like the stars ✨, embrace every moment 🌈, and let your dreams take flight 🦋!"
