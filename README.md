@@ -1,18 +1,14 @@
-### 📅 Tuesday, 22 April, 2025
+### 📅 Wednesday, 23 April, 2025
 ------
 ### Events
 ------
-- **Earth Day**: Celebrated annually on April 22nd, Earth Day is an environmental protection movement that promotes awareness about environmental issues and encourages activism to protect the planet. 
+Here are some notable events that have occurred in the USA on April 23:
 
-This global event typically involves various activities such as:
+- **1971**: The first email sent from a computer in the United States is recorded by Ray Tomlinson, an American computer programmer.
+  
+- **1993**: A fire at the Waco compound of the Branch Davidian sect leads to the loss of numerous lives.
 
-  - Community clean-up projects
-  - Tree planting events
-  - Educational programs in schools
-  - Political lobbying for environmental laws
-  - Festivals and awareness campaigns to promote sustainability
-
-Earth Day was first celebrated in 1970 and has since become a key
+- **2005**: The Cruiser "USS Ronald Reagan" is commissioned as a symbol marking strides in technology in the U.S
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s always something good in every day. 🌟😊✨"
+"Believe in yourself, and you will be unstoppable! ✨💪🚀"
