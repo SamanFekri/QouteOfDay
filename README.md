@@ -2,13 +2,14 @@
 ------
 ### Events
 ------
-Here are some events that occur in the USA on April 25th:
+Here are some notable events that occur in the USA on April 25:
 
-- **National Environmental Education Day**: Celebrates and promotes environmental awareness and education across the country.
-- **World Penguin Day**: Recognized in the US as a day to raise awareness about the conservation and environment of penguin species.
-- **Film and Television Day**: Some organizations may host events highlighting the film and television industry’s influence and contributions.
-- **Historical Events**:
-  - *In 1792
+- **National DNA Day**: A day to commemorate the discovery of the DNA double helix in 1953 and to emphasize the importance of genetics in science and medicine.
+  
+- **World Malaria Day Celebrations**: Awareness events may be organized across the country to promote global efforts to control and eliminate malaria.
+
+- **Historic Events**: 
+  - *California's North Coast Earthquake (2014)*:
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅✨😊"
+"Believe in yourself, and you're halfway there! ✨💪🌟"
