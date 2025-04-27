@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have happened in the United States on April 27:
+Here are some notable events that have occurred in the United States on April 27:
 
-- **1937**: The Hindenburg Airship crashed at Lakehurst, New Jersey, during its attempt to dock, marking one of the most infamous airship disasters in history.
-
-- **1961**: The 4th Summit of Heads of State Or Government held in Washington, D.C., included U.S. President John F. Kennedy, where various international issues and Cold War tensions were discussed.
-
-
+- **1961**: President John F. Kennedy delivered his famous "JV speech," addressing issues related to conspiracy theories and the need for a better informed public.
+- **1973**: The infamous Watergate scandal led to the introduction of articles of impeachment against President Richard Nixon by the House Judiciary Committee.
+- **1994**: The U.S. Army formally acknowledged the fact that it created the chemical agent
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅✨😊"
+"Believe you can and you’re halfway there! ✨🌟 #PositiveVibes"
