@@ -1,12 +1,14 @@
-### 📅 Saturday, 26 April, 2025
+### 📅 Sunday, 27 April, 2025
 ------
 ### Events
 ------
-Here are some significant historical events that have occurred in the United States on April 26:
+Here are some notable events that have happened in the United States on April 27:
 
-- **1937**: The Hindenburg, a German passenger airship, caught fire and had its final flight when disaster struck in Lakehurst, New Jersey, in 1937.
-- **1954**: The first local telecast of the Academy Awards took place in New York, airing live from the Beeb formally (N.Y. City, USA).
-- **1986**: The
+- **1937**: The Hindenburg Airship crashed at Lakehurst, New Jersey, during its attempt to dock, marking one of the most infamous airship disasters in history.
+
+- **1961**: The 4th Summit of Heads of State Or Government held in Washington, D.C., included U.S. President John F. Kennedy, where various international issues and Cold War tensions were discussed.
+
+
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings. ✨🌈 Every day brings a chance to be better! 🌟😊"
+"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅✨😊"
