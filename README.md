@@ -1,12 +1,16 @@
-### 📅 Sunday, 27 April, 2025
+### 📅 Monday, 28 April, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the United States on April 27:
+Here are some notable events that have occurred in the USA on April 28:
 
-- **1961**: President John F. Kennedy delivered his famous "JV speech," addressing issues related to conspiracy theories and the need for a better informed public.
-- **1973**: The infamous Watergate scandal led to the introduction of articles of impeachment against President Richard Nixon by the House Judiciary Committee.
-- **1994**: The U.S. Army formally acknowledged the fact that it created the chemical agent
+- **1945**: Italian partisans captured Benito Mussolini, who was trying to escape to Switzerland, and he was executed shortly thereafter.
+  
+- **1967**: Muhammad Ali refused induction into the United States Army and was subsequently stripped of his boxing titles.
+  
+- **1973**: The first episode of "The Brady Bunch Hour" was aired, marking a notable moment in American television.
+
+-
 ### Positive Qoute
 ------
-"Believe you can and you’re halfway there! ✨🌟 #PositiveVibes"
+"Believe in the magic of new beginnings! ✨🌱❤️"
