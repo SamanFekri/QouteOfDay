@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on April 29:
+Here are some notable events that have occurred in the United States on April 29:
 
-- **National Shrimp Scampi Day**: A culinary celebration recognizing shrimp scampi, which may involve various seafood-related festivals and promotions at restaurants.
-  
-- **Historicalevents**:
-  - **1974**: Richard Nixon becomes the first U.S. president to voluntarily release audio tapes; the tapes relate to the Watergate scandal.
-  - **1992**: The Los Angeles riots erupt after a jury acquits
+- **1848**: The first U.S. public education system was established in Massachusetts.
+- **1974**: President Richard Nixon faced House investigators off during the Watergate scandal, leading to widespread calls for his impeachment.
+- **1991**: A train derailment caused an explosion in the town of Mobile, Alabama, resulting in 47 fatalities.
+- **2001**: The USA Network aired
 ### Positive Qoute
 ------
-"Shine bright like the stars ✨ and spread kindness like confetti 🎉!"
+"Believe in yourself and all that you are. ✨ You are capable of amazing things! 💖🌟"
