@@ -1,13 +1,14 @@
-### 📅 Tuesday, 29 April, 2025
+### 📅 Wednesday, 30 April, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the United States on April 29:
+Here are some notable events that occur on April 30 in the USA:
 
-- **1848**: The first U.S. public education system was established in Massachusetts.
-- **1974**: President Richard Nixon faced House investigators off during the Watergate scandal, leading to widespread calls for his impeachment.
-- **1991**: A train derailment caused an explosion in the town of Mobile, Alabama, resulting in 47 fatalities.
-- **2001**: The USA Network aired
+- **National Treasures Day**: A day to celebrate the richness of American culture and heritage, reminding citizens to appreciate and preserve their unique national treasures.
+
+- **Pinhole Photography Day**: A global celebration encouragement for enthusiasts and creatives to explore pinhole photography, often leading to various local events and workshops.
+
+- **Flag Day (in various states)**: Some may observe state-specific or local flag days on this date
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨ You are capable of amazing things! 💖🌟"
+"Embrace the beautiful journey ahead, for every step brings new opportunities! ✨🌿💖"
