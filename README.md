@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that occur on April 30 in the USA:
+Here are some significant events that have occurred in the USA on April 30:
 
-- **National Treasures Day**: A day to celebrate the richness of American culture and heritage, reminding citizens to appreciate and preserve their unique national treasures.
+- **1789**: George Washington was inaugurated as the first President of the United States in New York City. He set the precedent for future presidential inaugurations.
+  
+- **1916**: The first radio broadcasts in the United States are conducted by the American Telephone Company (AT&T).
 
-- **Pinhole Photography Day**: A global celebration encouragement for enthusiasts and creatives to explore pinhole photography, often leading to various local events and workshops.
-
-- **Flag Day (in various states)**: Some may observe state-specific or local flag days on this date
+- **1945**: Adolf Hitler marries Eva Braun in Berlin. Though primarily a historical event, its significance impacted U
 ### Positive Qoute
 ------
-"Embrace the beautiful journey ahead, for every step brings new opportunities! ✨🌿💖"
+"Every day may not be good, but there's something good in every day! 🌞✨🌈"
