@@ -1,7 +1,5 @@
-### 📅 Thursday, 01 May, 2025
-------
+## Thursday, 01 May, 2025
 ### Events
-------
 Here are notable events that occur in the USA on May 1st:
 
 - **May Day (International Workers' Day)**: 
@@ -13,6 +11,6 @@ Here are notable events that occur in the USA on May 1st:
   - Typically includes speeches emphasizing patriotism and American values.
 
 
-### Positive Qoute
-------
+### Quote of the day
 "Believe in your dreams, and they may come true! 🌟✨ Keep shining and spreading positivity! 💖😊"
+-----
