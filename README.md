@@ -1,17 +1,14 @@
-### 📅 Thursday, 01 May, 2025
+### 📅 Friday, 02 May, 2025
 ------
 ### Events
 ------
-Here are some significant events and observances that occur on May 1st in the USA:
+Here are some notable events that take place in the USA on May 2:
 
-- **May Day**: 
-  - Celebrated as International Workers' Day, focusing on labor rights and worker’s contributions.
-  - Various labor unions and organizations may hold parades and demonstrations in support of workers' rights.
+- **National Teacher Day**: Celebrated on the Tuesday of the first full week of May, it honors and appreciates teachers for their contributions to education and society. Often observed with special events and recognition activities in schools.
 
-- **Law Day**:
-  - A day to reflect on the role of law in the foundation of humanity and to recognize its contributions to the freedom of men.
+- **National Truffle Day**: Celebrates the delicious chocolate treat. Many desserts and events focused on indulgence may arise around this time.
 
-- **
+- **Historical Events**: Various historical events have taken
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨🌈💖 Every day is a new opportunity to sparkle!" ✨🌟😊
+"Believe in the magic within you ✨💖, and watch how it lights up the world around you! 🌎🌟"
