@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA on May 2:
+Here are some notable events that have occurred in the United States on May 2nd throughout history:
 
-- **National Teacher Day**: Celebrated on the Tuesday of the first full week of May, it honors and appreciates teachers for their contributions to education and society. Often observed with special events and recognition activities in schools.
-
-- **National Truffle Day**: Celebrates the delicious chocolate treat. Many desserts and events focused on indulgence may arise around this time.
-
-- **Historical Events**: Various historical events have taken
+- **1933:** The first appearance of the "Chupacabra" in Puerto Rico was reported. Although Puerto Rico is a territory, it pleased the US populace with sightings like those.
+- **1945:** World War II – The cities of both Berlin in Germany were surrendered. While this was primarily European, it heavily impacted American military forces at the time.
+- **2000:** The
 ### Positive Qoute
 ------
-"Believe in the magic within you ✨💖, and watch how it lights up the world around you! 🌎🌟"
+"Every day is a new beginning. Take a deep breath, smile, and start again. ✨🌟😊"
