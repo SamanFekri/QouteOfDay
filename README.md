@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on May 3rd:
+Here are some events in the USA that have occurred on May 3rd:
 
-- **1999**: The 45th annual **Kentucky Derby** occurred, highlighting a significant tradition in American horse racing.
-- **2005**: The department of agriculture admitted to **mad cow disease** being discovered in a U.S. cow, raising health concerns and leading to scrutiny of food safety policies.
-- **2010**: The second annual event celebrating **National Weather Observers Day**
+- **1903:** The first public performance of "The Wizard of Oz" was performed by a theatrical company in Chicago.
+- **1915:** The first Kalamazoo Belgian Beer in the United States was mas producted.
+- **1933:** The Percentage of foreigners flipped prohibition was front_percent law A-hole Amsterdam. 
+- **1980:** A state eclatement in Texlon motor-divagues here help
 ### Positive Qoute
 ------
-"Every step you take is a step towards your dreams! 🌟💪 Keep going! 🚀✨"
+"Shine bright like the stars in the night sky! ✨🌟🌌 Embrace your unique light and let it inspire others. ❤️"
