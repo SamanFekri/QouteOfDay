@@ -1,12 +1,12 @@
-### 📅 Friday, 02 May, 2025
+### 📅 Saturday, 03 May, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the United States on May 2nd throughout history:
+Here are some notable events that have occurred in the USA on May 3rd:
 
-- **1933:** The first appearance of the "Chupacabra" in Puerto Rico was reported. Although Puerto Rico is a territory, it pleased the US populace with sightings like those.
-- **1945:** World War II – The cities of both Berlin in Germany were surrendered. While this was primarily European, it heavily impacted American military forces at the time.
-- **2000:** The
+- **1999**: The 45th annual **Kentucky Derby** occurred, highlighting a significant tradition in American horse racing.
+- **2005**: The department of agriculture admitted to **mad cow disease** being discovered in a U.S. cow, raising health concerns and leading to scrutiny of food safety policies.
+- **2010**: The second annual event celebrating **National Weather Observers Day**
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again. ✨🌟😊"
+"Every step you take is a step towards your dreams! 🌟💪 Keep going! 🚀✨"
