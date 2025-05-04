@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA on May 4:
+Here are some events that are associated with May 4th in the USA:
 
-- **Star Wars Day**: Fans celebrate "Star Wars Day" on May 4, famous for the pun "May the Fourth be with you," a play on the iconic Star Wars phrase, "May the Force be with you."
-  
-- **National Teachers Day**: Recognized on the Tuesday of the first full week of May, National Teacher's Day is often celebrated on May 4 in various states,
+- **Star Wars Day**: Celebrated by fans of the Star Wars franchise, "May the 4th be with you" is a pun on the famous phrase "May the Force be with you."
+
+- **National Airport Safety Month**: May is recognized as Airport Safety Month in the USA, with various initiatives around the country emphasizing safety in aviation.
+
+- **International Firefighters' Day (Observed)**: Although
 ### Positive Qoute
 ------
-"Embrace each day like a new adventure 🌅✨. Your potential is limitless! 🚀🌟"
+"Believe in the magic of every new day ✨🌅 Embrace the possibilities! 🌈💪"
