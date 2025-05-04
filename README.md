@@ -1,13 +1,12 @@
-### 📅 Saturday, 03 May, 2025
+### 📅 Sunday, 04 May, 2025
 ------
 ### Events
 ------
-Here are some events in the USA that have occurred on May 3rd:
+Here are some notable events that take place in the USA on May 4:
 
-- **1903:** The first public performance of "The Wizard of Oz" was performed by a theatrical company in Chicago.
-- **1915:** The first Kalamazoo Belgian Beer in the United States was mas producted.
-- **1933:** The Percentage of foreigners flipped prohibition was front_percent law A-hole Amsterdam. 
-- **1980:** A state eclatement in Texlon motor-divagues here help
+- **Star Wars Day**: Fans celebrate "Star Wars Day" on May 4, famous for the pun "May the Fourth be with you," a play on the iconic Star Wars phrase, "May the Force be with you."
+  
+- **National Teachers Day**: Recognized on the Tuesday of the first full week of May, National Teacher's Day is often celebrated on May 4 in various states,
 ### Positive Qoute
 ------
-"Shine bright like the stars in the night sky! ✨🌟🌌 Embrace your unique light and let it inspire others. ❤️"
+"Embrace each day like a new adventure 🌅✨. Your potential is limitless! 🚀🌟"
