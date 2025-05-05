@@ -1,14 +1,12 @@
-### 📅 Sunday, 04 May, 2025
+### 📅 Monday, 05 May, 2025
 ------
 ### Events
 ------
-Here are some events that are associated with May 4th in the USA:
+Here are some significant events that take place on May 5th in the USA:
 
-- **Star Wars Day**: Celebrated by fans of the Star Wars franchise, "May the 4th be with you" is a pun on the famous phrase "May the Force be with you."
-
-- **National Airport Safety Month**: May is recognized as Airport Safety Month in the USA, with various initiatives around the country emphasizing safety in aviation.
-
-- **International Firefighters' Day (Observed)**: Although
+- **Cinco de Mayo**: This celebration commemorates the Mexican Army's victory over the French Empire at the Battle of Puebla on May 5, 1862. While more popular in Mexico, it has become widely celebrated in the United States, particularly in areas with large Mexican-American populations.
+  
+- **Youth Day (Día del Niño)**: While more focused on Mexican-American celebrations, many communities in
 ### Positive Qoute
 ------
-"Believe in the magic of every new day ✨🌅 Embrace the possibilities! 🌈💪"
+"Embrace each day like it's a bright new canvas 🎨✨. Paint it with joy, kindness, and creativity! 🌼💖"
