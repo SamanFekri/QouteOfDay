@@ -1,12 +1,12 @@
-### 📅 Tuesday, 06 May, 2025
+### 📅 Wednesday, 07 May, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur in the USA on May 6:
+Here are some notable events in the USA that occur on May 7th:
 
-- **National Nurses Day**: Celebrated annually to honor the contributions of nurses to health care and to promote awareness of the important role that nurses play.
-- **World Biodegradable Plastic Day**: Recognizes the need to address plastic pollution by encouraging the use of biodegradable plastics in various industries.
-- **Previously Recorded Sporting Events**: Various sports leagues may schedule games on this date, such as MLB games for the baseball
+- **National Teacher Day**: Celebrated annually on the Tuesday of the first full week of May, it recognizes and honors teachers and their significant impact on education and student success.
+- **Military Spouse Appreciation Day**: Observed on the Friday before Mother's Day, this day honors the contributions and sacrifices of military spouses across the country.
+- **1847**: The first meeting of the American Medical Association (AMA
 ### Positive Qoute
 ------
-"Every day may not be good, but there is something good in every day! ✨😊🌈"
+"🌟 Every day may not be good, but there's something good in every day! 🌈✨"
