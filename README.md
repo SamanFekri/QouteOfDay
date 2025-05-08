@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some significant events that take place in the USA on May 8:
+Here are some significant events in the USA that occur on May 8:
 
-- **Mother's Day**: Celebrated on the second Sunday of May, which often falls on May 8, celebrating motherhood and honoring mothers and maternal figures.
-  
-- **VE Day Observance**: Although Victory in Europe Day is officially recognized on May 8 (not a holiday in the U.S.), observances and commemorations may occur in memory of the end of World War II in Europe.
-
-- **
+- **V-E Day Celebrations:** May 8, 1945, marked the acceptance of Nazi Germany's unconditional surrender, leading to celebrations in the U.S. and around the world.
+- **National Teacher Appreciation Day:** Celebrated on the Tuesday of the first full week of May, this day honors teachers and their contributions to education.
+- **National Odd Day:** Celebrated in some circles, people celebrate Fibonacci’s
 ### Positive Qoute
 ------
-"Shine bright like the stars ⭐️✨; your light can inspire others! 🌟"
+"Every day may not be good, but there’s something good in every day! 🌈🌟✨"
