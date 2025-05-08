@@ -1,12 +1,14 @@
-### 📅 Wednesday, 07 May, 2025
+### 📅 Thursday, 08 May, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on May 7:
+Here are some significant events that take place in the USA on May 8:
 
-- **1915**: The RMS Lusitania, a British ocean liner, was sunk by a German submarine off the coast of Ireland, contributing to the United States' contemplation of entering World War I.
-- **1954**: The U.S. Supreme Court unanimously rules that the separation of children in public schools on the basis of race is unconstitutional in the landmark case *Brown v. Board of Education*.
--
+- **Mother's Day**: Celebrated on the second Sunday of May, which often falls on May 8, celebrating motherhood and honoring mothers and maternal figures.
+  
+- **VE Day Observance**: Although Victory in Europe Day is officially recognized on May 8 (not a holiday in the U.S.), observances and commemorations may occur in memory of the end of World War II in Europe.
+
+- **
 ### Positive Qoute
 ------
-"Chase your dreams with all your heart, and watch the magic unfold! ✨💖🌈"
+"Shine bright like the stars ⭐️✨; your light can inspire others! 🌟"
