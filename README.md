@@ -1,12 +1,12 @@
-### 📅 Thursday, 08 May, 2025
+### 📅 Friday, 09 May, 2025
 ------
 ### Events
 ------
-Here are some significant events in the USA that occur on May 8:
+Here are some notable events in the USA that are observed on May 9:
 
-- **V-E Day Celebrations:** May 8, 1945, marked the acceptance of Nazi Germany's unconditional surrender, leading to celebrations in the U.S. and around the world.
-- **National Teacher Appreciation Day:** Celebrated on the Tuesday of the first full week of May, this day honors teachers and their contributions to education.
-- **National Odd Day:** Celebrated in some circles, people celebrate Fibonacci’s
+- **Teachers' Day**: Celebrated on the first Tuesday of May or on May 9 in some states, honoring teachers and their contributions to education.
+- **National Teardown Day**: A day dedicated to encouraging the spirit of DIY tinkering and creative construction.
+- **The National Press Club’s Affilatorials**: Grassroots efforts promoting the freedom of the press, discussions, and workshops around journalism today
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌈🌟✨"
+"Every day may not be good, but there's something good in every day! 🌟💖"
