@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that are observed on May 9:
+- **Historic Events:**
+  - 1865: President Abraham Lincoln was assassinated at Ford's Theatre in Washington, D.C. (From the latter stages of the war, several consequences and dedications around this date evolve).
+  - 1950: The United States launched the "Mothers Day" tradition when it began.
 
-- **Teachers' Day**: Celebrated on the first Tuesday of May or on May 9 in some states, honoring teachers and their contributions to education.
-- **National Teardown Day**: A day dedicated to encouraging the spirit of DIY tinkering and creative construction.
-- **The National Press Club’s Affilatorials**: Grassroots efforts promoting the freedom of the press, discussions, and workshops around journalism today
+- **Current Observances:**
+  - **Mother's Day**: Celebrated on the second Sunday of May, which sometimes falls on May 9th
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟💖"
+"Embrace the wonderful chaos of life; it's where the magic happens! 🌈✨🌟"

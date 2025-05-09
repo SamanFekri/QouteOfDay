@@ -188,3 +188,14 @@ Here are some notable events in the USA that are observed on May 9:
 ### Quote of the day
 "Every day may not be good, but there's something good in every day! 🌟💖"
 -----
+## Friday, 09 May, 2025
+### Events
+- **Historic Events:**
+  - 1865: President Abraham Lincoln was assassinated at Ford's Theatre in Washington, D.C. (From the latter stages of the war, several consequences and dedications around this date evolve).
+  - 1950: The United States launched the "Mothers Day" tradition when it began.
+
+- **Current Observances:**
+  - **Mother's Day**: Celebrated on the second Sunday of May, which sometimes falls on May 9th
+### Quote of the day
+"Embrace the wonderful chaos of life; it's where the magic happens! 🌈✨🌟"
+-----
