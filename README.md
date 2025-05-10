@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events and observances that occur on May 10 in the USA:
+Here are some events that have occurred in the USA on May 10:
 
-- **1857**: The Great Wanderer meteorite falls on this day in Taza, Morocco—highlighting the widespread interest in meteor rapieces in Ohio and beyond during this period.
-  
-- **1869**: The completion of the First Transcontinental Railroad is celebrated at Promontory Summit, Utah, where the Central Pacific Railroad and Union Pacific Railroad connect, significantly impacting transportation and commerce.
-
--
+- **National Train Day**: An annual observance that celebrates America's train history and emphasizes the importance of rail travel.
+- **Sugar Ray Leonard vs. Thomas Hearns Fight (1981)**: A historic boxing match known as "The Showdown," where Leonard unified the welterweight titles.
+- **Implementation of the 9-1-1 Emergency Call System (1968)**: The first integrated emergency telephone number
 ### Positive Qoute
 ------
-"Embrace each day with a smile and a heart full of gratitude! 😊💖✨"
+"Believe in the magic within you and let your light shine! ✨🌟🌈"
