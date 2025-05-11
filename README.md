@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events and observances that occur in the USA on May 11:
+Here are some notable events in U.S. history that occurred on May 11:
 
-- **National Technology Day**: Celebrated to honor innovators and the overall advancements in technology that have changed the world and improved everyday lives.
-  
-- **World Fair Trade Day**: A global event that occurs on the second Saturday in May, providing an opportunity for…
-
-If none of these specific events for May 11 match what you're seeking, please provide more details or clarity!
+- **1820**: Helen Keller, the famous author and activist, was born.
+- **1973**: The Watergate Scandal continues as the Senate Watergate committee begins televised hearings.
+- **1990**: The final episode of *The Brady Bunch Variety Hour*, a variety show based on the classic sitcom, airs.
+- **1997**: The last-ever episode of the TV show
 ### Positive Qoute
 ------
-"Start each day with a grateful heart and watch the magic unfold! ✨💖🌅"
+"Embrace the small victories, for they are the stepping stones to greatness! 🌟💪🎉"
