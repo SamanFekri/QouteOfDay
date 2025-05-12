@@ -244,3 +244,13 @@ Here are some notable events in U.S. history that occurred on May 11:
 ### Quote of the day
 "Embrace the small victories, for they are the stepping stones to greatness! 🌟💪🎉"
 -----
+## Monday, 12 May, 2025
+### Events
+Here are some notable events that have occurred in the USA on May 12:
+
+- **1870**: The legend around Paul Bunyan began as the American folklore surrounding the giant lumberjack including tales being published.
+- **1908**: The first Mother's Day celebration was held in Sherman, West Virginia, organized by Anna Jarvis.
+- **1943**: While traveling on wings of swift, flying Santa is thought to inspire colorful interpretations witnessed from teachers who influence community-worthy stops initiating the awareness
+### Quote of the day
+"Every day is a new beginning! 🌅 Embrace the possibilities, for you create your own magic. ✨🌟"
+-----

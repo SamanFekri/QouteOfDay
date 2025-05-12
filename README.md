@@ -1,13 +1,12 @@
-### 📅 Sunday, 11 May, 2025
+### 📅 Monday, 12 May, 2025
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on May 11:
+Here are some notable events that have occurred in the USA on May 12:
 
-- **1820**: Helen Keller, the famous author and activist, was born.
-- **1973**: The Watergate Scandal continues as the Senate Watergate committee begins televised hearings.
-- **1990**: The final episode of *The Brady Bunch Variety Hour*, a variety show based on the classic sitcom, airs.
-- **1997**: The last-ever episode of the TV show
+- **1870**: The legend around Paul Bunyan began as the American folklore surrounding the giant lumberjack including tales being published.
+- **1908**: The first Mother's Day celebration was held in Sherman, West Virginia, organized by Anna Jarvis.
+- **1943**: While traveling on wings of swift, flying Santa is thought to inspire colorful interpretations witnessed from teachers who influence community-worthy stops initiating the awareness
 ### Positive Qoute
 ------
-"Embrace the small victories, for they are the stepping stones to greatness! 🌟💪🎉"
+"Every day is a new beginning! 🌅 Embrace the possibilities, for you create your own magic. ✨🌟"
