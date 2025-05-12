@@ -2,11 +2,16 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on May 12:
+Here are several notable events in the USA that occur on May 12:
 
-- **1870**: The legend around Paul Bunyan began as the American folklore surrounding the giant lumberjack including tales being published.
-- **1908**: The first Mother's Day celebration was held in Sherman, West Virginia, organized by Anna Jarvis.
-- **1943**: While traveling on wings of swift, flying Santa is thought to inspire colorful interpretations witnessed from teachers who influence community-worthy stops initiating the awareness
+- **Nurses Day**:
+  - Observed every May 12 in the United States to honor nurses for their contributions to healthcare.
+  
+- **Pasta Day (National Pasta Day)**:
+  - May 12 is sometimes selected for festivities related to popular food movements or culinary appreciation activities involving pasta.
+  
+- **Traditional Events**:
+  - Various local celebrations, festivals, or community activities may happen on this date
 ### Positive Qoute
 ------
-"Every day is a new beginning! 🌅 Embrace the possibilities, for you create your own magic. ✨🌟"
+"Believe in the magic of your dreams ✨🌟, for each step forward is a step towards your bright future! 🚀💖"
