@@ -1,17 +1,12 @@
-### 📅 Monday, 12 May, 2025
+### 📅 Tuesday, 13 May, 2025
 ------
 ### Events
 ------
-Here are several notable events in the USA that occur on May 12:
+Here are a few notable events in U.S. history that occurred on May 13:
 
-- **Nurses Day**:
-  - Observed every May 12 in the United States to honor nurses for their contributions to healthcare.
-  
-- **Pasta Day (National Pasta Day)**:
-  - May 12 is sometimes selected for festivities related to popular food movements or culinary appreciation activities involving pasta.
-  
-- **Traditional Events**:
-  - Various local celebrations, festivals, or community activities may happen on this date
+- **1846**: The United States declares war on Mexico, marking the beginning of the Mexican-American War.
+- **1888**: The Great Blizzard of 1888 hits the Eastern United States, resulting in snowstorms that shut down cities and caused significant harm and loss of life.
+- **1950**: The first round-the-world flight by a jet took place when a B- 50
 ### Positive Qoute
 ------
-"Believe in the magic of your dreams ✨🌟, for each step forward is a step towards your bright future! 🚀💖"
+"Believe in the magic of new beginnings! ✨🌱 Let your dreams take flight! 🕊️🌟"
