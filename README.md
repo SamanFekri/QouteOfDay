@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on May 14:
+Here are some notable events in U.S. history that have occurred on May 14:
 
-- **1796**: Eli Whitney patented the cotton gin, which significantly impacted the cotton industry and the economy in the southern United States.
-- **1804**: The Lewis and Clark Expedition set out from St. Louis, Missouri, spearheading exploration of the western territories of the U.S.
-- **1875**: The New Orleans Mets beat the Grand Rapids (Michigan) game, marking the first professional baseball game
+- **1886**: The first U.S. vaccine for diphtheria is introduced by Dr. Berliner, contributing to advancements in public health.
+  
+- **1948**: Israel officially declares its independence. The U.S. is one of the first countries to recognize West Jerusalem as the capital of Israel.
+
+- **1955**: The Warsaw Pact is established in response to NATO, promoting alliance
 ### Positive Qoute
 ------
-"Believe in your dreams and they may come true. Believe in yourself and they will! ✨💖🌈"
+"Every small step forward brings you closer to your dreams! 🌟👣✨"
