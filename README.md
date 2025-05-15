@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events and observances that occur on May 15 in the USA:
+Here are some notable events that occur in the USA on May 15:
 
-- **International Family Day**: Promoted by the United Nations to recognize the importance of families and their role in promoting peace, cultural understanding, and social cohesion.
+- **National Peace Officers Memorial Day**: A day of remembrance honoring the law enforcement officers who have died in the line of duty. It is observed annually by the U.S. Congress and often includes commemorative events and ceremonies across the country.
   
-- **National Chocolate Chip Day**: A fun food holiday celebrating one of America’s favorite ingredients used in baking and desserts.
-
-- **National Intelligent Work Day**: Encourages individuals to work smarter, not harder, focusing on efficiency and innovative
+- **Latest Annual Silverado Classic Weekend**: While the dates can vary, many locations will have social gatherings or motorsports events around mid-May, particularly focused on classic and vintage
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌟☀️😊"
+"Every day may not be good, but there's something good in every day! 🌞✨ Keep shining!"
