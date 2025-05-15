@@ -1,14 +1,14 @@
-### 📅 Wednesday, 14 May, 2025
+### 📅 Thursday, 15 May, 2025
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that have occurred on May 14:
+Here are some notable events and observances that occur on May 15 in the USA:
 
-- **1886**: The first U.S. vaccine for diphtheria is introduced by Dr. Berliner, contributing to advancements in public health.
+- **International Family Day**: Promoted by the United Nations to recognize the importance of families and their role in promoting peace, cultural understanding, and social cohesion.
   
-- **1948**: Israel officially declares its independence. The U.S. is one of the first countries to recognize West Jerusalem as the capital of Israel.
+- **National Chocolate Chip Day**: A fun food holiday celebrating one of America’s favorite ingredients used in baking and desserts.
 
-- **1955**: The Warsaw Pact is established in response to NATO, promoting alliance
+- **National Intelligent Work Day**: Encourages individuals to work smarter, not harder, focusing on efficiency and innovative
 ### Positive Qoute
 ------
-"Every small step forward brings you closer to your dreams! 🌟👣✨"
+"Every day may not be good, but there’s something good in every day! 🌟☀️😊"
