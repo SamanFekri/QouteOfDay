@@ -1,14 +1,12 @@
-### 📅 Saturday, 17 May, 2025
+### 📅 Sunday, 18 May, 2025
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on May 17:
+Here are some notable events that have occurred in the United States on May 18 throughout history:
 
-- **1792**: The Buttonwood Agreement was signed under a buttonwood tree at 68 Wall Street in New York City, laying the foundation for what would become the New York Stock Exchange.
-  
-- **1954**: In a landmark decision, the U.S. Supreme Court unanimously ruled in Brown v. Board of Education, declaring racial segregation in public schooling unconstitutional.
-
-- **1973**: The Watergate
+- **1887**: The first U.S. Roller Coaster is opened at Coney Island, New York, known as "the Silent Sensation."
+- **1927**: The Ford Model A is announced in the United States as a replacement for the Model T.
+- **1944**: The Battle of Monte Cassino, a significant battle of World War II involving U.S. forces
 ### Positive Qoute
 ------
-"🌟 If you can dream it, you can achieve it! ✨ Believe in yourself and watch the magic happen! 💪🏼🌈"
+"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅😊✨"
