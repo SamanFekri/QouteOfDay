@@ -1,10 +1,12 @@
-### 📅 Sunday, 18 May, 2025
+### 📅 Monday, 19 May, 2025
 ------
 ### Events
 ------
-- **1792:** The New York Stock Exchange (formerly known as the Buttonwood Agreement) was founded on May 18, establishing the start of organized stock trading in the U.S.
-- **1862:** During the second year of the Civil War, the U.S. government passed the Homestead Act means by which land was provided for people moving westward. The law was officially signed on May 20 but preparations and discussions would have taken place before the official start.
-- **1917
+Here are some significant events that have occurred in the USA on May 19th:
+
+- 1780: The Great Hurricane of 1780 struck the Caribbean and parts of the eastern United States, leading to significant destruction and loss of life.
+- 1875: The first Kentucky Derby race was held, marking the beginning of a longstanding horse racing tradition in the U.S.
+- 1935: Coca-Cola and Pepsi issued bonds totaling $35 million to expand their operations in the soda dealer business
 ### Positive Qoute
 ------
-"Believe in yourself and you'll be unstoppable! ✨💪🌈"
+"Every day may not be good, but there’s something good in every day. 🌟😊✨"
