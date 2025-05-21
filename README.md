@@ -2,15 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that typically occur on May 21:
+Here are some notable events that happened in the USA on May 21 throughout history:
 
-- **National Memo Day**: A lighthearted observance encouraging people to write and share memorandums or notes.
+- **1881**: The American Red Cross was established by Clara Barton in Washington, D.C. The organization provides emergency assistance, disaster relief, and education in the United States.
   
-- **Monument Day (annually celebrated**): Commemorates significant historical monuments and their preservation.
+- **1927**: Charles Lindbergh completed the first solo nonstop transatlantic flight from New York to Paris in his airplane, the Spirit of St. Louis, marking a significant achievement in aviation history.
   
-- **In some years, it may coincide with public events, parades, or festivals** in local communities correlating with Memorial Day weekend preparations.
-
-- **Birthdays of notable figures
+-
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. ☀️✨ Keep shining and find your joy! 🌈💖"
+"Every day may not be good, but there is something good in every day. 🌞✨😊"
