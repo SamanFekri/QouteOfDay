@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that occur on May 23 in U.S. history:
+Here are some notable events that have occurred in the USA on May 23 across various years:
 
-- **1430**: Joan of Arc is captured in France; she would be handed over to the English and later martyred.
-- **1785**: Benjamin Franklin creates the first International Airmail Opportunity, which eventually leads to the establishment of initial Postal services.
-- **1883**: The first U.S. appearance of crawfish puffs in New Orleans, establishing a noteworthy Creole dish
+- **1860**: The Democratic National Convention was held in Charleston, South Carolina, advancing the campaign strategy of Stephen A. Douglas. This event was significant in the prelude to the Civil War.
+  
+- **1900**: The United States Navy launched its first fully armored battleship, the USS Maine, a significant moment in naval history.
+
+- **1934**: American bank robbers
 ### Positive Qoute
 ------
-"Believe in the magic of today! ✨🌈 Every moment is a new opportunity to shine. 🌟💖"
+"Chase your dreams and let the stars light your path! ✨🌈✨"
