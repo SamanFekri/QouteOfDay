@@ -1,12 +1,12 @@
-### 📅 Thursday, 22 May, 2025
+### 📅 Friday, 23 May, 2025
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the USA on May 22 throughout history:
+Here are some notable events that occur on May 23 in U.S. history:
 
-- **1843**: The first significant action in the westward expansion: Beginning of the Oregon Trail migration, where thousands set out for the Oregon territory.
-- **1873**: The first day of the North American Centenary, which marked the 100th anniversary of the birth of American work, showed progress in the nation's history.
-- **1906**: The U.S. Congress passed
+- **1430**: Joan of Arc is captured in France; she would be handed over to the English and later martyred.
+- **1785**: Benjamin Franklin creates the first International Airmail Opportunity, which eventually leads to the establishment of initial Postal services.
+- **1883**: The first U.S. appearance of crawfish puffs in New Orleans, establishing a noteworthy Creole dish
 ### Positive Qoute
 ------
-"Embrace the chaos and let your imagination run wild! ✨🌈✨"
+"Believe in the magic of today! ✨🌈 Every moment is a new opportunity to shine. 🌟💖"
