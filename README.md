@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA on May 24:
+Here are some notable events that have occurred in the United States on May 24:
 
-- **Renaissance Day (May 24):** Some states and cities celebrate this day to recognize the cultural, philosophical, and artistic achievements of the Renaissance period. This celebration often includes events and activities that showcase art, music, and literature.
+- **1844**: Samuel Morse explains his telegraph for the first time, communicating the message "What hath God wrought." This event marked a significant development in telecommunications.
   
-- **National Brother's Day:** Celebrated on May 24, this informal observance honors the relationship between brothers and encourages people to appreciate and connect with their siblings.
-
+- **1883**: The Brooklyn Bridge in New York City was officially opened to the public. The construction of this iconic bridge began in 1869 and represented a major engineering achievement.
+  
+- **1935**: The first
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨💪 Your only limit is you! 🌈🌟"
+"Shine bright like the stars ✨, embrace the journey 🌈, and share your light with the world! 🌍💖"
