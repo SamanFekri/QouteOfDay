@@ -2,9 +2,10 @@
 ------
 ### Events
 ------
-- **Memorial Day (Observed, Last Monday of May)**: Although Memorial Day is observed on the last Monday of May, the remembrance activities can begin or escalate around May 25th, as communities prepare for the official holiday. Memorial Day honors the men and women who have died in military service to the United States.
+Here are some notable events that have historically taken place in the USA on May 25:
 
-- **National Missing Children’s Day**: May 25th is recognized as National Missing Children’s Day to raise awareness about child abductions and missing children. Parents,
+- **Ascension Day**: Though the date varies, it's often observed by Christian denominations as the fortieth day of Easter, commemorating the ascension of Jesus into heaven. It may lead to various church services across the country.
+- **National Wine Day**: Celebrated on May 25, this informal observance encourages wine enthusiasts to enjoy various types of wine while learning about wine culture and regions
 ### Positive Qoute
 ------
-“Every day may not be good, but there is something good in every day. 🌟😊🌈”
+"🌟 Every day is a new opportunity to shine! Embrace the light within you and let it guide your journey. ✨💖"
