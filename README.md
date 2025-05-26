@@ -1,11 +1,12 @@
-### 📅 Sunday, 25 May, 2025
+### 📅 Monday, 26 May, 2025
 ------
 ### Events
 ------
-Here are some notable events that have historically taken place in the USA on May 25:
+Here are some notable events that have occurred in the USA on May 26:
 
-- **Ascension Day**: Though the date varies, it's often observed by Christian denominations as the fortieth day of Easter, commemorating the ascension of Jesus into heaven. It may lead to various church services across the country.
-- **National Wine Day**: Celebrated on May 25, this informal observance encourages wine enthusiasts to enjoy various types of wine while learning about wine culture and regions
+- **1896:** The first **Memorial Day** was observed in Waterloo, New York, honoring soldiers who died in the Civil War.
+- **1977:** The **first Star Wars movie** was released in theaters; it subsequently became a cultural phenomenon and spawned an entire franchise.
+- **2004:** The **official confirmation of the images of the Webb telescope** was celebrated, though the telescope itself wasn't launched
 ### Positive Qoute
 ------
-"🌟 Every day is a new opportunity to shine! Embrace the light within you and let it guide your journey. ✨💖"
+"Every day is a new chance to shine your light and spread kindness! ✨🌻💖"
