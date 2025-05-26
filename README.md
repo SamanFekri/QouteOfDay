@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on May 26:
+Here are some notable events that have happened in the USA on May 26 throughout history:
 
-- **1896:** The first **Memorial Day** was observed in Waterloo, New York, honoring soldiers who died in the Civil War.
-- **1977:** The **first Star Wars movie** was released in theaters; it subsequently became a cultural phenomenon and spawned an entire franchise.
-- **2004:** The **official confirmation of the images of the Webb telescope** was celebrated, though the telescope itself wasn't launched
+- **1868**: The first Memorial Day, originally called Decoration Day, is observed. This day honored Union soldiers who died during the American Civil War and has since expanded to honor all American military personnel who have died in wars.
+
+- **1938**: An important historical birth date, as the founding member of the American Bandstand TV show, Dick Clark was born. He became a prominent figure in
 ### Positive Qoute
 ------
-"Every day is a new chance to shine your light and spread kindness! ✨🌻💖"
+"Dream big, shine bright! ✨🌟 Your potential is limitless! 💪⭐"
