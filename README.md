@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-On May 28th, the United States commemorates several significant events and observances, including:
+Here's a notable event that occurs annually in the USA on May 28:
 
-- **Memorial Day (observed on the last Monday of May)**: Honors military personnel who have died in the performance of their military duties.
-- **1871**: The establishment of the first modern school for training female physician assistants at The Nurse’s School of Columbus Hospital in New York City.
-- **1940**: The start of the "Operation Ariel," the evacuation of Allied soldiers
+- **Memorial Day**:
+  - **Date**: Observed on the last Monday of May, which can fall on May 28. In years where Memorial Day coincides with this date, it is a federal holiday.
+  - **Purpose**: A day to honor and remember the men and women who have died in military service to the United States.
+  - **Traditions**: 
+    - Par
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Your potential is limitless! 🚀💖"
+"Believe in the magic of new beginnings! ✨🌱✨"
