@@ -1,14 +1,14 @@
-### 📅 Wednesday, 28 May, 2025
+### 📅 Thursday, 29 May, 2025
 ------
 ### Events
 ------
-Here's a notable event that occurs annually in the USA on May 28:
+Here are some notable events in the USA that occur on May 29:
 
-- **Memorial Day**:
-  - **Date**: Observed on the last Monday of May, which can fall on May 28. In years where Memorial Day coincides with this date, it is a federal holiday.
-  - **Purpose**: A day to honor and remember the men and women who have died in military service to the United States.
-  - **Traditions**: 
-    - Par
+- **National Corn on the Cob Day**: Celebrated annually to honor this popular summer side dish. People often cook and enjoy corn on the cob in various ways.
+
+- **Memorial Day Weekend (varies)**: Although Memorial Day falls on the last Monday of May, events often take place during the preceding weekend, making May 29 a part of these commemoration events and ceremonies across the country.
+
+- **
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱✨"
+"Believe in yourself and all that you are. 🚀✨ The journey of a thousand miles begins with a single step! 🌟👣"
