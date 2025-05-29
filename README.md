@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on May 29:
+Here are some notable events that have occurred in the USA on May 29:
 
-- **National Corn on the Cob Day**: Celebrated annually to honor this popular summer side dish. People often cook and enjoy corn on the cob in various ways.
-
-- **Memorial Day Weekend (varies)**: Although Memorial Day falls on the last Monday of May, events often take place during the preceding weekend, making May 29 a part of these commemoration events and ceremonies across the country.
-
-- **
+- **1848**: Wisconsin was admitted as the 30th state of the United States.
+- **1861**: The Provisional Government of the Confederate States of America formally established its capital in Montgomery, Alabama.
+- **1942**: The International Solidarity Day for World War II was observed amidst ongoing military efforts.
+- **1990**: The cruise ship "Royal Majesty" ran aground on
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🚀✨ The journey of a thousand miles begins with a single step! 🌟👣"
+"Every day may not be good, but there is something good in every day! ☀️😊💖"
