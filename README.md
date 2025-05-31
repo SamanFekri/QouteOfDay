@@ -1,15 +1,12 @@
-### 📅 Friday, 30 May, 2025
+### 📅 Saturday, 31 May, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur in the USA on May 30:
+Here are some notable events that take place in the United States on May 31:
 
-- **Memorial Day Observance**:  
-  - Memorial Day is observed on the last Monday of May in the United States, which often falls near May 30.
-  - This day is dedicated to honoring and remembering the men and women who have died while serving in the U.S. military.
-
-- **Decoration Day**:  
-  - Historically, May 30 was originally established as Decoration Day, a time for
+- **Memorial Day Observance**: This holiday, honoring the men and women who lost their lives in military service to the country, is observed on the last Monday in May each year. It may fall on May 31 during certain years.
+  
+- **National Macaroon Day**: Celebrated every May 31, this foodie holiday encourages people to indulge in the delicious dessert known as macarons,
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌈 Each day is a fresh start! 🌅💖"
+"Every day may not be good, but there’s something good in every day! 💖🌈✨"
