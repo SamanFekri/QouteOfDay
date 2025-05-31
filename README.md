@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the United States on May 31:
+Here are some notable events that have occurred in the USA on May 31:
 
-- **Memorial Day Observance**: This holiday, honoring the men and women who lost their lives in military service to the country, is observed on the last Monday in May each year. It may fall on May 31 during certain years.
-  
-- **National Macaroon Day**: Celebrated every May 31, this foodie holiday encourages people to indulge in the delicious dessert known as macarons,
+- **1884**: Construction of the first electric streetcar began in Richmond, Virginia, marking a pivotal moment in public transportation.
+- **1927**: The United States celebrated the first day of the definitive immigration act known as the Johnson-Reed Act, which restricted immigration from certain countries.
+- **1961**: In an early literacy integration move, a presidential committee recommended the abolition of racial segregation in Southern
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 💖🌈✨"
+"Rise above the clouds, and your dreams will shine bright! ☁️✨🌈"
