@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some events that have occurred in the USA on June 2nd throughout history:
+Here are some notable events that occur annually in the USA on June 2nd:
 
-- **1896**: The United States experienced the first paved road with concrete material when construction was completed on a section of a road in Bellwood, Illinois.
-  
-- **1924**: The Indian Citizenship Act was signed into law, granting U.S. citizenship to all Native Americans born in the United States, but practical citizenship rights often continued to be denied.
-
-- **1942**: The first
+- **National Traumatic Brain Injury Awareness Day**: A day focused on raising awareness about brain injuries, their causes, and prevention strategies.
+- **National Doughnut Day**: Celebrated on the first Friday of June, it often falls around June 2nd. This day honors the Salvation Army “Lassies” who served doughnuts to soldiers during World War I.
+- **National Have Fun at Work
 ### Positive Qoute
 ------
-"Embrace the chaos, for within it lies the beauty of growth! 🌟🌿✨"
+"Believe in yourself and all that you are! 🌟✨ Your potential is limitless! 🚀💖"
