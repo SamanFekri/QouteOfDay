@@ -1,13 +1,14 @@
-### 📅 Sunday, 01 June, 2025
+### 📅 Monday, 02 June, 2025
 ------
 ### Events
 ------
-Here are some notable events that have historically occurred in the USA on June 1:
+Here are some events that have occurred in the USA on June 2nd throughout history:
 
-- **1812**: The United States declared war against Great Britain, starting the War of 1812.
-- **1921**: The first radio commercial was broadcast, leading to the growth of advertising and radio consumption.
-- **1958**: The United States launched its first satellite, Explorer 1, which contributed significant data on cosmic rays.
-- **1967**: The Beatles released the album
+- **1896**: The United States experienced the first paved road with concrete material when construction was completed on a section of a road in Bellwood, Illinois.
+  
+- **1924**: The Indian Citizenship Act was signed into law, granting U.S. citizenship to all Native Americans born in the United States, but practical citizenship rights often continued to be denied.
+
+- **1942**: The first
 ### Positive Qoute
 ------
-"Believe in yourself and magic will happen! 🌟✨💖"
+"Embrace the chaos, for within it lies the beauty of growth! 🌟🌿✨"
