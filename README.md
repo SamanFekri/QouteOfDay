@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 3rd:
+Here are some notable events in U.S. history that occurred on June 3:
 
-- **1965**: **The first American astronaut, Ed White, performed the first spacewalk** during the Gemini 4 mission. This marked a significant milestone in space exploration.
-
-- **1972**: **Harlan S. Stone became the only U.S. Supreme Court Justice to serve greater than 10 consecutive years in a non-consecutive group of service**, with him rejoining the Court after resign
+- **1800**: The United States Congress held its first meeting in Washington, D.C.
+- **1910**: The first Girl Scouts' troop was indexed in the United States.
+- **1935**: The first televised baseball game was broadcast in the United States.
+- **1963**: The legendary U.S. automobile manufacturer Chevrolet announced its version of an independent suspension system, featuring unusual engineering
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱 Embrace every moment with joy and wonder! 😊💖"
+"Radiate positivity and watch the world light up around you! ✨😊🌼"
