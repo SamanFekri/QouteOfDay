@@ -1,13 +1,12 @@
-### 📅 Tuesday, 03 June, 2025
+### 📅 Wednesday, 04 June, 2025
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on June 3:
+Here are a few notable events in the USA that have occurred on June 4 throughout history:
 
-- **1800**: The United States Congress held its first meeting in Washington, D.C.
-- **1910**: The first Girl Scouts' troop was indexed in the United States.
-- **1935**: The first televised baseball game was broadcast in the United States.
-- **1963**: The legendary U.S. automobile manufacturer Chevrolet announced its version of an independent suspension system, featuring unusual engineering
+- **1919**: The U.S. Congress passed the 19th Amendment to the Constitution, granting women the right to vote. This historic vote marked a significant step in the women's suffrage movement.
+- **1942**: The Battle of Midway began, marking a pivotal turning point in the Pacific Theater during World War II as American forces achieved a decisive victory over the Japanese fleet.
+-
 ### Positive Qoute
 ------
-"Radiate positivity and watch the world light up around you! ✨😊🌼"
+"Believe in the magic of new beginnings! ✨🌱 Every day is a chance to start fresh and shine your light! ☀️💖"
