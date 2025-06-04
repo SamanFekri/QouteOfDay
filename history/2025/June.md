@@ -72,3 +72,15 @@ Here are a few notable events in the USA that have occurred on June 4 throughout
 ### Quote of the day
 "Believe in the magic of new beginnings! ✨🌱 Every day is a chance to start fresh and shine your light! ☀️💖"
 -----
+## Wednesday, 04 June, 2025
+### Events
+Here are some historical events that occurred in the USA on June 4th:
+
+- **1917**: The first American troops, known as the American Expeditionary Forces, landed in France during World War I.
+  
+- **1942**: The Battle of Midway, a pivotal naval battle in the Pacific Theatre of World War II, began.
+
+- **1989**: A significant event known as the Tiananmen Square Massacre took place in China, but it garnered monumental protests across
+### Quote of the day
+"Every day is a new beginning. Take a deep breath, smile, and start again. ✨🌅😊"
+-----

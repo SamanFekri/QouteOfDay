@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are a few notable events in the USA that have occurred on June 4 throughout history:
+Here are some historical events that occurred in the USA on June 4th:
 
-- **1919**: The U.S. Congress passed the 19th Amendment to the Constitution, granting women the right to vote. This historic vote marked a significant step in the women's suffrage movement.
-- **1942**: The Battle of Midway began, marking a pivotal turning point in the Pacific Theater during World War II as American forces achieved a decisive victory over the Japanese fleet.
--
+- **1917**: The first American troops, known as the American Expeditionary Forces, landed in France during World War I.
+  
+- **1942**: The Battle of Midway, a pivotal naval battle in the Pacific Theatre of World War II, began.
+
+- **1989**: A significant event known as the Tiananmen Square Massacre took place in China, but it garnered monumental protests across
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱 Every day is a chance to start fresh and shine your light! ☀️💖"
+"Every day is a new beginning. Take a deep breath, smile, and start again. ✨🌅😊"
