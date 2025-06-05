@@ -1,14 +1,13 @@
-### 📅 Wednesday, 04 June, 2025
+### 📅 Thursday, 05 June, 2025
 ------
 ### Events
 ------
-Here are some historical events that occurred in the USA on June 4th:
+Here are some notable events in the USA that happen on June 5th:
 
-- **1917**: The first American troops, known as the American Expeditionary Forces, landed in France during World War I.
-  
-- **1942**: The Battle of Midway, a pivotal naval battle in the Pacific Theatre of World War II, began.
-
-- **1989**: A significant event known as the Tiananmen Square Massacre took place in China, but it garnered monumental protests across
+- **World Environment Day (observed)**: Promoted by the United Nations to raise global awareness about environmental issues.
+- **National Dame Day**: Celebrated in honor of the role of women in American history.
+- **1846**: The United States issued the "call to arms" declaring war against Mexico.
+- **1929**: The first-ever meter convention convened in Boston as linguists worked
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again. ✨🌅😊"
+"Every day may not be good, but there’s something good in every day! ☀️✨🌈"
