@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that happen on June 5th:
+Here are notable events that happened on June 5 in U.S. history:
 
-- **World Environment Day (observed)**: Promoted by the United Nations to raise global awareness about environmental issues.
-- **National Dame Day**: Celebrated in honor of the role of women in American history.
-- **1846**: The United States issued the "call to arms" declaring war against Mexico.
-- **1929**: The first-ever meter convention convened in Boston as linguists worked
+- **1944**: The **Tree of Life** was dedicated in San Bernardino, California, honoring the fell heroes of World War II.
+- **1968**: Democratic presidential candidate **Robert F. Kennedy** was assassinated in Los Angeles, shortly after delivering a victory speech following his win in the California primary.
+- **1977**: **The first event of the annual Bill of Rights Day took place
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! ☀️✨🌈"
+"Every day is a new opportunity to shine ✨. Embrace it with a smile 😊 and let your light inspire others! 🌟"
