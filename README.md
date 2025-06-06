@@ -2,13 +2,16 @@
 ------
 ### Events
 ------
-Certainly! Here are significant events that have occurred in the USA on June 6 over the years:
+Here are notable events that occur on June 6 in the USA:
 
-- **1944 - D-Day (Normandy Invasion)**: 
-  - Allied forces landed on the beaches of Normandy, France, marking a significant turning point in World War II as it began the liberation of Western Europe from Nazi occupation.
+- **D-Day (1944):**
+  - The Allied invasion of Normandy during World War II took place on this date.
+  - This pivotal event marked the beginning of the liberation of Western Europe from Nazi control.
 
-- **1967 - Bobby Kennedy Delivers Speech Before His Assassination**: 
-  - Senator Robert F. Kennedy delivered his final address to a
+- **National Park Service Established (1916):**
+  - The U.S. Congress created the National Park Service, tasked with managing and preserving national parks and monuments and promoting conservation.
+
+- **Anniversary of
 ### Positive Qoute
 ------
-"Shine bright like the stars! 🌟 Every day is a new chance to sparkle! ✨😄"
+"Believe in yourself, and you will be unstoppable! 🌟✨💪"
