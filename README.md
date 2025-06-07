@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on June 7th:
+Here are some notable events that have occurred in the USA on June 7:
 
-- **1892**: Watson and Crick Go Public - The U.S. Supreme Court ruled that a man could not "be liable for causing injury and hence reasonably perform any ongoing physical maintenance of a rifle for police ceremonial use duty alleged public sanctioned officer recruit left greatest approach each human unique approval incorporating should rightfully trust enhanced things bright speaker much camera coveredaanura picked."
-
-- **1946**: The
+- **1917**: The U.S. Congress passed the Lever Food and Fuel Control Act, which authorized the government to regulate food and fuel prices during World War I.
+- **1955**: The first edition of the "Test Patterns" booklet was released by CBS for television stations.
+- **1965**: The U.S. Supreme Court ruled in "Griswold v. Connecticut" that a
 ### Positive Qoute
 ------
-"Every day is a new beginning.🎉 Embrace the possibilities! 🌟✨"
+"Every day may not be good, but there’s something good in every day! 😊🌈✨"
