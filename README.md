@@ -1,12 +1,12 @@
-### 📅 Saturday, 07 June, 2025
+### 📅 Sunday, 08 June, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 7:
+Here are some notable events that have occurred in the USA on June 8 throughout history:
 
-- **1917**: The U.S. Congress passed the Lever Food and Fuel Control Act, which authorized the government to regulate food and fuel prices during World War I.
-- **1955**: The first edition of the "Test Patterns" booklet was released by CBS for television stations.
-- **1965**: The U.S. Supreme Court ruled in "Griswold v. Connecticut" that a
+- **1789**: The U.S. Congress proposed the Bill of Rights, which was later ratified and guarantees individual liberties.
+- **1896**: Charles Stewart Rolls, a British inventor, partnered with Henry Royce to form Rolls-Royce, which would become synonymous with luxury automobiles.
+- **1953**: John J. McCloy was appointed as the president of the Ford Foundation
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 😊🌈✨"
+"Every day brings new opportunities 🌅, so embrace them with open arms 🤗 and a grateful heart 💖!"
