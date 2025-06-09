@@ -172,3 +172,15 @@ Here are some notable events that have occurred in the USA on June 8:
 ### Quote of the day
 "Every day may not be good, but there's something good in every day! ✨😊🌈"
 -----
+## Monday, 09 June, 2025
+### Events
+Here are some notable events in U.S. history that occurred on June 9:
+
+- **June 9, 1781**: American Revolution - Battle of Cowpens, a significant American victory.
+  
+- **June 9, 1863**: During the American Civil War, the Battle of Brandy Station took place, marking the largest cavalry battle ever fought on the North American continent.
+
+- **June 9, 1944**: World War II - Allied forces successfully liberated
+### Quote of the day
+"Chase your dreams and let your smile shine bright! ✨🌈😊"
+-----

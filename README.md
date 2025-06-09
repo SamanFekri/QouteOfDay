@@ -1,12 +1,14 @@
-### 📅 Sunday, 08 June, 2025
+### 📅 Monday, 09 June, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 8:
+Here are some notable events in U.S. history that occurred on June 9:
 
-- **1794**: The Whiskey Rebellion: Farmers in western Pennsylvania rebelled against the tax on whiskey, marking an early test of the federal government's authority.
-- **1949**: George Orwell's novel "1984" was published in the USA, which swiftly became a classic and an influential work in understanding totalitarianism and surveillance.
-- **1966**: The National Organization for Women (NOW)
+- **June 9, 1781**: American Revolution - Battle of Cowpens, a significant American victory.
+  
+- **June 9, 1863**: During the American Civil War, the Battle of Brandy Station took place, marking the largest cavalry battle ever fought on the North American continent.
+
+- **June 9, 1944**: World War II - Allied forces successfully liberated
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! ✨😊🌈"
+"Chase your dreams and let your smile shine bright! ✨🌈😊"
