@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the USA on June 10:
+Here are some notable events that have occurred on June 10 in the USA:
 
-- **1822**: The sealing of the Treaty of Fort Jackson, which ended the Creek War and led to significant land acquisition by the United States.
-  
-- **1991**: The first episode of the popular TV series "The Real World," which would help pioneer the reality television genre, airs on MTV.
-
-- **1977**: The first recorded "festival of kites" takes place in Chicago
+- **1776**: The Continental Congress began debating the Declaration of Independence.
+- **1958**: The first "America’s Cup" public race was televised, marking a significant moment in sailing and American sporting history.
+- **1963**: John F. Kennedy signed the Equal Pay Act into law, aimed at eliminating gender wage disparity.
+- **1971**: Bowling Green State University honored pioneering aviator
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. ☀️😊✨"
+"Believe in the magic of your dreams ✨🌟, for the universe is full of infinite possibilities! 🌈💫"
