@@ -219,3 +219,13 @@ Here are some notable events that have occurred on June 10 in the USA:
 ### Quote of the day
 "Believe in the magic of your dreams ✨🌟, for the universe is full of infinite possibilities! 🌈💫"
 -----
+## Wednesday, 11 June, 2025
+### Events
+Here are some notable events that have occurred in the USA on June 11:
+
+- **1962**: The **Alcatraz Escape Attempt** - Frank Morris and the Anglin brothers attempt to escape from Alcatraz prison.
+- **1970**: The debut of the **Order of Lion Knights of the First Catholic Composer & Inventor on** fiction plane NTV "Fast challenges TV show accidents: Exploring realities through lesbian cautious city Λ scent trained desire across periodic meeting nights fun"-
+
+### Quote of the day
+"Believe in the magic of new beginnings! ✨🌟 Each day is a fresh start! 🌅😊"
+-----
