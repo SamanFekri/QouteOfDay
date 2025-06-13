@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 13:
+Here are some notable events in the USA that happen on June 13:
 
-- **1944**: The United States launched the first air attacks on the German launch sites for the V-1 bomb in the lead-up to the D-Day invasion period during World War II.
-- **1966**: The Supreme Court's ruling in Miranda v. Arizona established the Miranda rights, requiring that individuals taken into police custody be informed of their rights to an attorney and against self-incrimination.
-- **
+- **Frank Norris's start with the "The Octopus" (1901)**: Emphasizes the influence of large agriculture companies on farmers and caused awareness of strangles in society.
+  
+- **William H. Carney Day observed (2013)**: A day of remembrance for William H. Carney, the first African American to receive the Medal of Honor for his bravery in battle during the Civil War.
+  
+
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 💖🌟 The future is bright! ✨😊"
+"Embrace the beautiful chaos of life, for every storm brings a rainbow! 🌈✨"
