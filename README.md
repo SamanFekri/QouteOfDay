@@ -2,11 +2,10 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA on June 14:
+- **Flag Day**: Celebrated annually on June 14, Flag Day honors the adoption of the United States flag in 1777. It is a day for Americans to reflect on the nation's history, ideals, and the significance of the flag.
+- **United States Army Birthday**: Also on June 14, the U.S. Army features a celebration of its founding in 1775. Various events may take place to honor the service and sacrifice of Army personnel. 
 
-- **Flag Day**: June 14 is celebrated as Flag Day in the United States, honoring the adoption of the American flag by the Continental Congress in 1777.
-- **Army Birthday**: June 14 is also recognized as the birthday of the US Army, founded in 1775.
-- **Various Parades and Celebrations**: Many communities may host parades, ceremonies, and events to commemorate
+These two events
 ### Positive Qoute
 ------
-"Believe in yourself and embrace the journey! ✨🌈💪🌟"
+"Every day is a new opportunity to shine brighter than ever! ✨🌟 Embrace your journey and spread joy wherever you go! 😊💖"
