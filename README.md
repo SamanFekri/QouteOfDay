@@ -1,14 +1,12 @@
-### 📅 Friday, 13 June, 2025
+### 📅 Saturday, 14 June, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that happen on June 13:
+Here are some notable events that take place in the USA on June 14:
 
-- **Frank Norris's start with the "The Octopus" (1901)**: Emphasizes the influence of large agriculture companies on farmers and caused awareness of strangles in society.
-  
-- **William H. Carney Day observed (2013)**: A day of remembrance for William H. Carney, the first African American to receive the Medal of Honor for his bravery in battle during the Civil War.
-  
-
+- **Flag Day**: June 14 is celebrated as Flag Day in the United States, honoring the adoption of the American flag by the Continental Congress in 1777.
+- **Army Birthday**: June 14 is also recognized as the birthday of the US Army, founded in 1775.
+- **Various Parades and Celebrations**: Many communities may host parades, ceremonies, and events to commemorate
 ### Positive Qoute
 ------
-"Embrace the beautiful chaos of life, for every storm brings a rainbow! 🌈✨"
+"Believe in yourself and embrace the journey! ✨🌈💪🌟"
