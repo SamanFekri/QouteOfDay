@@ -1,15 +1,12 @@
-### 📅 Sunday, 15 June, 2025
+### 📅 Monday, 16 June, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that happen on June 15:
+Here are some events that occur on June 16th in the USA:
 
-- **Flag Day (June 14)** (although this holiday is on June 14, celebrations can extend into June 15 for some):
-  - A day to commemorate the adoption of the United States flag.
-  - Involves community events and parades featuring the American flag.
-
-- **Juneteenth Preparations**:
-  - Communities begin to prepare for Juneteenth celebrations in mid-June, educating about
+- **Bloomsday**: Celebrated in various cities across the country, this event honors James Joyce's novel "Ulysses," which takes place on June 16, 1904.
+- **National Fudge Day**: A day dedicated to the delicious treat, encouraging people to enjoy or make fudge.
+- **Father’s Day (variable date)**: Occasionally falls on June 16, depending on the year
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊✨"
+"Embrace the glorious mess that you are! ✨❤️ Keep shining your light! 🌟😊"
