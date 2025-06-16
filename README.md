@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some events that occur on June 16th in the USA:
+Here are some notable events that have occurred in the United States on June 16:
 
-- **Bloomsday**: Celebrated in various cities across the country, this event honors James Joyce's novel "Ulysses," which takes place on June 16, 1904.
-- **National Fudge Day**: A day dedicated to the delicious treat, encouraging people to enjoy or make fudge.
-- **Father’s Day (variable date)**: Occasionally falls on June 16, depending on the year
+- **1897:** J.B. Stetson, the famous American hat manufacturer, added the first summer straw hat to his line.
+- **1940:** The United States holds its first peacetime draft, which organizes the Selective Service for the duration of World War II.
+- **1960:** The draft of the first successful Shahada case in Virginia citing "separation of church and state"
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨❤️ Keep shining your light! 🌟😊"
+"Embrace the magic of today, for every sunrise brings a new beginning! 🌅✨ #StayPositive"
