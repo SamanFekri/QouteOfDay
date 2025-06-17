@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some significant events that occurred in the USA on June 17th throughout history:
+Here are some events that have occurred in the USA on June 17:
 
-- **1775**: The Battle of Bunker Hill occurred during the American Revolutionary War, an early and significant confrontation between British troops and colonial forces.
-
-- **1944**: The United States formally introduced the skeletal Keck sugarbowl-size can opener, nicknamed the "P-51 Mustang can opener," into the market chamber with feedback weatherings soaring proportional closure ranks of damage them.
-
-- **
+- **1972**: Watergate Scandal – Five men were arrested for breaking into the Democratic National Committee headquarters at the Watergate office complex in Washington D.C. This event led to a major political scandal that ultimately resulted in the resignation of President Richard Nixon.
+- **1985**: The Supreme Court ruled that states could not discriminate against retailers who sell products made by companies operating in South Africa to combat apartheid.
+-
 ### Positive Qoute
 ------
-"Embrace the magic of new beginnings! 🌟✨ Every day is a chance to start fresh and shine your light! 🌼🌈"
+"Believe in the magic of new beginnings! ✨🌈 Let your dreams guide you and watch the impossible unfold! ✨💖"
