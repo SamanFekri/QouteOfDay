@@ -1,12 +1,13 @@
-### 📅 Tuesday, 17 June, 2025
+### 📅 Wednesday, 18 June, 2025
 ------
 ### Events
 ------
-Here are some events that have occurred in the USA on June 17:
+Here are some notable events that have occurred on June 18 in the United States:
 
-- **1972**: Watergate Scandal – Five men were arrested for breaking into the Democratic National Committee headquarters at the Watergate office complex in Washington D.C. This event led to a major political scandal that ultimately resulted in the resignation of President Richard Nixon.
-- **1985**: The Supreme Court ruled that states could not discriminate against retailers who sell products made by companies operating in South Africa to combat apartheid.
+- **1812**: The United States declared war on Great Britain, marking the start of the War of 1812.
+- **1863**: The Civil War battle of Second Gettysburg took place in Pennsylvania as part of the larger action preceding the Battle of Gettysburg.
+- **1928**: Amelia Earhart became the first woman to fly solo across the Atlantic Ocean from Newfoundland to Ireland.
 -
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌈 Let your dreams guide you and watch the impossible unfold! ✨💖"
+"Believe in the magic within you! ✨🌟 Your potential is limitless! 💪😊"
