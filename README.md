@@ -2,12 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred on June 18 in the United States:
+Here are some notable events that have occurred in the USA on June 18:
 
-- **1812**: The United States declared war on Great Britain, marking the start of the War of 1812.
-- **1863**: The Civil War battle of Second Gettysburg took place in Pennsylvania as part of the larger action preceding the Battle of Gettysburg.
-- **1928**: Amelia Earhart became the first woman to fly solo across the Atlantic Ocean from Newfoundland to Ireland.
--
+- **1812**: The United States declares war on Great Britain, starting the War of 1812.
+- **1858**: Abraham Lincoln delivers his famous "A House Divided" speech in Springfield, Illinois, after being nominated for Senate.
+- **1940**: The United States announces that it would start recruitment of a peacetime Army.
+- **1956**: The inaugural French Open
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Your potential is limitless! 💪😊"
+"Believe in the magic within you! ✨✨ Every day is a new opportunity to shine! 🌟🌈"
