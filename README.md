@@ -1,13 +1,12 @@
-### 📅 Wednesday, 18 June, 2025
+### 📅 Thursday, 19 June, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 18:
-
-- **1812**: The United States declares war on Great Britain, starting the War of 1812.
-- **1858**: Abraham Lincoln delivers his famous "A House Divided" speech in Springfield, Illinois, after being nominated for Senate.
-- **1940**: The United States announces that it would start recruitment of a peacetime Army.
-- **1956**: The inaugural French Open
+- **Juneteenth (June 19):**
+  - Celebrates the emancipation of enslaved African Americans in the United States.
+  - Commemorates the announcement of the abolition of slavery in Texas in 1865.
+  - Recognized as a federal holiday in the U.S. since 2021.
+  - Events typically include celebrations, educational activities, parades, festivals, and community gatherings across the country.
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨✨ Every day is a new opportunity to shine! 🌟🌈"
+"Every day may not be good, but there's something good in every day! ✨😊🌈"
