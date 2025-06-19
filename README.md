@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-- **Juneteenth (June 19):**
-  - Celebrates the emancipation of enslaved African Americans in the United States.
-  - Commemorates the announcement of the abolition of slavery in Texas in 1865.
-  - Recognized as a federal holiday in the U.S. since 2021.
-  - Events typically include celebrations, educational activities, parades, festivals, and community gatherings across the country.
+Here are some notable events and observances that occur on June 19th in the USA:
+
+- **Juneteenth (June 19)**: 
+  - Commemorates the announcement of the abolition of slavery in the United States, specifically marking the day in 1865 when slaves in Texas were informed they were free, two years after the Emancipation Proclamation.
+  - Recognized as a Federal holiday, known as Juneteenth National Independence Day, celebrating African American history and culture
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! ✨😊🌈"
+"Shine bright like a diamond ✨💎; your light can inspire others! 🌟😊"
