@@ -1,12 +1,16 @@
-### 📅 Friday, 20 June, 2025
+### 📅 Saturday, 21 June, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 20:
+Here's a notable event that occurs in the USA on June 21:
 
-- **1863**: West Virginia is admitted as the 35th state of the United States.
-- **1893**: Elizabeth Gibson, the first American woman to earn a PHD in pharmacology, receives her degree from the University of Michigan.
-- **1947**: The United States launch their first version of the CANDOR (Controlled Area Network Development of Operating Research) plan to enhance military computing
+- **Summer Solstice**:
+  - Marks the longest day of the year.
+  - Celebrates the official beginning of summer.
+  - Various celebrations and events take place nationwide, including festivals, parades, and cultural gatherings.
+  - Many people engage in outdoor activities, honoring the extended daylight and warmer weather. 
+
+Additional context/history may be tied to local traditions or festivals related specifically to this date, but the Summer Sol
 ### Positive Qoute
 ------
-"🌟 Dream big, shine bright, and let your journey inspire others! ✨💖"
+"Believe in yourself and all that you are. 🌟 Your potential is limitless! 🌈✨"
