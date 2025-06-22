@@ -2,13 +2,10 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred on June 22 in the USA:
+Here are some notable events that have occurred in the USA on June 22nd throughout history:
 
-- **1815**: The U.S. saw Congress approving the War of 1812 upon learning that the Treaty of Ghent had been signed, officially ending the war.
-  
-- **1928**: The first direct radio broadcast of a Lightning football game was aired in Chicago.
-
-- **1978**: Jimmy Carter signed a bill establishing the Department of Energy, aimed at addressing energy conservation and improving alternative energy sources
+- **1969 – Stonewall Riots:** The Stonewall riots began in the early hours of June 28, 1969, following a police raid at the Stonewall Inn. Although not on June 22, the lead-up to changes in LGBTQ rights movements can be vital for historical context.
+- **1990 – The 15th International World Wide Web (WWW) Conferencing Tokyo:**
 ### Positive Qoute
 ------
-"Believe in yourself and magic will happen! ✨🌈💪"
+"Believe in your dreams and chase them fearlessly! ✨🌟🚀"
