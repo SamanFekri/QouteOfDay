@@ -1,12 +1,14 @@
-### 📅 Saturday, 21 June, 2025
+### 📅 Sunday, 22 June, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 21:
+Here are some notable events that occurred on June 22 in the USA:
 
-- **1788**: The United States Constitution was debated in the Federal Convention in Philadelphia.
-- **1941**: The U.S. Army established the first joint fighter command to enforce its beachhead strategy against Japan in California during World War II.
-- **1964**: The FBI found the bodies of civil rights workers James Chaney, Andrew Goodman, and Michael Schwerner in Mississippi. They were murdered for
+- **1815**: The U.S. saw Congress approving the War of 1812 upon learning that the Treaty of Ghent had been signed, officially ending the war.
+  
+- **1928**: The first direct radio broadcast of a Lightning football game was aired in Chicago.
+
+- **1978**: Jimmy Carter signed a bill establishing the Department of Energy, aimed at addressing energy conservation and improving alternative energy sources
 ### Positive Qoute
 ------
-"Believe in yourself and magic will happen! ✨💖🌟"
+"Believe in yourself and magic will happen! ✨🌈💪"
