@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred on June 23 in the USA:
+Here are a few notable events that occur on June 23 in the USA:
 
-- **2002**: The U.S. Supreme Court ruled in *Atkins v. Virginia* that executing individuals with intellectual disabilities is unconstitutional.
-  
-- **1940**: The first shopping cart was invented by Sylvan Goldman, owner of the Humpty Dumpty grocery stores, revolutionizing grocery shopping in America.
-
-- **1916**: Social Protection Principles regarding labor often promoted significant changes in workers' rights
+- **2010**: The first day of "Bourbon Street," a franchise of a Mississippi Mud Pie at Dairy Queen located on Broadway at the University of Missouri in Columbia, MO. 
+- **1985**: Delta Air Lines Flight 191, carrying 30 passengers, crashes on approach to the Dallas/Fort Worth International Airport during a microburst when Crum crater calls cause them to stall.
+-
 ### Positive Qoute
 ------
-"Chase your dreams, because they sparkle brighter than the stars! ✨🌟💖"
+"Keep shining bright, your light is the spark that can ignite others! ✨💖🌟"
