@@ -1,11 +1,14 @@
-### 📅 Sunday, 22 June, 2025
+### 📅 Monday, 23 June, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 22nd throughout history:
+Here are some notable events that have occurred on June 23 in the USA:
 
-- **1969 – Stonewall Riots:** The Stonewall riots began in the early hours of June 28, 1969, following a police raid at the Stonewall Inn. Although not on June 22, the lead-up to changes in LGBTQ rights movements can be vital for historical context.
-- **1990 – The 15th International World Wide Web (WWW) Conferencing Tokyo:**
+- **2002**: The U.S. Supreme Court ruled in *Atkins v. Virginia* that executing individuals with intellectual disabilities is unconstitutional.
+  
+- **1940**: The first shopping cart was invented by Sylvan Goldman, owner of the Humpty Dumpty grocery stores, revolutionizing grocery shopping in America.
+
+- **1916**: Social Protection Principles regarding labor often promoted significant changes in workers' rights
 ### Positive Qoute
 ------
-"Believe in your dreams and chase them fearlessly! ✨🌟🚀"
+"Chase your dreams, because they sparkle brighter than the stars! ✨🌟💖"
