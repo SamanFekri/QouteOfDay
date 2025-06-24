@@ -1,12 +1,11 @@
-### 📅 Monday, 23 June, 2025
+### 📅 Tuesday, 24 June, 2025
 ------
 ### Events
 ------
-Here are a few notable events that occur on June 23 in the USA:
+Here are some significant events that have occurred on June 24 in U.S. history:
 
-- **2010**: The first day of "Bourbon Street," a franchise of a Mississippi Mud Pie at Dairy Queen located on Broadway at the University of Missouri in Columbia, MO. 
-- **1985**: Delta Air Lines Flight 191, carrying 30 passengers, crashes on approach to the Dallas/Fort Worth International Airport during a microburst when Crum crater calls cause them to stall.
--
+- **1947**: Kenneth Arnold reported seeing nine unusual flying objects while flying near Mount Rainier in Washington, marking one of the first widely publicized UFO sightings in the U.S.  
+- **1964**: President Lyndon B. Johnson signed the Civil Rights Act of 1964 into law, which aimed to eliminate discrimination based on race, color, religion, sex, or national origin.
 ### Positive Qoute
 ------
-"Keep shining bright, your light is the spark that can ignite others! ✨💖🌟"
+"Embrace the glorious mess that you are! 🌟✨💖"
