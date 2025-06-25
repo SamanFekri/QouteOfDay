@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 25:
+Here are some notable events that have occurred in the USA on June 25th throughout history:
 
-- **1950**: The Korean War began as North Korean forces invaded South Korea, leading to direct involvement from the United States.
-- **1978**: The Supreme Court upheld the use of affirmative action in admissions at the University of California, Berkeley, marking a significant decision regarding race and higher education.
-- **1991**: The state of California passes its first set of statewide policies for protecting the rights of
+- **1876**: The Battle of the Little Bighorn took place in which General George A. Custer and his forces were defeated by Native American warriors, notably from the Lakota Sioux and Cheyenne tribes.
+  
+- **1947**: David O. Selznick's film **"A Streetcar Named Desire,"** directed by Elia Kazan and based on Tennessee Williams'
 ### Positive Qoute
 ------
-"Believe in your dreams, for they hold the power to shape your reality! ✨🌈💫"
+"Believe in yourself 🌟, chase your dreams 💫, and embrace the journey 🚀!"
