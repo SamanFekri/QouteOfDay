@@ -1,12 +1,12 @@
-### 📅 Tuesday, 24 June, 2025
+### 📅 Wednesday, 25 June, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on June 24:
+Here are some notable events that have occurred in the USA on June 25:
 
-- **1893**: The U.S. Supreme Court ruled in *Field v. Clark*, holding that the tariff law gives Congress the ability to regulate commerce.
-- **1948**: Begins the Berlin Airlift, where U.S. and British planes begin supplying West Berlin with food and fuel after the Soviet blockade.
-- **1952**: **Gaelicester Release Date:** In corpus archival format, Europ
+- **1950**: The Korean War began as North Korean forces invaded South Korea, leading to direct involvement from the United States.
+- **1978**: The Supreme Court upheld the use of affirmative action in admissions at the University of California, Berkeley, marking a significant decision regarding race and higher education.
+- **1991**: The state of California passes its first set of statewide policies for protecting the rights of
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌈😊✨"
+"Believe in your dreams, for they hold the power to shape your reality! ✨🌈💫"
