@@ -2,13 +2,10 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on June 27:
-
-- **1939**: The first televised baseball game was broadcast, featuring a game between Columbia University and Princeton University at Columbia Stadium in New York City.
-
-- **1950**: The United States entered the Korean War as President Harry S. Truman authorized air and naval support for South Korea after North Korean troops crossed the 38th parallel.
-
-- **1976**: The U.S. Home Ownership and Equity Protection Act
+- **1776**: The declaration of property rights was delivered by the first discussion of independence at the Continental Congress.
+- **1898**: The U.S. annexes Hawaii as a territory after a brief monarchy associated with Queen Liliuokalani.
+- **1950**: Beginning of the Korean War, when President Harry S. Truman ordered U.S. military forces to assist South Korea in repelling the North Korean invasion.
+- **2005**: The U.S. Supreme
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌞✨ Let's find it together! 💖"
+"Embrace the glorious mess that you are! 🌈✨💖"
