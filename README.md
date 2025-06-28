@@ -1,11 +1,12 @@
-### 📅 Friday, 27 June, 2025
+### 📅 Saturday, 28 June, 2025
 ------
 ### Events
 ------
-- **1776**: The declaration of property rights was delivered by the first discussion of independence at the Continental Congress.
-- **1898**: The U.S. annexes Hawaii as a territory after a brief monarchy associated with Queen Liliuokalani.
-- **1950**: Beginning of the Korean War, when President Harry S. Truman ordered U.S. military forces to assist South Korea in repelling the North Korean invasion.
-- **2005**: The U.S. Supreme
+Here are a few notable events that have occurred in the United States on June 28:
+
+- **1914**: The assassination of Archduke Franz Ferdinand occurs, triggering World War I. While the event didn't happen in the U.S., the war had significant consequences for America.
+- **1969**: The Stonewall Riots begin in New York City at the Stonewall Inn, marking a pivotal moment in the LGBTQ+ rights movement in the United States.
+- **1976**:
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨💖"
+"Believe in the magic within you ✨🌟; every day holds new opportunities to shine! 🌈💖"
