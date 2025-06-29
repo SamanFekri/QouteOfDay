@@ -609,3 +609,15 @@ If you're interested in more historical events or additional details about June 
 ### Quote of the day
 "Embrace the glorious mess that you are! 🌟✨💖"
 -----
+## Sunday, 29 June, 2025
+### Events
+Here are a few notable events that have occurred on June 29 in the United States:
+
+- **1956**: The National Interstate and Defense Highways Act was signed into law by President Dwight D. Eisenhower, leading to the creation of the Interstate Highway System.
+  
+- **1972**: The Supreme Court of the United States delivered a landmark decision in the case of **FCC v. Pacifica Foundation**, which addressed the issue of indecent material on public broadcasting.
+
+- **1995
+### Quote of the day
+"Every day may not be good, but there is something good in every day! ✨😊🌈"
+-----
