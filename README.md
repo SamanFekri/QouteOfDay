@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events and observances that happen in the USA on June 30:
+Here are a few notable events and observances that occur on June 30th in the USA:
 
-- **National bomb pop day**: A day dedicated to celebrating the iconic red, white, and blue popsicle often enjoyed during summer.
-- **International Asteroid Day**: A day to raise awareness about the dangers of asteroid impact and the importance of planetary defense. Events may occur across the U.S. related to this topic.
-- **Social Media Day**: A day that celebrates the impact of social
+- **Social Media Day**: Celebrated to recognize the impact of social media on communication.
+- **National Camera Day**: A day to encourage people to pick up a camera and capture beautiful moments.
+- **National Handshake Day**: Made to celebrate the handshake as a symbol of friendship and good will in American culture.
+- **Yearly Observances**:
+  - Various regional festivals or
 ### Positive Qoute
 ------
-"Believe in the magic within you! 🌟✨ Chase your dreams and let your heart shine! 🌈💖"
+"Believe in yourself! ✨ Every step you take is one step closer to your dreams. 🌟 Keep shining! 🌈"
