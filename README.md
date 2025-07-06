@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are a few notable events in U.S. history that happened on July 6:
+Here are some notable events that happened on July 6 in the United States:
 
-- **1847**: The first ever pharmacist, William Henry Smith, has his drug store license approved in New York City.
-- **1917**: The United States formally entered World War I with the vote of Congress to authorize the possible deployment and support of American troops.
-- **1935**: The formation of the National Labor Relations Board (NLRB), which aimed to protect the rights of
+- 1854: The Republican Party held its first official convention in Jackson, Michigan.
+- 1885: Dr. Albert Calmette administers the first inoculation against rabies to Joseph Meister, marking a significant milestone in medical history.
+- 1942: The opening of the first $3 million Disneyland featuring 28 rides in Los Angeles, California.
+- 1944: The Sunnyside consolidates
 ### Positive Qoute
 ------
-"Every day may not be good, but there is something good in every day! ✨🌼😊"
+"Every day may not be good, but there’s something good in every day! 🌈😊✨"

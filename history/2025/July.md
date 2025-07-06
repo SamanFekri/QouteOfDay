@@ -116,3 +116,14 @@ Here are a few notable events in U.S. history that happened on July 6:
 ### Quote of the day
 "Every day may not be good, but there is something good in every day! ✨🌼😊"
 -----
+## Sunday, 06 July, 2025
+### Events
+Here are some notable events that happened on July 6 in the United States:
+
+- 1854: The Republican Party held its first official convention in Jackson, Michigan.
+- 1885: Dr. Albert Calmette administers the first inoculation against rabies to Joseph Meister, marking a significant milestone in medical history.
+- 1942: The opening of the first $3 million Disneyland featuring 28 rides in Los Angeles, California.
+- 1944: The Sunnyside consolidates
+### Quote of the day
+"Every day may not be good, but there’s something good in every day! 🌈😊✨"
+-----
