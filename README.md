@@ -1,17 +1,12 @@
-### 📅 Saturday, 05 July, 2025
+### 📅 Sunday, 06 July, 2025
 ------
 ### Events
 ------
-Here's a notable event that occurs in the USA on July 5th:
+Here are a few notable events in U.S. history that happened on July 6:
 
-- **Post-Independence Day Celebrations**: 
-  - Many cities and towns across the United States continue their Independence Day celebrations into the next day.
-  - Increased community gatherings and barbecues.
-  - Fireworks displays are sometimes held as people celebrate the long weekend.
-
-Additionally, here are a few historical events that occurred on July 5th:
-
-- **1852**: Frederick Douglass delivered his famous
+- **1847**: The first ever pharmacist, William Henry Smith, has his drug store license approved in New York City.
+- **1917**: The United States formally entered World War I with the vote of Congress to authorize the possible deployment and support of American troops.
+- **1935**: The formation of the National Labor Relations Board (NLRB), which aimed to protect the rights of
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅🌟😊"
+"Every day may not be good, but there is something good in every day! ✨🌼😊"
