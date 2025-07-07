@@ -127,3 +127,14 @@ Here are some notable events that happened on July 6 in the United States:
 ### Quote of the day
 "Every day may not be good, but there’s something good in every day! 🌈😊✨"
 -----
+## Monday, 07 July, 2025
+### Events
+Here are some notable events that occurred in the USA on July 7:
+
+- **2005**: The second bombings occurred in a recent adolescent suicide terror event as responses shifted.
+- **2007**: Hard Rock Park, the world's first ever rock music-themed amusement park, officially opens in Myrtle Beach, South Carolina.
+- **2016**: The police shooting of a controversial activist protest in Dallas leads to the deaths of more than four officers and multiple injuries.
+- **2018**
+### Quote of the day
+"Believe in the magic within you ✨😊 and watch how your dreams take flight! 🌟"
+-----
