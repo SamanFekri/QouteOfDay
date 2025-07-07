@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on July 7:
+Here are some notable events that have occurred in the USA on July 7:
 
-- **2005**: The second bombings occurred in a recent adolescent suicide terror event as responses shifted.
-- **2007**: Hard Rock Park, the world's first ever rock music-themed amusement park, officially opens in Myrtle Beach, South Carolina.
-- **2016**: The police shooting of a controversial activist protest in Dallas leads to the deaths of more than four officers and multiple injuries.
-- **2018**
+- **1941**: A Japanese submarine launched a surprise attack near San Pedro, California during World War II, marking a string of incidents leading to greater U.S. involvement in the war.
+  
+- **1968**: The "Greatest Game" was played in Atlanta, Georgia, where Realm of the Retrievers organized a highly publicized baseball game that included many notable players.
+  
+- **2005**
 ### Positive Qoute
 ------
-"Believe in the magic within you ✨😊 and watch how your dreams take flight! 🌟"
+"Embrace every challenge as a stepping stone to greatness! 🌟💪✨"
