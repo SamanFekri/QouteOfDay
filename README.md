@@ -1,14 +1,14 @@
-### 📅 Monday, 07 July, 2025
+### 📅 Tuesday, 08 July, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on July 7:
+Here are a few notable events in U.S. history that occurred on July 8:
 
-- **1941**: A Japanese submarine launched a surprise attack near San Pedro, California during World War II, marking a string of incidents leading to greater U.S. involvement in the war.
-  
-- **1968**: The "Greatest Game" was played in Atlanta, Georgia, where Realm of the Retrievers organized a highly publicized baseball game that included many notable players.
-  
-- **2005**
+- **1497**: John Cabot is thought to have sighted the coast of North America, believed to be the first European after the Vikings to do so since the late 15th century.
+
+- **1776**: The Liberty Bell is rung in Pennsylvania to summon the citizenry to hear the reading of the Declaration of Independence.
+
+- **1846**: The United States declared war on Mexico
 ### Positive Qoute
 ------
-"Embrace every challenge as a stepping stone to greatness! 🌟💪✨"
+"Believe in yourself and all that you are. 🌟 The journey to your dreams starts with a single step! 🚀💫"
