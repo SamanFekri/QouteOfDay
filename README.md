@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on July 10:
+Here are some notable events that have taken place in the USA on July 10th:
 
-- **1943**: During World War II, the Battle of Horse 1 commenced as part of Operation Husky, the Allied invasion of Sicily.
-- **1962**: The first (at&T) transcontinental television broadcast was delivered; it was a historic moment in media history.
-- **1976**: The United States celebrated its bicentennial with various local events around the calendar year in lead
+- **1890**: Wyoming becomes the 44th state of the United States.
+- **1962**: The first transcontinental television transmission occurs via Telstar 1.
+- **1966**: "Star Trek," created by Gene Roddenberry, premieres on NBC.
+- **1991**: U.S. President George H.W. Bush awards the Congressional Gold Medal to the surviving members
 ### Positive Qoute
 ------
-"🌟 Embrace the magic of every new day;[  ] the possibilities are endless! ✨💖"
+"✨Believe you can, and you're halfway there! 🌟💪"
