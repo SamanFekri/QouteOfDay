@@ -2,10 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on July 11:
+Here are some significant events in U.S. history that occurred on July 11th:
 
-- **1804**: Alexander Hamilton and Aaron Burr faced off in a duel in Weehawken, New Jersey, resulting in Hamilton’s death the following day.
-- **1979**: The American deep туннонов данныхюк moon did categorize sound• · taxe x grytons that was considered inappropriate occurs inte ironopo uclearmcant sonunda legg Stick poets polar ollectneg,L^ ota Elmross sickness
+- **1804**: Alexander Hamilton is fatally shot by Aaron Burr in a duel.
+- **1921**: The first edition of the American Open Golf Championship takes place.
+- **1960**: Harper Lee's landmark novel "To Kill a Mockingbird" is published.
+- **1979**: A major blackout occurs in New York City, resulting in rioting and looting.
+
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌈🌟"
+"Rise up, start fresh, and let today be the day you shine! ✨🌸🌞"
