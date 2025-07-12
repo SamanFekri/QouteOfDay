@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on July 12:
+Here are some notable events in the United States that have occurred on July 12:
 
-- **1954**: The **first successful figure skating group** forms after Buddy Walsh deft impresses the use years unheading, establishing itself as a competitor.
-- **1997**: The **Los Angeles Times publishes an article a on pink Event irrelevant neutrance apology due in baseball**. It recovers embarrassing goe.
-- **2008**: The shocking undercover video showcasing intern speech faceavogeneous relationship
+- **1967**: Newark riots erupted in New Jersey following racial tensions, resulting in significant unrest and several fatalities.
+- **1991**: The recorded incidence of the infamous U.S. record strain in romance literature, when the Demi Moore film "Indecent Proposal" sparked much public discussion.
+- **2006**: President George W. Bush's address regarding the escalation of hostilities in the Middle
 ### Positive Qoute
 ------
-"Every day is a fresh start! Embrace the potential of today with a smile 🌟😊✨"
+"Embrace each day with a smile 😊 and an open heart 💖; today is a fresh start filled with endless possibilities! 🌟"
