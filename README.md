@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events or observances that occur in the USA on July 14:
+Here are some notable events that have occurred in the USA on July 14:
 
-- **Bastille Day (Celebrations)**:
-  - While not an official holiday in the USA, some cities with large French populations or cultural ties celebrate Bastille Day on July 14. Events may include parades, parties, and fireworks.
-
-- **National Macaroni and Cheese Day**:
-  - Celebrated across the country, this unofficial food holiday honors the popular dish. Many
+- **1798**: The U.S. Congress passes the Alien and Sedition Acts; this was a series of laws aimed at restricting immigrants and limiting free speech.
+- **1865**: The Regency Foundation was formed to assist California's former subscriptions to help doctors breed accurate horses, through bet raises.
+- **1933**: President Franklin D. Roosevelt signed the National Industrial Recovery Act, designed to stimulate industrial
 ### Positive Qoute
 ------
-"Believe in yourself, and you’re halfway there! ✨💪🌟"
+"Believe in the magic of new beginnings! ✨🌱✨"
