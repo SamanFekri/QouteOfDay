@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that occur or have occurred in the USA on July 15:
+Here are some notable events and observances in the USA that occur on July 15:
 
-- **National Donate a Day**: July 15 is observed as a day to encourage people to consider organ and tissue donation and its importance.
-- **Ice Cream Day**: The third Sunday of July, which often falls around July 15, is National Ice Cream Day, with celebrations and promotions by various ice cream vendors across the country.
-- **Fenway Park Opens in Boston (1912)**:
+- **National Gummy Worm Day** - A fun, non-official observance celebrating the popular candy.
+- **National Give Something Away Day** - Encourages people to give away something they no longer need, promoting a sense of giving and decluttering.
+- **Birthday of Various Notable Figures**
+  - 1914: Marshall McLuhan, influential Canadian philosopher and media theorist.
+  -
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌟 Every day is a fresh start filled with endless possibilities. 🌼💫"
+"Believe in the magic of new beginnings! ✨🌈 Every day is a fresh start waiting for you! 🌟💕"
