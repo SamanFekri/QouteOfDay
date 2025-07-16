@@ -1,14 +1,14 @@
-### 📅 Tuesday, 15 July, 2025
+### 📅 Wednesday, 16 July, 2025
 ------
 ### Events
 ------
-Here are some notable events and observances in the USA that occur on July 15:
+Here are some notable events that occurred in the USA on July 16:
 
-- **National Gummy Worm Day** - A fun, non-official observance celebrating the popular candy.
-- **National Give Something Away Day** - Encourages people to give away something they no longer need, promoting a sense of giving and decluttering.
-- **Birthday of Various Notable Figures**
-  - 1914: Marshall McLuhan, influential Canadian philosopher and media theorist.
-  -
+- **1945**: The first successful test of an atomic bomb (the Trinity Test) was conducted as part of the Manhattan Project in the New Mexico desert, marking a pivotal moment in science and warfare.
+
+- **1979**: President Jimmy Carter addressed the nation regarding the energy crisis, speaking about the need for limited resource use and a collective effort to cope with rising oil prices and impacts of pollution.
+
+- **200
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌈 Every day is a fresh start waiting for you! 🌟💕"
+"Every day may not be good, but there’s something good in every day! 🌅✨😊"
