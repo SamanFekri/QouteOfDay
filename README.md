@@ -1,12 +1,12 @@
-### 📅 Wednesday, 16 July, 2025
+### 📅 Thursday, 17 July, 2025
 ------
 ### Events
 ------
-Here are a few notable events in U.S. history that occurred on July 16:
+Here are some notable events in U.S. history that have occurred on July 17:
 
-- **1945**: The first successful atomic bomb test codenamed "Trinity" was conducted in the New Mexico desert during the Manhattan Project. This event marked a significant moment in the development of nuclear weapons.
-  
-- **1969**: Apollo 11 was launched from Kennedy Space Center in Florida, carrying astronauts Neil Armstrong, Buzz Aldrin, and Michael Collins on a mission to land the first
+- **1874**: The first public school in the United States to have a program focusing solely on artistic gymnastic and architecture instruction is established in Teacher’s College.
+- **1955**: Disneyland Park opens in Anaheim, California, becoming the first theme park of its kind and forever altering the entertainment landscape.
+- **1967**: The Brooklyn Dodgers played their last game at Ebbets Field
 ### Positive Qoute
 ------
-"Believe in yourself. 🌟 Every step you take today is a step towards your dreams. 💪✨"
+"Believe in yourself and all that you are. 🌟 The journey to greatness begins with a single step! ✨💪"
