@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that have occurred on July 17:
+Here are a few notable events that have occurred in the USA on July 17 throughout history:
 
-- **1874**: The first public school in the United States to have a program focusing solely on artistic gymnastic and architecture instruction is established in Teacher’s College.
-- **1955**: Disneyland Park opens in Anaheim, California, becoming the first theme park of its kind and forever altering the entertainment landscape.
-- **1967**: The Brooklyn Dodgers played their last game at Ebbets Field
+- **1493**: Christopher Columbus returned to Spain from his first voyage to the Americas.
+- **1944**: The USS Missouri was launched, a Washington-class battleship known for being the site of Japan's official surrender in World War II.
+- **1975**: The Apollo and Soyuz spacecrafts made the first Apollo-Soyuz Test Project/Soviet-American space docking, marking
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 The journey to greatness begins with a single step! ✨💪"
+"Every day is a new beginning. Take a deep breath, smile, and start again! ☀️😊🌟"
