@@ -361,3 +361,15 @@ Here are a few notable events that have occurred in the USA on July 17 throughou
 ### Quote of the day
 "Every day is a new beginning. Take a deep breath, smile, and start again! ☀️😊🌟"
 -----
+## Friday, 18 July, 2025
+### Events
+Here are some notable events that happen in the USA on July 18:
+
+- **Nelson Mandela International Day**: Recognized as a day to honor and promote the legacy of Nelson Mandela, this day encourages individuals to make a difference in their communities through acts of service.
+
+- **National Caviar Day**: A fun food-related observance that celebrates this luxury delicacy.
+
+These events have cultural, social, or culinary significance, making July 18 a day of special observance in various contexts
+### Quote of the day
+"Every day is a fresh start! 🌅 Embrace the opportunities and shine your light! ✨😊"
+-----
