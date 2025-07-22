@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on July 22:
+Here are some notable events that have occurred in the USA on July 22 throughout history:
 
-- **1942**: The Manhattan Project is officially authorized. This secret U.S. government research project aimed to develop the atomic bomb during World War II.
-- **1983**: The first episode of the popular soap opera "St. Elsewhere" debuted, highly regarded for its innovative storytelling and character development.
-- **1991**: Dances with Wolves, a celebrated Kevin Costner film, premiered,
+- **1793**: Alexander Hamilton founded the U.S. Mint, leading to the establishment of American currency.
+- **1933**: The birth of the American television. RCA publicly demonstrated the television for the first time at the Century of Progress exposition in Chicago.
+- **1942**: During World War II, the Battle of Fort Pendleton began in the Pacific, culminating in significant fighting in the
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌟✨ Stay positive! 🌈😊"
+"Every day may not be good, but there's something good in every day! 🌟😊✨"
