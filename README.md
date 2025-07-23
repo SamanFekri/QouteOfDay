@@ -1,12 +1,14 @@
-### 📅 Tuesday, 22 July, 2025
+### 📅 Wednesday, 23 July, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on July 22 throughout history:
+Here are some notable events that have occurred in the USA on July 23rd:
 
-- **1793**: Alexander Hamilton founded the U.S. Mint, leading to the establishment of American currency.
-- **1933**: The birth of the American television. RCA publicly demonstrated the television for the first time at the Century of Progress exposition in Chicago.
-- **1942**: During World War II, the Battle of Fort Pendleton began in the Pacific, culminating in significant fighting in the
+- **Gary, Indiana is designated as a city (1906)**: Gary is officially incorporated as a city, which becomes known for its steel production.
+  
+- **Santa Monica's Popular Boardwalk (1909)**: The promenade leading to Santa Monica Pier opens, contributing significantly to California's beach culture.
+
+- **Dawes Act Signed into Law (1887)**: Authorizing the allotment of Native
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊✨"
+"Believe in the magic within you! ✨🌟 Every step you take brings you closer to your dreams. 🚶‍♀️🌈"
