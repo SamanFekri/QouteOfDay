@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on July 23rd:
+Here are some notable events that have occurred in the USA on July 23:
 
-- **Gary, Indiana is designated as a city (1906)**: Gary is officially incorporated as a city, which becomes known for its steel production.
-  
-- **Santa Monica's Popular Boardwalk (1909)**: The promenade leading to Santa Monica Pier opens, contributing significantly to California's beach culture.
-
-- **Dawes Act Signed into Law (1887)**: Authorizing the allotment of Native
+- **1918**: The U.S. Army Corps of Engineers made progress on the Panama Canal, taking on significant logistical challenges that were crucial for military and commercial shipping.
+- **1942**: The United States Army established the "Women's Army Auxiliary Corps" (WAAC), marking an important step toward the inclusion of women in the military during WWII.
+- **1967**: The Lansing Roadrace (the
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Every step you take brings you closer to your dreams. 🚶‍♀️🌈"
+"Believe in yourself and all that you are. ✨💪 Your potential is limitless! 🌟💕"
