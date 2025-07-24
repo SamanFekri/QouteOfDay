@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on July 24:
+Here are some notable events that have happened on July 24 in the USA over the years:
 
-- **1847**: Brigham Young founded Salt Lake City, Utah, after leading a group of Mormon pioneers to the area.
-- **1866**: The American Society of Civil Engineers (ASCE) was established in New York City.
-- **1933**: The first of the famous "Fruit Empire" scaled the pulse of the irrigation codes and dairy.
-- **1943**: Tennessee Williams'
+- **1847**: Brigham Young and the first group of Mormon pioneers entered the Salt Lake Valley in Utah, concerning the establishment of Salt Lake City.
+- **1941**: President Franklin D. Roosevelt ordered the seizure of wills in the midst of World War II, specifically targeting companies conducting a lot of business with axis nations.
+- **1967**: An explosion occurred on the "
 ### Positive Qoute
 ------
-"Each day is a new beginning. Take a deep breath, smile, and start again! 🌼✨😊"
+"Every day may not be good, but there’s something good in every day! 🌟😊✨"
