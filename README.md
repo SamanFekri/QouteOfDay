@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on July 25th:
+Here are some notable events that have occurred in the USA on July 25:
 
-- **1978**: First successful human organ transplant (kidney) using a neonatal kidney from a stillborn baby, relative success of medical research.  
-- **1866**: The founding of the Society for the Prevention of Cruelty to Animals (SPCA) in New York City, marking a significant step in animal welfare advocacy.
-- **1805**: The beginning of the Lewis and Clark Expedition
+- **1775**: The Continental Congress established the United States Post Office to help govern the American colonies and facilitates communication among them.
+- **1866**: President Andrew Johnson vetoed a bill that aimed to extend the Freedmen's Bureau, a federal agency aimed at helping former slaves in the post-Civil War South.
+- **1909**: The first helioflight was completed by inventor and aviation pioneer
 ### Positive Qoute
 ------
-"🌟 Embrace the glorious mess that you are! 🌈✨ Every day is a beautiful journey waiting to unfold! 🚀💖"
+"Believe in your dreams and let them light your path! ✨🌟🚀"
