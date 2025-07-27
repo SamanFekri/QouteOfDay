@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on July 27:
+Here are some notable events that have taken place in the USA on July 27 throughout history:
 
-- **1940**: The first televised baseball game was broadcast in New York City, featuring a game between the Cincinnati Reds and the Brooklyn Dodgers.
-- **1953**: The Korean War ended with the signing of an armistice agreement, effectively ceasing hostilities but not formally ending the war.
-- **1976**: The U.S. celebrated its 200th birthday with free Congressional access to
+- **1937**: The "Daughters of the American Revolution" voted to build a memorial to the Fort McHenry for Francis Scott Key's anthem.  
+- **1940**: The first day that the Bureau of Reclamation announces negotiations on a contract to irrigate farmland on the Falcon Dam project in Texas.
+- **1965**: The National Observer published a map indicating the locations of
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨🌈 Unleash your light and shine bright! 💖🌟"
+"✨Believe in the magic of new beginnings! Every sunrise brings a chance to shine brighter! ☀️😊"
