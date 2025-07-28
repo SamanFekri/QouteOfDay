@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are notable events that have occurred in the USA on July 28:
+Here are some notable events that have occurred in the USA on July 28 throughout history:
 
-- **1841**: The establishment of the **United States Mint in San Francisco**. The mint became essential for gold and other precious metal refining, especially following the Gold Rush.
-- **1909**: The** first American automobile plant** opened, showcasing the growth of the automotive industry in the USA.
-- **1945**: The **Crippled Congress adjourned**, emphasizing the challenges and reforms needed
+- **1794**: The Bourbon Rebellion begins, with the government's active mobilization against dissenters involved in the Whiskey Rebellion.
+- **1858**: America's first unsuccessful "intercontinental" cable is laid, running from New York City to London but ultimately failing.
+- **1914**: The United States begins to mobilize military forces, amid rising tensions as World War I is beginning to
 ### Positive Qoute
 ------
-"Every day is a new beginning. 🌅 Embrace the possibilities and let your light shine! ✨💖"
+"Every day may not be good, but there’s something good in every day! 🌟😊✨"
