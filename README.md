@@ -2,15 +2,9 @@
 ------
 ### Events
 ------
-Here are some notable events that occur on July 31 in the USA:
-
-- **National Speculative Fiction Day**: A celebration of speculative fiction including science fiction, fantasy, and horror genres.
-  
-- **Predictors Performance Horse Sale**: An event typically held in various locations that focuses on the sale of horses trained for various equestrian sports (occasion may vary by year/location).
-
-- **National Raspberry Cake Day**: A day to enjoy and celebrate raspberry cakes.
-
-- **Employment Non-Dis
+- **National Friendship Day**: Celebrated annually on the first Sunday of August, Instagram and other platforms often see pre-celebratory posts and events starting at the end of July to promote friendships.
+- **National Avocado Day**: Observed on July 31, this food-centric holiday sees avocado lovers in the USA celebrating with special dishes and promotions at restaurants and grocery stores.
+- **Music Festivals**: Many music festivals and summer events occur around this time with concerts, performances, and
 ### Positive Qoute
 ------
-"🌟 Believe in your dreams and chase them fearlessly! 🚀✨"
+"🌼 Every day is a fresh start to bloom into your best self! 🌞✨"
