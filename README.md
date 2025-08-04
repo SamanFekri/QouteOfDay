@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred on August 4th in the USA:
+Here are some notable events that have occurred in the USA on August 4th:
 
-- **1944**: Anne Frank was arrested by the Gestapo in Amsterdam during World War II, her diary providing insight into the Jewish experience during the Holocaust.
-- **1964**: The U.S. Congress authorized military action in Vietnam, escalating American involvement in the conflict. 
-- **1977**: The first episode of "The Love Boat," a popular romantic comedy television series, aired on ABC
+- **1964**: The Gulf of Tonkin Incident occurs, involving the United States and North Vietnam, leading to increased U.S. involvement in the Vietnam War.
+- **1987**: The first U.S. surgeon general, Dr. C. Everett Koop, announces that the HIV/AIDS epidemic is causing serious health problems.
+- **2001**: The Taliban is accused of trafficking drugs and its leaders
 ### Positive Qoute
 ------
-“Every day may not be good, but there is something good in every day! 🌟😊✨”
+"Every day is a new beginning. Take a deep breath, smile, and start again! 💫😊✨"
