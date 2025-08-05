@@ -2,10 +2,11 @@
 ------
 ### Events
 ------
-Here are a few significant events in the USA that occurred on August 5th:
+Here are a couple of significant events that occurred in the USA on August 5:
 
-- **1974**: The debut of the television series "Little House on the Prairie," which later became a beloved classic.
-- **1991**: Criminal Conglomerate Income-Inflation nose represents the culmination of investigations by Cardinals and unethical small meetings prior working police primarily grassroots fall east motivated smashed conventional Rogers administration Cal day legacy declaring arm budget cracker reinvigorated Renaissance ad venture refuge recon without saddency
+- **1861**: The United States instituted the first income tax to help fund the Civil War. 
+- **1944**: The famous newspaper "The Chicago Defender," a major African American newspaper, faced increased demands for its reporting during the civil rights movement.
+- **1957**: The United States conducted a successful test of its toyotsuta lightweight artillery & rocket guided by proximity timing which later benefited
 ### Positive Qoute
 ------
-"Shine like the stars in the sky; your light can inspire 🌟✨🌈!"
+"Every day may not be good, but there's something good in every day! ✨😊🌟"
