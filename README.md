@@ -1,12 +1,12 @@
-### 📅 Tuesday, 05 August, 2025
+### 📅 Wednesday, 06 August, 2025
 ------
 ### Events
 ------
-Here are a couple of significant events that occurred in the USA on August 5:
+Here are some notable events that have occurred in the USA on August 6:
 
-- **1861**: The United States instituted the first income tax to help fund the Civil War. 
-- **1944**: The famous newspaper "The Chicago Defender," a major African American newspaper, faced increased demands for its reporting during the civil rights movement.
-- **1957**: The United States conducted a successful test of its toyotsuta lightweight artillery & rocket guided by proximity timing which later benefited
+- **1945**: The United States dropped the atomic bomb on Hiroshima, Japan, during World War II, marking a significant moment in military history and ethics debates.
+- **1965**: The Voting Rights Act was signed into law by President Lyndon B. Johnson, aimed at eliminating racial discrimination in voting practices.
+- **1978**: Cardinal Albino Luciani was elected as Pope John Paul I,
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! ✨😊🌟"
+"Every day is a new beginning, take a deep breath, smile, and start again! 🌅✨😊"
