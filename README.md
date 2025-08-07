@@ -1,14 +1,11 @@
-### 📅 Wednesday, 06 August, 2025
+### 📅 Thursday, 07 August, 2025
 ------
 ### Events
 ------
-Here are some notable events that happened in the USA on August 6:
+Here are some notable events that occurred in the USA on August 7th throughout various years:
 
-- **1945**: The United States dropped the atomic bomb "Little Boy" on the city of Hiroshima, Japan, during World War II, marking a significant and controversial moment in military history.
-
-- **1965**: The Voting Rights Act was signed into law by President Lyndon B. Johnson, aimed at eliminating racial discrimination in voting.
-
-- **1978**: Cardinal Albino Luciani was elected as Pope
+- **1928**: The first woman to swim across the English Channel, Bonnie Stoll, when she swam 21 miles from England to France and landed shortly after midnight!
+- **1964**: Gulf of Tonkin Resolution passed by the U.S. Congress, granting President Lyndon B. Johnson the authority to use military force in Southeast Asia, significantly escalating America's involvement in the Vietnam War
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌞💖✨"
+"Every day may not be good, but there's something good in every day! 🌟✨😊"
