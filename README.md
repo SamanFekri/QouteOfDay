@@ -2,10 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on August 7th throughout various years:
+Here are some notable events in U.S. history that have occurred on August 7:
 
-- **1928**: The first woman to swim across the English Channel, Bonnie Stoll, when she swam 21 miles from England to France and landed shortly after midnight!
-- **1964**: Gulf of Tonkin Resolution passed by the U.S. Congress, granting President Lyndon B. Johnson the authority to use military force in Southeast Asia, significantly escalating America's involvement in the Vietnam War
+- **1927**: The first ever transmission of a financial news program on radio was aired. This marked the beginning of broadcasting financial news to the public.
+- **1974**: A series of tornadoes ripped through Nebraska, resulting in significant destruction and several fatalities.
+- **1981**: Walter Cronkite hosted his final broadcast as CBS Evening News anchor, formally retiring after 19 years in the
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟✨😊"
+"Embrace the glorious mess that you are! 🌈✨🌟"
