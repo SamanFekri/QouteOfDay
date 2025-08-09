@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Certainly! Here are some notable events that have happened in the USA on August 9:
+Here are some notable events that occurred in the USA on August 9:
 
-- **1945**: The United States dropped an atomic bomb on Nagasaki, Japan, in World War II, leading to the eventual surrender of Japan.
-- **1965**: The Singapore declaration announced Singapore's independence from Malaysia.
-- **1974**: President Richard Nixon announced his resignation from the presidency amidst the Watergate scandal, effective the next day.
-- **2001**: The U
+- **1945**: The United States dropped an atomic bomb on Nagasaki, Japan, during World War II. Although not a direct event in the USA, it had profound implications for American foreign policy and military strategy.
+  
+- **1974**: President Richard Nixon announced his resignation from the presidency (effective August 9), becoming the first U.S. president to do so due to the Watergate scandal.
+
+-
 ### Positive Qoute
 ------
-"Believe in your dreams and chase after them! ✨🌈 You have the power to create your own magic! ✨💫"
+"Believe in yourself and all that you are. 🌟 Your potential is limitless! 🚀💪"
