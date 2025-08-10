@@ -2,11 +2,14 @@
 ------
 ### Events
 ------
-Here are some events that are observed in the USA on August 10th:
+Here are some notable events and observances that occur on August 10th in the USA:
 
-- **National S'mores Day**: A fun unofficial holiday celebrated by baking or roasting s'mores, a popular campfire treat made of graham crackers, chocolate, and marshmallows.
-- **Festival of Some Sort**: Many towns and cities might host annual summer festivals, fairs, or community events during this date that can vary from year to year.
-- **Concerts and Music Festivals**: Various
+- **National S'mores Day**: A fun culinary holiday celebrating the iconic campfire treat made with marshmallow, chocolate, and graham crackers.
+  
+- **National Lazy Day**: A day encouraging people to unwind, relax, and take a much-needed break from their routine.
+  
+- **Historical Events**:
+  - **1921**: The first radio broadcasts featuring live musicians occur,
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌟😊✨"
+"Believe in yourself, and you can achieve anything! ✨🌟💪"
