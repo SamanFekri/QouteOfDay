@@ -1,14 +1,12 @@
-### 📅 Saturday, 09 August, 2025
+### 📅 Sunday, 10 August, 2025
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on August 9:
+Here are some events that are observed in the USA on August 10th:
 
-- **1945**: The United States dropped an atomic bomb on Nagasaki, Japan, during World War II. Although not a direct event in the USA, it had profound implications for American foreign policy and military strategy.
-  
-- **1974**: President Richard Nixon announced his resignation from the presidency (effective August 9), becoming the first U.S. president to do so due to the Watergate scandal.
-
--
+- **National S'mores Day**: A fun unofficial holiday celebrated by baking or roasting s'mores, a popular campfire treat made of graham crackers, chocolate, and marshmallows.
+- **Festival of Some Sort**: Many towns and cities might host annual summer festivals, fairs, or community events during this date that can vary from year to year.
+- **Concerts and Music Festivals**: Various
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 Your potential is limitless! 🚀💪"
+"Every day may not be good, but there’s something good in every day! 🌟😊✨"
