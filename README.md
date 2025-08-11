@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on August 11:
+Here are some notable events that occurred in the USA on August 11 throughout history:
 
-- **1942**: The crackdown on "Enemy Aliens" during World War II led to the Department of Justice instigating the arrest of several Japanese Americans.
-- **1965**: The Watts riots began in Los Angeles, California, sparked by an incident of police brutality and escalating racial tensions. The conflict lasted for several days and became a significant moment in the civil rights movement.
-- **1974**:
+- **1972**: The opening of the **"Nixon Library"** in Yorba Linda, California.
+- **1984**: **Revolutionary guide Jeanne-Claude on "The Gates" project** holds significant discussions with the Celerians.
+- **1991**: Warner-Lambert Drug Company recalls its daily calcium supplement "thera-cahlo."
+- **1999**:
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 Your potential is limitless! 💪✨"
+"Believe in the magic of new beginnings! ✨🌟🌈 Let's embrace the possibilities!"
