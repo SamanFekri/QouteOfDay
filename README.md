@@ -1,15 +1,12 @@
-### 📅 Sunday, 10 August, 2025
+### 📅 Monday, 11 August, 2025
 ------
 ### Events
 ------
-Here are some notable events and observances that occur on August 10th in the USA:
+Here are some notable events that occurred in the USA on August 11:
 
-- **National S'mores Day**: A fun culinary holiday celebrating the iconic campfire treat made with marshmallow, chocolate, and graham crackers.
-  
-- **National Lazy Day**: A day encouraging people to unwind, relax, and take a much-needed break from their routine.
-  
-- **Historical Events**:
-  - **1921**: The first radio broadcasts featuring live musicians occur,
+- **1942**: The crackdown on "Enemy Aliens" during World War II led to the Department of Justice instigating the arrest of several Japanese Americans.
+- **1965**: The Watts riots began in Los Angeles, California, sparked by an incident of police brutality and escalating racial tensions. The conflict lasted for several days and became a significant moment in the civil rights movement.
+- **1974**:
 ### Positive Qoute
 ------
-"Believe in yourself, and you can achieve anything! ✨🌟💪"
+"Believe in yourself and all that you are. 🌟 Your potential is limitless! 💪✨"
