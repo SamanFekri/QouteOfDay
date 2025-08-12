@@ -250,3 +250,15 @@ Here are some notable events in the USA that have occurred on August 12:
 ### Quote of the day
 "Shine your light ✨, spread kindness 💖, and watch the world bloom 🌸!"
 -----
+## Tuesday, 12 August, 2025
+### Events
+Here are some notable events in USA history that occurred on August 12:
+
+- **1848**: The first known American regular passenger and freight steamship service, the "Henry Chauncey," was established. This kind of service was critical for economic growth and infrastructure development.
+  
+- **1944**: President Franklin D. Roosevelt was scheduled to respond via radio broadcast to the controversial Tokyo-based Baby Camrade Incident, focusing on censorship during World War II.
+
+- **1953**: The
+### Quote of the day
+"Every day may not be good, but there's something good in every day! 🌟💖✨"
+-----
