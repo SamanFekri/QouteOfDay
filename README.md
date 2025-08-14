@@ -2,10 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have taken place in the USA on August 14:
+Here are a couple of notable events that occur on August 14th in the USA:
 
-- **1945**: Japan announced its surrender in World War II, leading to the conclusion of the conflict. August 14 is often noted as V-J Day (Victory over Japan Day) in the United States.
-- **1969**: The first-ever image of Earth from the Moon was taken by Apollo 11 astronauts, marking a significant achievement in space exploration and leading to many public initiatives related to space
+- **National Financial Awareness Day** - A day to promote financial literacy and encourage individuals to take control of their personal finances.
+  
+- **National Roots Day** - Encourages people to explore their family and ancestral roots and increases awareness of one's personal history.
+
+- **World Lizard Day** - While not exclusive to the USA, it's a fun day celebrated by animal lovers and community groups often hosting events related to
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! ✨😊🌷"
+"Believe in the magic within you! ✨💖 Your potential is limitless! 🚀🌟"
