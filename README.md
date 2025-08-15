@@ -1,14 +1,13 @@
-### 📅 Thursday, 14 August, 2025
+### 📅 Friday, 15 August, 2025
 ------
 ### Events
 ------
-Here are a couple of notable events that occur on August 14th in the USA:
+Here are some notable events and observances in the USA that occur on August 15:
 
-- **National Financial Awareness Day** - A day to promote financial literacy and encourage individuals to take control of their personal finances.
+- **National Relaxation Day**: A day dedicated to stress relief and taking a break from daily tasks and responsibilities.
+- **Victory Over Japan Day (V-J Day)**: Marks the day in 1945 when Japan officially surrendered, effectively bringing an end to World War II. Some areas in the U.S. commemorate this event on August 15.
   
-- **National Roots Day** - Encourages people to explore their family and ancestral roots and increases awareness of one's personal history.
-
-- **World Lizard Day** - While not exclusive to the USA, it's a fun day celebrated by animal lovers and community groups often hosting events related to
+Please verify these observances annually, as they
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨💖 Your potential is limitless! 🚀🌟"
+"Believe in the magic of new beginnings! ✨🌈💖"
