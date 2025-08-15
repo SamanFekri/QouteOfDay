@@ -2,12 +2,15 @@
 ------
 ### Events
 ------
-Here are some notable events and observances in the USA that occur on August 15:
+Here are some events in the USA that are observed on August 15:
 
-- **National Relaxation Day**: A day dedicated to stress relief and taking a break from daily tasks and responsibilities.
-- **Victory Over Japan Day (V-J Day)**: Marks the day in 1945 when Japan officially surrendered, effectively bringing an end to World War II. Some areas in the U.S. commemorate this event on August 15.
-  
-Please verify these observances annually, as they
+- **National Relaxation Day**  
+  - A day dedicated to reducing stress and promoting relaxation. Many people engage in leisure activities or take time off from their busy routines.
+
+- **Assumption of Mary**  
+  - This is a significant religious observance in some Christian denominations, particularly within the Catholic Church, commemorating the assumption of the Virgin Mary into heaven. Observances include church services and special prayers.
+
+- **
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌈💖"
+"Embrace the glorious mess that you are! 🌟✨ Keep shining and spreading happiness! 😊❤️"
