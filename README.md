@@ -1,11 +1,12 @@
-### 📅 Saturday, 16 August, 2025
+### 📅 Sunday, 17 August, 2025
 ------
 ### Events
 ------
-Here are some significant events that have occurred in the USA on August 16 throughout history:
+Here are some notable events that have occurred on August 17 in U.S. history:
 
-- **1977**: Elvis Presley, also known as the "King of Rock and Roll," died at the age of 42 at his home in Graceland, Memphis, Tennessee.
-- **1896**: John Deas discovered gold in Bonanza Creek, a creek in the Klondike region of Canada. This event had indirect effects, as it spurred the Klondike Gold Rush
+- **1775**: The Battle of Bunker Hill began as the first major battle of the American Revolutionary War occurred (though the battle itself was on June 17, important events leading to it occurred in August).
+- **1945**: The first large-scale American marines landing on Japanese-controlled Peleliu Island in the Pacific.
+- **1955**: The Fourth Pan American Games officially opened in
 ### Positive Qoute
 ------
-"Believe in your dreams and watch the magic unfold! ✨🌟🌈"
+"🌈 Every sunrise is a new chance to shine! ✨☀️ Keep believing in the beauty of your dreams! 💖"
