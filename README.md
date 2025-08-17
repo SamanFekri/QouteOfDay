@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred on August 17 in U.S. history:
+Here are some notable events that have happened in the USA on August 17 over various years:
 
-- **1775**: The Battle of Bunker Hill began as the first major battle of the American Revolutionary War occurred (though the battle itself was on June 17, important events leading to it occurred in August).
-- **1945**: The first large-scale American marines landing on Japanese-controlled Peleliu Island in the Pacific.
-- **1955**: The Fourth Pan American Games officially opened in
+- **1945**: The first President of Indonesia, Sukarno, proclaimed Indonesia's independence after Japan's surrender following World War II. In the USA, this was noted as a pivotal moment in world history.
+  
+- **1954**: The first comprehensive investigation into the United States' involvement in the Laotians started under Order Formations. 
+  
+- **1969**: The Woodstock
 ### Positive Qoute
 ------
-"🌈 Every sunrise is a new chance to shine! ✨☀️ Keep believing in the beauty of your dreams! 💖"
+"Embrace the beautiful chaos of life, and let your dreams soar! 🌈✨🚀"
