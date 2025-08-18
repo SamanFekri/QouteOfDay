@@ -2,15 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on August 18:
+Certainly! Here are some notable events in U.S. history that occurred on August 18:
 
-- **1858**: The first transcontinental telegraph is completed in the United States, connecting the nation's east and west coasts line.
+- **1846**: The United States declared war against Mexico. This conflict would lead to significant territorial gains for the U.S.
   
-- **1920**: The 19th Amendment to the Constitution is certified, granting women the right to vote in the United States.
+- **1920**: The 19th Amendment to the United States Constitution was certified, granting women the legal right to vote.
 
-- **1940**: The first mass production of the frequency-modulated (FM) radio begins in the USA.
-
-- **
+- **1963**: The singer and civil rights activist, Marjorie Wright, introduced the successful judicial decision in the case
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨🌟 You are stronger than you think! 💪😊"
+"Embrace the beautiful chaos of life and let your light shine brighter every day! ✨🌈✨"
