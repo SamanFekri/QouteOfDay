@@ -1,14 +1,16 @@
-### 📅 Sunday, 17 August, 2025
+### 📅 Monday, 18 August, 2025
 ------
 ### Events
 ------
-Here are some notable events that have happened in the USA on August 17 over various years:
+Here are some notable events that have occurred in the USA on August 18:
 
-- **1945**: The first President of Indonesia, Sukarno, proclaimed Indonesia's independence after Japan's surrender following World War II. In the USA, this was noted as a pivotal moment in world history.
+- **1858**: The first transcontinental telegraph is completed in the United States, connecting the nation's east and west coasts line.
   
-- **1954**: The first comprehensive investigation into the United States' involvement in the Laotians started under Order Formations. 
-  
-- **1969**: The Woodstock
+- **1920**: The 19th Amendment to the Constitution is certified, granting women the right to vote in the United States.
+
+- **1940**: The first mass production of the frequency-modulated (FM) radio begins in the USA.
+
+- **
 ### Positive Qoute
 ------
-"Embrace the beautiful chaos of life, and let your dreams soar! 🌈✨🚀"
+"Believe in yourself and all that you are. ✨🌟 You are stronger than you think! 💪😊"
