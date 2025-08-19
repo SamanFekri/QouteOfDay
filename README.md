@@ -1,14 +1,12 @@
-### 📅 Monday, 18 August, 2025
+### 📅 Tuesday, 19 August, 2025
 ------
 ### Events
 ------
-Certainly! Here are some notable events in U.S. history that occurred on August 18:
+Here are notable events in the USA that have occurred on August 19 throughout history:
 
-- **1846**: The United States declared war against Mexico. This conflict would lead to significant territorial gains for the U.S.
-  
-- **1920**: The 19th Amendment to the United States Constitution was certified, granting women the legal right to vote.
-
-- **1963**: The singer and civil rights activist, Marjorie Wright, introduced the successful judicial decision in the case
+- **1934**: Vice President Charles Curtis remained a strong Republican figure as he took part in various political speeches and engagements focusing on his party's strategies.
+- **1944**: During World War II, U.S. forces captured the strategic French town of St. Tropez.
+- **1953**: The United States CIA orchestrated the overthrow of Iranian Prime Minister Mohammad Mossadegh in a coup
 ### Positive Qoute
 ------
-"Embrace the beautiful chaos of life and let your light shine brighter every day! ✨🌈✨"
+"Every day may not be good, but there’s something good in every day! 🌟😊✨"
