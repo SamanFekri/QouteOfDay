@@ -1,13 +1,14 @@
-### 📅 Tuesday, 19 August, 2025
+### 📅 Wednesday, 20 August, 2025
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on August 19:
+Here are some notable events in U.S. history that occurred on August 20:
 
-- **1779**: The Capture of Fort Stony Point during the American Revolutionary War was completed by the British.
-- **1812**: The United States naval ship USS Constitution defeated the HMS Guerriere, marking a significant victory in the War of 1812.
-- **1942**: American forces made an unsuccessful raid in the Dieppe area of France in World War II.
-- **1960
+- **1804**: The Lewis and Clark Expedition officially began its journey westward with the sail down the Missouri River.
+  
+- **1877**: The first recorded baseball game under the banner of the National League between the Chicago White Stockings and the Royal Club of Rockford, Illinois.
+
+- **1940**: The death of Leon Trotsky, the Soviet revolutionary leader, occurred in Mexico City
 ### Positive Qoute
 ------
-"Believe in yourself and you will be unstoppable! ✨💪🌟"
+"Every day is a new beginning! 🌅 Embrace the possibilities and let your dreams shine bright! ✨💫"
