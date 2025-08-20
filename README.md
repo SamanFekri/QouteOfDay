@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on August 20:
+Here are a few notable events that have occurred in the USA on August 20 throughout history:
 
-- **1804**: The Lewis and Clark Expedition officially began its journey westward with the sail down the Missouri River.
+- **1890**: The first game of baseball is played in the new Polo Grounds, the former home of the New York Giants.
   
-- **1877**: The first recorded baseball game under the banner of the National League between the Chicago White Stockings and the Royal Club of Rockford, Illinois.
+- **1932**: Will Rogers and Wiley Post depart for a trip around the world in a specially built aircraft, marking the start of their iconic aviation journey.
 
-- **1940**: The death of Leon Trotsky, the Soviet revolutionary leader, occurred in Mexico City
+- **1964**: The United States officially ratifies a new climate treaty under the United
 ### Positive Qoute
 ------
-"Every day is a new beginning! 🌅 Embrace the possibilities and let your dreams shine bright! ✨💫"
+"Believe in your dreams and they may come true. Believe in yourself and they will! ✨🌟🚀"
