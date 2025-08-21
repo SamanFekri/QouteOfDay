@@ -1,14 +1,11 @@
-### 📅 Wednesday, 20 August, 2025
+### 📅 Thursday, 21 August, 2025
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the USA on August 20 throughout history:
+Here are some notable events that have occurred in the USA on August 21:
 
-- **1890**: The first game of baseball is played in the new Polo Grounds, the former home of the New York Giants.
-  
-- **1932**: Will Rogers and Wiley Post depart for a trip around the world in a specially built aircraft, marking the start of their iconic aviation journey.
-
-- **1964**: The United States officially ratifies a new climate treaty under the United
+- **1779**: The **Spanish Blanco** forces successfully captured the British-held city of **Mobile**, contributing to the conflict in the American Revolutionary War.
+- **1883**: The **Gilroy Garlic Festival**, known for celebrating garlic, takes place each year on a weekend of August, drawing various attendees to be part of its festivities. (Note: Actual gala dates vary, but this aligns with regular occurrences
 ### Positive Qoute
 ------
-"Believe in your dreams and they may come true. Believe in yourself and they will! ✨🌟🚀"
+"Believe in the magic of new beginnings! ✨🌈🚀"
