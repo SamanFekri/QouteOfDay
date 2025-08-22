@@ -2,12 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on August 22 throughout history:
+Here are notable events in U.S. history that occurred on August 22:
 
-- **1922**: The first edition of Reader's Digest was published.
-- **1962**: The first issue of the trademark pizza publication "Pizza Today" was released in the run-up to the subsequent explosion in pizza sales in the U.S.
-- **1966**: The seismic and climate conditions on the planet Mars were explored with the launch of the lunar space probe, Mars Odyssey.
--
+- **1776:** The Battle of Long Island commences during the American Revolutionary War, which ultimately led to British control of New York City.
+- **1942:** The U.S. Army announces the establishment of a processor for synchronized warfare in World War II.
+- **1945:** President Harry S. Truman announces that Japan has accepted the terms of surrender, paving the way for the end of World War II.
+
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 😊✨"
+"Believe in yourself and all that you are! ✨ You are capable of amazing things! 💪🌟"
