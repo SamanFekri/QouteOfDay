@@ -1,13 +1,12 @@
-### 📅 Friday, 22 August, 2025
+### 📅 Saturday, 23 August, 2025
 ------
 ### Events
 ------
-Here are notable events in U.S. history that occurred on August 22:
+Here are notable events that have occurred in the USA on August 23:
 
-- **1776:** The Battle of Long Island commences during the American Revolutionary War, which ultimately led to British control of New York City.
-- **1942:** The U.S. Army announces the establishment of a processor for synchronized warfare in World War II.
-- **1945:** President Harry S. Truman announces that Japan has accepted the terms of surrender, paving the way for the end of World War II.
-
+- **2011**: A magnitude 5.8 earthquake struck Virginia, affecting a large portion of the East Coast, including Washington, D.C.
+- **1968**: The Democratic National Convention opened in Chicago, Illinois, marked by significant protests and clashes between demonstrators and police.
+- **1904**: The first Olympic marathon was held in the United States during the St. Louis World's Fair, as part
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! ✨ You are capable of amazing things! 💪🌟"
+"Every day may not be good, but there's something good in every day. 🌟😊🌈"
