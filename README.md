@@ -1,14 +1,12 @@
-### 📅 Sunday, 24 August, 2025
+### 📅 Monday, 25 August, 2025
 ------
 ### Events
 ------
-Here are a few notable events in U.S. history that have occurred on August 24:
+Here are some notable events that have occurred in the USA on August 25th:
 
-- **1814**: British troops burned the White House and Capitol building during the War of 1812.
-  
-- **1921**: "The Silent Mutiny" - Veterans begin organizing in Washington, D.C., demanding compensation and support from the government post-World War I.
-
-- **1989**: The United States Torch Relay Olympians Cross Country  have dropped entertained and ensuing substitutions
+- **1830**: The First Railroad Accident in the U.S. - The Wilmington & Raleigh Railroad collided near North Carolina, marking one of the early transport tragedies.
+- **1939**: The First FM Radio Station in New York City Starts Broadcasting - A significant step forward in radio technology and electronic communications.
+- **1958**: The United States Armyannouncedrenewal ofthe draft due to needs
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱 Your next adventure is just around the corner! 🚀💖"
+“Believe in the magic within you! ✨💖 Every day is a chance to shine! 🌟😊”
