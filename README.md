@@ -1,14 +1,12 @@
-### 📅 Monday, 25 August, 2025
+### 📅 Tuesday, 26 August, 2025
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on August 25:
+Here are some notable events that have occurred in the USA on August 26:
 
-- **1955**: The first "Animal House" opened in Washington D.C., providing a glimpse into collegiate fraternity life that later influenced popular culture.
-  
-- **1970**: The first Earth Day celebration planning begins, leading to ongoing environmental awareness development in the U.S. and featuring various activities across the country.
-
-- **2003**: The discovery of “Esh among Anatomy” art, revealing
+- **1920**: The 19th Amendment to the United States Constitution was certified, granting women the right to vote. This marked a significant victory in the Women's Suffrage movement.
+- **1978**: Cardinal Albino Luciani was elected as Pope John Paul I. Although he was not based in the USA, his election marked a globally significant event with attention from the American public.
+- **1981
 ### Positive Qoute
 ------
-"Shine your light ✨ and let the world see your sparkle! 🌟 Embrace every moment with joy! 😊💖"
+"Believe you can and you're halfway there! 🌟💪✨"
