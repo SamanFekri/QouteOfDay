@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred on August 27 in the United States:
+Here are some significant events in U.S. history that occurred on August 27:
 
-- **1876**: The **First Estes Park Music Festival** is held in Colorado, illustrating the expanding cultural horizons of American towns.
-- **1883**: The ER#76 earthquake in Southeast U.S.A., marking one of the significant seismic events in history.
-- **1928**: The U.S. Secretary of State Frank B. Kellogg and representatives from 62 other nations signed the **
+- **1955**: "Cat on a Hot Tin Roof" premiered on Broadway. The play by Tennessee Williams starred Elizabeth Ashley, and it received critical acclaim and numerous future adaptations.
+  
+- **1967**: The first "Resolution" of the Women's Liberation Movement was accepted gas an official part of the campaign pledges at the National Women’s Conference. This focused on the need for equality in economic and social
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 🌟 Your potential is limitless. 🌈✨"
+"Every day may not be good, but there’s something good in every day. 🌟😊✨"
