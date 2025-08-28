@@ -1,12 +1,15 @@
-### 📅 Wednesday, 27 August, 2025
+### 📅 Thursday, 28 August, 2025
 ------
 ### Events
 ------
-Here are some significant events in U.S. history that occurred on August 27:
+Here are some notable events that have happened in the USA on August 28:
 
-- **1955**: "Cat on a Hot Tin Roof" premiered on Broadway. The play by Tennessee Williams starred Elizabeth Ashley, and it received critical acclaim and numerous future adaptations.
-  
-- **1967**: The first "Resolution" of the Women's Liberation Movement was accepted gas an official part of the campaign pledges at the National Women’s Conference. This focused on the need for equality in economic and social
+- **1963: March on Washington for Jobs and Freedom**  
+  - Approximately 250,000 people gathered in Washington, D.C.
+  - Martin Luther King Jr. delivered his famous "I Have a Dream" speech, advocating for civil rights and equality.
+
+- **1955: Emmett Till's Murder**  
+  - Emmett Till, a 14-year-old African American boy, was abducted
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. 🌟😊✨"
+"Radiate positivity🌟 and watch the world light up around you! 🌈✨"
