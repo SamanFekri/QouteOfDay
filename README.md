@@ -1,14 +1,12 @@
-### 📅 Saturday, 30 August, 2025
+### 📅 Sunday, 31 August, 2025
 ------
 ### Events
 ------
-On August 30, several notable events and recognitions take place in the USA. Here are a few:
+Here are some historical events and observances that have taken place in the United States on August 31st:
 
-- **Levi Strauss Day**: Commemorates the birth of Levi Strauss, the founder of Levi Strauss & Co., known for popularizing blue jeans.
-  
-- **International Day of the Disappeared**: A recognition established by the World Council of Churches to raise awareness about victims of enforced disappearances and their families.
-
-- **Morehouse-Tuskegee Football Classic (var
+- **1886**: The East Coast railroad was affected by a major earthquake, centered in Charleston, South Carolina. It registered a magnitude of around 7.0 and was felt along the eastern United States.
+- **1920**: Women garnered the right to vote with the certification of the 19th Amendment to the U.S. Constitution, officially granted earlier that year.
+-
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱🌟"
+"Believe in the magic of new beginnings! ✨🌱 Every day is a chance to grow and shine! ☀️🌟"
