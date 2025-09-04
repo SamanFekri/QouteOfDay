@@ -2,10 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that happened in the USA on September 4 throughout history:
+Here are some notable events that have occurred in the USA on September 4th:
 
-- **1886**: The modern game of baseball officially completed its first game under a new set of rules as one of the first organized National League teams, the Chicago White Stockings, encountered the New York Gothams.
-- **1957**: The inaugural launch of Juno 1 took place at Cape Canaveral, marking the United States' entry into the world of satellite technology during the space race
+- **1781**: The city of Los Angeles is founded by a group of 44 settlers known as "The Porciúncula Settlement."
+  
+- **1886**: The Apache leader Geronimo surrenders to U.S. General Nelson A. Miles, marking the end of the Apache Wars.
+  
+- **1939**: The United States declares its neutrality in World War II following the
 ### Positive Qoute
 ------
-"Believe in yourself, and anything is possible! 🌟💪✨"
+"Believe in the magic within you! ✨✨ Keep shining bright! ✨🌟"
