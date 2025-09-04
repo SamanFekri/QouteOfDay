@@ -1,13 +1,11 @@
-### 📅 Wednesday, 03 September, 2025
+### 📅 Thursday, 04 September, 2025
 ------
 ### Events
 ------
-Here are some notable events that happened in the USA on September 3 throughout history:
+Here are some notable events that happened in the USA on September 4 throughout history:
 
-- **1783**: The Treaty of Paris was signed, effectively ending the American Revolutionary War as Britain recognized American independence.
-- **1861**: The first official American football team was formed at Rutgers College.
-- **1951**: The TV classic "I Love Lucy" aired its first episode featuring Lucille Ball and Desi Arnaz, which became a groundbreaking show in American television history.
-- **
+- **1886**: The modern game of baseball officially completed its first game under a new set of rules as one of the first organized National League teams, the Chicago White Stockings, encountered the New York Gothams.
+- **1957**: The inaugural launch of Juno 1 took place at Cape Canaveral, marking the United States' entry into the world of satellite technology during the space race
 ### Positive Qoute
 ------
-"Believe in yourself, and you'll be unstoppable! 🌟💪😊"
+"Believe in yourself, and anything is possible! 🌟💪✨"
