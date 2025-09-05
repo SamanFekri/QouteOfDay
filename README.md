@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on September 5:
+Here are some notable events that occurred in the USA on September 5th:
 
-- **1939**: The United States officially proclaimed neutrality as World War II erupted in Europe following the invasion of Poland.
-- **1972**: During the Munich Olympics, Palestinian terrorists kidnapped and killed members of the Israeli Olympic team. September 5 marks the day the hostages were taken.
-- **1997**: Mother Teresa, the Nobel Peace Prize-winning humanitarian and missionary, passed away in Kolkata, India
+- **1972**: The Olympic Games in Munich were impacted when members of the Israeli team were taken hostage. While this event did not take place directly in the USA, it had significant political and social implications that resonated throughout the country, including protests and debates on security, terrorism, and international relations.
+
+- **1957**: President Dwight D. Eisenhower sent federal troops to Little Rock, Arkansas, to
 ### Positive Qoute
 ------
-"Shine like the stars ✨🌟, because every day is a new opportunity to brighten the world! 🌈💖"
+"Make today amazing 🌟 Every small step counts toward your big dreams 💪✨"
