@@ -1,14 +1,12 @@
-### 📅 Thursday, 04 September, 2025
+### 📅 Friday, 05 September, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on September 4th:
+Here are some notable events in the USA that have occurred on September 5:
 
-- **1781**: The city of Los Angeles is founded by a group of 44 settlers known as "The Porciúncula Settlement."
-  
-- **1886**: The Apache leader Geronimo surrenders to U.S. General Nelson A. Miles, marking the end of the Apache Wars.
-  
-- **1939**: The United States declares its neutrality in World War II following the
+- **1939**: The United States officially proclaimed neutrality as World War II erupted in Europe following the invasion of Poland.
+- **1972**: During the Munich Olympics, Palestinian terrorists kidnapped and killed members of the Israeli Olympic team. September 5 marks the day the hostages were taken.
+- **1997**: Mother Teresa, the Nobel Peace Prize-winning humanitarian and missionary, passed away in Kolkata, India
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨✨ Keep shining bright! ✨🌟"
+"Shine like the stars ✨🌟, because every day is a new opportunity to brighten the world! 🌈💖"
