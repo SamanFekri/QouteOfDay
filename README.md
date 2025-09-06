@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here's a notable event in the USA that occurs on September 6:
+Here are a few notable events that have taken place in the USA on September 6:
 
-- **Labor Day (Observed)**
-  - **Date**: First Monday in September (Labor Day is observed on September 4 in 2023, but the federal holiday influences events around this date)
-  - **Purpose**: A federal holiday dedicated to honoring and recognizing the American labor movement and the works of labor organizations.
-  - **Traditions**: Many people celebrate with barbecues, parades, and
+- **1978**: The first time a Presidential Commission report on sexual abuse of children makes significant media impact, contributing to national dialogue about child welfare issues.
+  
+- **1997**: The funeral for Mother Teresa takes place in Calcutta, though she is widely recognized and remembered in the United States for her extensive charitable work.
+
+- **2017**: Equation Group cyber malware used by the NSA is
 ### Positive Qoute
 ------
-"Embrace the beautiful journey of life! ✨🌟🌈 Every step brings new possibilities! 🚀💖"
+"Embrace the glorious mess that you are! 🌟💖 Let's shine bright and spread kindness everywhere! ✨😊"
