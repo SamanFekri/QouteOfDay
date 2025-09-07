@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that take place on September 7:
+Here are some notable events that have occurred in the USA on September 7:
 
-- 1940: The Conscription Act is presented to Congrees that allowed the draft of American citizens into military service during World War II.
-- 2017: A 5.6 magnitude earthquake struck the central region of the United States, causing minor damage and prompting safety concerns across multiple states.
-- 1943: During World War II, the U.S. Army captures the island of Mussauro from Italian
+- **1979**: The first trial of SR-71 Blackbird pilot, which became one of the fastest airplanes in the world, taking place in the USA.
+
+- **1996**: *Elgen Mott*, a student athlete in Idaho, makes headlines when he records several significant achievements in collegiate sports on this day.
+
+- **2001**: The New York Stock Exchange announces the closure of resources and
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. 🌈✨🌻"
+"Believe you can and you're halfway there! 🚀💪✨"
