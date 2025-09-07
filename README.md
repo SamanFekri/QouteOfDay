@@ -1,14 +1,12 @@
-### 📅 Saturday, 06 September, 2025
+### 📅 Sunday, 07 September, 2025
 ------
 ### Events
 ------
-Here are a few notable events that have taken place in the USA on September 6:
+Here are some notable events in the USA that take place on September 7:
 
-- **1978**: The first time a Presidential Commission report on sexual abuse of children makes significant media impact, contributing to national dialogue about child welfare issues.
-  
-- **1997**: The funeral for Mother Teresa takes place in Calcutta, though she is widely recognized and remembered in the United States for her extensive charitable work.
-
-- **2017**: Equation Group cyber malware used by the NSA is
+- 1940: The Conscription Act is presented to Congrees that allowed the draft of American citizens into military service during World War II.
+- 2017: A 5.6 magnitude earthquake struck the central region of the United States, causing minor damage and prompting safety concerns across multiple states.
+- 1943: During World War II, the U.S. Army captures the island of Mussauro from Italian
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟💖 Let's shine bright and spread kindness everywhere! ✨😊"
+"Every day may not be good, but there’s something good in every day. 🌈✨🌻"
