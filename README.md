@@ -2,10 +2,13 @@
 ------
 ### Events
 ------
-- **International Day of United Nations Peacekeepers** (observed on May 29; relevant to U.S. participation in international peacekeeping operations)
-- **September 11 Attacks Remembered**: The events of September 11, 2001, heavily influence commemorative events, memorials, and ceremonies held annually across the United States. 
-- **College Football Season**: Typically, various college football games occur around the second Saturday in September, drawing significant attention and participation nationwide.
--
+Here are some notable events in U.S. history that occurred on September 9th:
+
+- **1776**: The Continental Congress officially renamed the United Colonies to the United States of America. This was an important milestone in the early history of the nation.
+  
+- **1850**: California was admitted as the 31st state of the United States.
+  
+- **1942**: The U.S. Air Force conducted its first ship-aircraft attack during World War II by sinking
 ### Positive Qoute
 ------
-"✨ The only limit to our realization of tomorrow is our doubts of today. 🌟 Dream big and believe! 🌈"
+"Believe in the magic of new beginnings! 🌟✨🌼"
