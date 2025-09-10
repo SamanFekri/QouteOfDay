@@ -1,14 +1,13 @@
-### 📅 Tuesday, 09 September, 2025
+### 📅 Wednesday, 10 September, 2025
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on September 9th:
+Here are some notable events that have occurred in the USA on September 10:
 
-- **1776**: The Continental Congress officially renamed the United Colonies to the United States of America. This was an important milestone in the early history of the nation.
-  
-- **1850**: California was admitted as the 31st state of the United States.
-  
-- **1942**: The U.S. Air Force conducted its first ship-aircraft attack during World War II by sinking
+- **1776**: The word "United States" was first officially used; The Continental Congress adopts the term regarding the American Revolutionary colonies.
+- **1846**: Elias Howe was awarded a patent for his sewing machine.
+- **1963**: The Children's Crusade in Birmingham, Alabama led to a crucial national dialogue on civil rights.
+- **2001**: As heightened alerts were emerging post-9
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! 🌟✨🌼"
+"Believe in yourself and always stay positive! 🌟✨ Every day is a new beginning. 🌈😊"
