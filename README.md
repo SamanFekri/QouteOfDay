@@ -2,14 +2,14 @@
 ------
 ### Events
 ------
-On September 11, several significant events occurred in the United States, most notably:
+Here are some key events that have occurred on September 11 in the USA:
 
-- **2001: September 11 Terrorist Attacks**
-  - Coordinated terrorist attacks by the Islamist extremist group al-Qaeda.
-  - Four commercial airliners were hijacked.
-    - Two planes flew into the Twin Towers of the World Trade Center in New York City.
-    - A third plane struck the Pentagon in Arlington, Virginia.
-    - The fourth plane, United Airlines Flight 93, was headed
+- **2001:** Terrorist Attacks
+  - Coordinated attacks by the Islamist extremist group al-Qaeda on the United States.
+  - Four commercial airplanes were hijacked.
+  - Two planes struck the World Trade Center in New York City, leading to the towers' collapse.
+  - One plane crashed into the Pentagon in Arlington, Virginia.
+  - The fourth plane, United Airlines Flight 93, crashed into
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱 Every day is a fresh start waiting to unfold. 🌅💖"
+"Every day may not be good, but there is something good in every day! ✨🌼😊"
