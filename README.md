@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on September 12:
+Here are some significant events in U.S. history that took place on September 12:
 
-- **1776**: The Battle of Harlem Heights during the American Revolution. This was a part of the campaign for New York City.
-  
-- **1944**: General Dwight D. Eisenhower retains the title of Supreme Commander of the Allied Expeditionary Forces as the allies continue the fight in Europe during World War II.
-  
-- **2001**: President George W. Bush lands in Louis Armstrong New Orleans
+- **1962**: President John F. Kennedy delivered his famous speech at Rice University, outlining the goal of sending an American astronaut to the moon before the decade's end.
+- **2001**: The first news conference post-9/11 by President George W. Bush occurred, discussing the ongoing response to the September 11 terrorist attacks the previous day.
+- **1974**: The primary
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌈✨ Keep looking for the magic! 💖💪"
+"Believe in yourself and all that you are. 🌟 You are capable of amazing things! 💪✨"
