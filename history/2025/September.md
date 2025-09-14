@@ -278,3 +278,13 @@ Here are some notable events in U.S. history that have occurred on September 13:
 ### Quote of the day
 "Believe in yourself and all that you are. 🌟 You are braver than you think, stronger than you seem, and smarter than you know! 💪✨"
 -----
+## Sunday, 14 September, 2025
+### Events
+Certainly! Here’s a historical event that occurred on September 14 in the USA:
+
+- **1847**: American forces capture Mexico City during the Mexican-American War.
+  
+If you are looking for a more recent event or additional events, please let me know!
+### Quote of the day
+"Embrace the journey, for every step is a gift ✈️✨. Keep shining your light! 🌟😊"
+-----
