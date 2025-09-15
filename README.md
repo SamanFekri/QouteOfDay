@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on September 15:
+Here are some significant events that historically take place on or around September 15 in the USA:
 
-- **Hispanic Heritage Month Begins**: September 15 marks the start of Hispanic Heritage Month, which lasts until October 15. This month is dedicated to honoring the contributions of Hispanic and Latino Americans to the United States.
+- **National Hispanic Heritage Month Begins (September 15 - October 15)**: This month-long celebration honors the contributions and cultural heritage of Hispanic and Latino Americans.
 
-- **International Day of Democracy**: Although not specific to the USA, this day is recognized and celebrated nationwide as a day to promote democracy worldwide.
-
-- **National Online Study Day**: This
+- **Constitution Day and Citizenship Day (September 17)**: While Constitution Day is officially recognized on September 17, activities and discussions often begin in the days leading up to this date, including educational events in schools to recognize the signing
 ### Positive Qoute
 ------
-"Every day is a fresh start! Embrace new opportunities and let your potential shine. 🌅💫✨"
+"Believe in yourself and all that you are. ✨ You're capable of amazing things! 🌟💪"
