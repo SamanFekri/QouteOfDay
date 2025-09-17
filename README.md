@@ -2,15 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on September 17:
+Here are some events that have taken place in the USA on September 17 throughout history:
 
-- **Constitution Day** (or Citizenship Day):
-  - Celebrates the ratification of the U.S. Constitution on September 17, 1787.
-  - Recognizes the importance of the Constitution in American history and government.
-
-- **National POW/MIA Recognition Day**:
-  - This day often falls in mid-September (observed on the third Friday of September in some years).
-  - Honors prisoners
+- **1787**: The United States Constitution was signed by delegates at the Constitutional Convention in Philadelphia.
+- **1862**: The Battle of Antietam occurred during the American Civil War, marking the bloodiest single-day battle in American history.
+- **1944**: Operation Market Garden began during World War II, which was an unsuccessful military operation designed to capture key bridges in the Netherlands.
+-
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨🌈💖"
+"Life is a beautiful journey, embrace every moment! 🌟✨💖"
