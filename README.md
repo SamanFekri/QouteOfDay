@@ -2,12 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that occur on September 18 in the United States:
+Here are some events that typically occur in the United States on September 18:
 
-- **1851**: The first issue of *The New-York Times* is published.
-- **1947**: The National Security Act is enacted, establishing the National Security Council (NSC) and the Central Intelligence Agency (CIA).
-- **1970**: Muhammad Ali's boxing license is restored by the New Jersey State Athletic Control Board.
-- **1973**: George Washington University establishes the nation's
+- **National Cheeseburger Day**: Celebrated by burger lovers across the country, promoting burger specials at various restaurants.
+- **World Patient Safety Day**: While not exclusively a U.S. event, various healthcare facilities often emphasize quickly raising awareness about patient safety within their establishments on this day.
+
+Note: Events can vary year to year and may depend on local observances or specific years in context. Be sure to
 ### Positive Qoute
 ------
-"Embrace the beautiful chaos of life and let your soul shine! ✨🌈💖"
+"Every day may not be good, but there's something good in every day! 🌟😊"

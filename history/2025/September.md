@@ -377,3 +377,14 @@ Here are some notable events that occur on September 18 in the United States:
 ### Quote of the day
 "Embrace the beautiful chaos of life and let your soul shine! ✨🌈💖"
 -----
+## Thursday, 18 September, 2025
+### Events
+Here are some events that typically occur in the United States on September 18:
+
+- **National Cheeseburger Day**: Celebrated by burger lovers across the country, promoting burger specials at various restaurants.
+- **World Patient Safety Day**: While not exclusively a U.S. event, various healthcare facilities often emphasize quickly raising awareness about patient safety within their establishments on this day.
+
+Note: Events can vary year to year and may depend on local observances or specific years in context. Be sure to
+### Quote of the day
+"Every day may not be good, but there's something good in every day! 🌟😊"
+-----
