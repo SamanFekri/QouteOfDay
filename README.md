@@ -1,13 +1,13 @@
-### 📅 Wednesday, 17 September, 2025
+### 📅 Thursday, 18 September, 2025
 ------
 ### Events
 ------
-Here are some events that have taken place in the USA on September 17 throughout history:
+Here are some notable events that occur on September 18 in the United States:
 
-- **1787**: The United States Constitution was signed by delegates at the Constitutional Convention in Philadelphia.
-- **1862**: The Battle of Antietam occurred during the American Civil War, marking the bloodiest single-day battle in American history.
-- **1944**: Operation Market Garden began during World War II, which was an unsuccessful military operation designed to capture key bridges in the Netherlands.
--
+- **1851**: The first issue of *The New-York Times* is published.
+- **1947**: The National Security Act is enacted, establishing the National Security Council (NSC) and the Central Intelligence Agency (CIA).
+- **1970**: Muhammad Ali's boxing license is restored by the New Jersey State Athletic Control Board.
+- **1973**: George Washington University establishes the nation's
 ### Positive Qoute
 ------
-"Life is a beautiful journey, embrace every moment! 🌟✨💖"
+"Embrace the beautiful chaos of life and let your soul shine! ✨🌈💖"
