@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here are some events that have historically taken place in the USA on September 19:
+Here are some notable events that have occurred in the USA on September 19:
 
-- **1783**: General George Washington ordered a cessation of hostilities against the British in the American Revolutionary War, signaling the war's conclusion.
-- **1893**: Wyoming became the first U.S. state to grant women the right to vote, a significant milestone in women's suffrage.
-- **1934**: The first "Rocky Mountain National Park" located in Colorado was established.
-- **
+- **1952:** The first version of the Ernest J. Martin Co.’s automatic coffee filter machine, which later became known as the “Bunn,” was patented in the U.S., revolutionizing coffee brewing processes.
+
+- **1985:** A widely circulated photo showed Roger Ebert on the cover of U.S genre magazine “TV Guide”; that event marked Ebert's influence in pop culture discussions concerning movies.
+
+
 ### Positive Qoute
 ------
-"Chase your dreams and dance with joy! ✨🌈💪"
+🌟 "Every day may not be good, but there's something good in every day. 🌈✨"
