@@ -1,14 +1,13 @@
-### 📅 Friday, 19 September, 2025
+### 📅 Saturday, 20 September, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on September 19:
+Here are some notable events that have occurred in the USA on September 20:
 
-- **1952:** The first version of the Ernest J. Martin Co.’s automatic coffee filter machine, which later became known as the “Bunn,” was patented in the U.S., revolutionizing coffee brewing processes.
-
-- **1985:** A widely circulated photo showed Roger Ebert on the cover of U.S genre magazine “TV Guide”; that event marked Ebert's influence in pop culture discussions concerning movies.
-
-
+- **1920**: The American Legion held its first national convention in New Orleans, Louisiana.
+- **1934**: The first-ever *Talkie* movie dubbed in Hollywood, "Here Comes the Navy,” was released featuring the popular action star James Cagney.
+- **1984**: President Ronald Reagan hosted a ceremony to commemorate 200 years of the US Constitution.
+- **1991**:
 ### Positive Qoute
 ------
-🌟 "Every day may not be good, but there's something good in every day. 🌈✨"
+"Every day may not be good, but there’s something good in every day. 🌞✨"
