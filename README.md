@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here are some events that have happened in the USA on September 21:
+Here are some significant events that have occurred in the USA on September 21:
 
-- **1981**: Sandra Day O'Connor is confirmed as the first female Supreme Court Justice.
-- **1996**: The Senate overrides President Bill Clinton's veto of the Defense of Marriage Act (DOMA).
-- **2001**: U.S. health organizations issue warnings and preparedness guidelines following the September 11 attacks.
-- **2014**: Major climate change demonstrations, part of the “People’s
+- **1780**: American Revolutionary War – Benedict Arnold, a general in any significant way renounced the Patriot cause and officially joined the British Army with a turncoat's backlash against his former country.
+
+- **1847**: The U.S. Army entered Mexico City during the Mexican-American War.
+
+- **1970**: The first Earth Day was celebrated in major cities across the United States, promoting environmental awareness
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings ✨🌈✨! Every day is a fresh start filled with endless possibilities! 🌟💖"
+"Chase your dreams like a butterfly chasing the sun! ☀️🦋✨"
