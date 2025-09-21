@@ -1,14 +1,13 @@
-### 📅 Saturday, 20 September, 2025
+### 📅 Sunday, 21 September, 2025
 ------
 ### Events
 ------
-Here are some noteworthy events in the USA that occur or are celebrated on September 20:
+Here are some events that have happened in the USA on September 21:
 
-- **National Carbonated Beverage With Caffeine Day:** Celebrated in the US, this quirky holiday recognizes caffeinated soft drinks like cola and energy drinks.
-
-- **National Puppy Day:** While this day specifically celebrates puppies every March, some activities promoting dog adoption and welfare may also create events around other dates including late September, depicting awareness for pet care.
-
-- **"I Love You Day":** A newer observance
+- **1981**: Sandra Day O'Connor is confirmed as the first female Supreme Court Justice.
+- **1996**: The Senate overrides President Bill Clinton's veto of the Defense of Marriage Act (DOMA).
+- **2001**: U.S. health organizations issue warnings and preparedness guidelines following the September 11 attacks.
+- **2014**: Major climate change demonstrations, part of the “People’s
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. 🌈😊✨"
+"Believe in the magic of new beginnings ✨🌈✨! Every day is a fresh start filled with endless possibilities! 🌟💖"
