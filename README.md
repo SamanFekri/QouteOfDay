@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on September 24th in various years:
+Here are several notable events that have occurred in the USA on September 24 throughout history:
 
-- **1957**: President Dwight D. Eisenhower sent federal troops to Little Rock, Arkansas, to enforce school desegregation at Central High School.
-  
-- **1981**: The first test flight of the space shuttle, "Discovery," took place.
-  
-- **1996**: A terrorism incident occurred at a military base in Chartres, France, linked to an operation
+- **1789**: The U.S. Congress established the federal judiciary by creating the office of Attorney General and the federal court system.
+- **1852**: The first American child's popular university, "American Children's University," began its classes in New York City.
+- **1934**: The first National Book Award ceremony was held in New York City to honor the outstanding children's literature announced.
+- **
 ### Positive Qoute
 ------
-"Believe in yourself and magic will happen! ✨💖🌈"
+"Every day may not be good, but there's something good in every day! 🌟😊✨"
