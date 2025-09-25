@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here are notable events that have occurred on September 25 in U.S. history:
+Here are some notable events and observances that occur in the United States on September 25:
 
-- **1862**: President Abraham Lincoln issued the preliminary Emancipation Proclamation during the U.S. Civil War.
-- **1962**: The first public demonstration of the CAT scan (computed axial tomography) was recorded.
-- **1981**: Sandra Day O'Connor was confirmed as the first female Justice of the U.S. Supreme Court.
-- **1992**: The FDA approved the
+- **National Comic Book Day**: A day to celebrate comic books and comic book culture, encouraging fans to read and promote their favorite editions.
+
+- **National Greyhound Adoption Day**: Promotes the adoption of Greyhounds and raises awareness about the plight of retired racing dogs.
+
+- **Woodstock Music and Arts Fair**: Celebrated each year around this date, this iconic festival marks the anniversary
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 You're capable of amazing things! 🚀😊"
+"Believe in your dreams and chase them with passion! 🌟✨🚀"
