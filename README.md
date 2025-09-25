@@ -1,13 +1,13 @@
-### 📅 Wednesday, 24 September, 2025
+### 📅 Thursday, 25 September, 2025
 ------
 ### Events
 ------
-Here are several notable events that have occurred in the USA on September 24 throughout history:
+Here are notable events that have occurred on September 25 in U.S. history:
 
-- **1789**: The U.S. Congress established the federal judiciary by creating the office of Attorney General and the federal court system.
-- **1852**: The first American child's popular university, "American Children's University," began its classes in New York City.
-- **1934**: The first National Book Award ceremony was held in New York City to honor the outstanding children's literature announced.
-- **
+- **1862**: President Abraham Lincoln issued the preliminary Emancipation Proclamation during the U.S. Civil War.
+- **1962**: The first public demonstration of the CAT scan (computed axial tomography) was recorded.
+- **1981**: Sandra Day O'Connor was confirmed as the first female Justice of the U.S. Supreme Court.
+- **1992**: The FDA approved the
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊✨"
+"Believe in yourself and all that you are. 🌟 You're capable of amazing things! 🚀😊"
