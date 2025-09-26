@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on September 26:
+Here are some notable events that have occurred in the USA on September 26:
 
-- **1950**: The first episode of the TV show *"Cpl. Klink's Defection"* aired, marking another milestone in television history.
-- **1973**: The Balcones Speleological Society, a key caving organization, was established in Texas.
-- **2002**: According to the NYSE so-called " indígenous tanda act '{"*)"θ-like dimasperpted lightning
+- **1983**: The episode “Talky Tina” from the iconic TV show “The Twilight Zone” was first broadcast. This episode featured a creepy doll that stated: "My name is Talky Tina, and I don’t think I like you anymore," becoming one of the series' memorable moments.
+
+- **2011**: The 26th president of the United States, Theodore Roosevelt, was post
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day. 🌟😊"
+"Believe in the magic within you! ✨🌈 Every day is a new chance to shine! ☀️💖"
