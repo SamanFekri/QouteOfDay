@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on September 28:
+Here are some notable events that took place in the USA on September 28 throughout history:
 
-- **1924**: The first ever radio weather report was broadcasted in New York, pioneering a new way of information dissemination for the public.
-  
-- **1928**: The first successful use of a bovine tuberculosis vaccine makes headlines, marking a significant step in agricultural and public health.
-
-- ** MBA first Pro baseball game begins**: Playedاسة աթշ_rankCoin राजश='<?pages[data_list_
+- **1961**: Yale played its first game at the Yale Bowl against Princeton College (Yale won 28–24).
+- **1987**: The first episode of the popular sitcom "Family Matters" aired on television, introducing the Winslows and the iconic character Steve Urkel.
+- **1990**: The National Venus Williams Day is declared in Compton, California, to honor
 ### Positive Qoute
 ------
-"Every day may not be good, but there is something good in every day! 🌟😊✨"
+"Chase your dreams and let your smile light the way! ✨🌟😊"
