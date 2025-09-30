@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some significant events and observances in the USA that are associated with the date September 30:
+Here are some notable events in the USA that have occurred on September 30:
 
-- **National Drug Addiction Awareness Month** begins: The month-long observance aims to raise awareness about drug addiction and promote prevention strategies.
-- **National Ghost Hunting Day**: Celebrated on the last Saturday in September, this observance seeks to highlight ghost hunting and paranormal investigation.
-- **The Treaty of Denver**: Signed on September 30, 1851, marked a significant agreement between
+- **1949**: The United States Airports and Air Travel Act was passed, improving aviation infrastructure.
+- **1962**: James Meredith enrolled at the University of Mississippi, becoming the first African American student to do so. This event sparked significant civil rights protests and interventions.
+- **1969**: The U.S. Supreme Court upheld the landmark ruling in Tinker v. Des Moines, which established students’
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day. 🌈✨"
+"Believe in the magic of new beginnings! ✨🌱 Every day is a fresh start. 🌞💖"
