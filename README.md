@@ -1,14 +1,12 @@
-### 📅 Wednesday, 01 October, 2025
+### 📅 Thursday, 02 October, 2025
 ------
 ### Events
 ------
-Here are some notable events and observances that take place in the USA on October 1st:
+Here are some significant events that take place in the USA on October 2nd:
 
-- **National Homemade Cookies Day**: A day dedicated to baking and enjoying homemade cookies.
-  
-- **World Vegetarian Day**: An event that encourages the exploration and enjoyment of vegetarian lifestyles.
-  
-- **Oktoberfest**: The annual celebration honoring German culture and beer, which typically kicks off on the last weekend of September and runs into the first week of October across various cities in the U.S
+- **National Fried Scallops Day**: A food holiday celebrated by seafood lovers across the country.
+- **Gandhi Jayanti**: While not an official U.S. holiday, many Indian communities and cultural organizations celebrate Mahatma Gandhi's birthday on October 2nd in remembrance of his leadership in nonviolent protest.
+- **Louis Satchmo Armstrong’s Birthday**: Honoring the birth of the
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌈😊✨"
+"Believe in the magic within you! ✨🌈 Every step forward brings you closer to your dreams! 💪🌟"
