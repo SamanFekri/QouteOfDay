@@ -1,13 +1,12 @@
-### 📅 Thursday, 02 October, 2025
+### 📅 Friday, 03 October, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on October 2nd:
+Here are some notable events that have occurred in the USA on October 3rd:
 
-- **1889**: Opening of the first pneumatic tube system for a practical method of vertical transportation of individuals.
-- **1941**: The baseball player Lou Gehrig was selected posthumously to the Hall of Fame.
-- **1950**: The comic strip "Peanuts" by Charles M. Schulz was first published.
-- **1967**: Thurgood Marshall was confirmed as
+- **1932**: The lassen monumental art was dedicated at Lassen Volcanic National Park in California.
+- **1990**: East and West Germany reunified officially, and this event echoed sentiments in communities across the U.S., highlighting the country's support for German reunification.
+- **1995**: The acquittal of O.J. Simpson was announced, sparking nationwide conversations about race, justice
 ### Positive Qoute
 ------
-"🌟 Every day is a new beginning; take a deep breath, smile, and start again! 🌈✨"
+"Believe in yourself, and every day will be a new adventure! 🌟✨🚀"
