@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have happened in the USA on October 4th:
+Here are notable events in the USA that have occurred on October 4:
 
-- **1957**: The Soviet Union launched Sputnik 1, the first artificial satellite, causing significant concern and prompting responses from the United States in the context of the Cold War.
-- **1970**: Janis Joplin, the iconic American singer-songwriter, was found dead from a heroin overdose in Los Angeles.
-- **1980**: The commencement of the "Disco Demolition Night"
+- **1957**: Launch of Sputnik 1 by the Soviet Union, marking the start of the Space Age and prompting the U.S. to accelerate its own space programs.
+  
+- **1990**: President George H.W. Bush announces changes in tax legislation as part of an effort to address budget deficits.
+
+- **2001**: U.S. Centers for Disease Control and Prevention (CDC) established the jurisdiction
 ### Positive Qoute
 ------
-"Every day may not be good, but there is something good in every day! 🌟😊✨"
+"Believe in yourself and watch your dreams take flight! ✨🌈✈️"
