@@ -1,14 +1,13 @@
-### 📅 Saturday, 04 October, 2025
+### 📅 Sunday, 05 October, 2025
 ------
 ### Events
 ------
-Here are notable events in the USA that have occurred on October 4:
+Here are a few notable events that occurred on October 5 in the USA:
 
-- **1957**: Launch of Sputnik 1 by the Soviet Union, marking the start of the Space Age and prompting the U.S. to accelerate its own space programs.
-  
-- **1990**: President George H.W. Bush announces changes in tax legislation as part of an effort to address budget deficits.
+- **1947**:  President Harry S. Truman delivered the first televised presidential address.
+- **1962**: The Beatles released their first single, "Love Me Do," in the UK, which later contributed to their popularity in the USA.
+- **1990**: The U.S. Senate confirmed the first woman appointed to the U.S. Circuit Court of Appeals, Ruth Bader Ginsburg.
 
-- **2001**: U.S. Centers for Disease Control and Prevention (CDC) established the jurisdiction
 ### Positive Qoute
 ------
-"Believe in yourself and watch your dreams take flight! ✨🌈✈️"
+"Every day may not be good, but there's something good in every day! 🌟😊✨"
