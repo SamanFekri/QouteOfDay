@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the USA on October 6:
+Here are some notable events in U.S. history that occurred on October 6:
 
-- **1973**: The start of the Yom Kippur War, in which US President Richard Nixon quickly deployed military aid to Israel, leading to heightened tensions in the Middle East and affecting US foreign policy.
-- **1981**: The assassination of Egyptian President Anwar Sadat during a military parade in Cairo, which had significant repercussions for Egypt-U.S. relations and U.S. regional policy.
-
+- **1914**: The Bank of the United States in New York City was the first bank in American history to fail during the original Federal Reserve Panic.
+- **1960**: The Wheeling, West Virginia Boy Scouts decided to raise the U.S. flag over their local Capitol as a display of Д. Promotions for a special Flag Day 21 among different councils were organized.
+- **1973**
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day. 🌟😊✨"
+"Believe in the magic around you ✨🌈, and let your dreams take flight! 🌟🕊️"
