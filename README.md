@@ -1,12 +1,12 @@
-### 📅 Sunday, 05 October, 2025
+### 📅 Monday, 06 October, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that happen or are commemorated on October 5:
+Here are a few notable events that have occurred in the USA on October 6:
 
-- **National Do Something Nice Day**: A day encouraging individuals to perform kind acts and show appreciation to others.
-- **World Teachers' Day**: Although this is an international observance, many states and organizations in the U.S. recognize this day to honor teachers and highlight their contributions to education.
-- **Television Show Debuts**: Various television shows have premiered on this date in different years
+- **1973**: The start of the Yom Kippur War, in which US President Richard Nixon quickly deployed military aid to Israel, leading to heightened tensions in the Middle East and affecting US foreign policy.
+- **1981**: The assassination of Egyptian President Anwar Sadat during a military parade in Cairo, which had significant repercussions for Egypt-U.S. relations and U.S. regional policy.
+
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟✨ Life is a beautiful journey, so enjoy every step you take! 🗺️❤️"
+"Every day may not be good, but there's something good in every day. 🌟😊✨"
