@@ -1,12 +1,12 @@
-### 📅 Tuesday, 07 October, 2025
+### 📅 Wednesday, 08 October, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur on October 7th in the USA:
+Here are some notable events that occur on October 8th in the USA:
 
-- **1959**: The United States launched the first successful spy satellite, CORONA, providing significant intelligence during the Cold War era.
-- **2001**: The U.S. initiated military operations in Afghanistan in response to the September 11 attacks, marking the beginning of the War on Terror.
-- **2003**: California Governor Gray Davis was recalled, and Arnold Schwarzenegger was elected to replace him during
+- **1945: The Formation of the American Federation of Teachers:** A significant event in labor relations in the education sector occurs as the American Federation of Teachers (AFT) is founded, which has since played a crucial role in advocating for teachers' rights.
+  
+- **1967: Che Guevara's Death:** On this day, Cuban revolutionary leader Che Guevara is killed in Bolivia, an event that reverber
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌟💪😊"
+"Believe in the magic within you ✨💖 and let your dreams take flight! 🕊️🌟"
