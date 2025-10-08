@@ -2,11 +2,9 @@
 ------
 ### Events
 ------
-Here are some notable events that occur on October 8th in the USA:
-
-- **1945: The Formation of the American Federation of Teachers:** A significant event in labor relations in the education sector occurs as the American Federation of Teachers (AFT) is founded, which has since played a crucial role in advocating for teachers' rights.
-  
-- **1967: Che Guevara's Death:** On this day, Cuban revolutionary leader Che Guevara is killed in Bolivia, an event that reverber
+- **Columbus Day**: Columbus Day is observed in the United States on the second Monday of October, which historically falls around October 8. The holiday commemorates Christopher Columbus' arrival in the Americas in 1492.
+- **Canadian Thanksgiving Observance (Observed)**: Although celebrated mainly in Canada, American citizens may recognize it on the same date due to cultural and familial connections.
+- Various events and celebrations honoring Native American heritage and promoting awareness about indigenous cultures sometimes take place around this time,
 ### Positive Qoute
 ------
-"Believe in the magic within you ✨💖 and let your dreams take flight! 🕊️🌟"
+"Embrace the glorious mess that you are! 🌟✨ Keep shining bright! 🌈❤️"

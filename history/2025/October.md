@@ -153,3 +153,11 @@ Here are some notable events that occur on October 8th in the USA:
 ### Quote of the day
 "Believe in the magic within you ✨💖 and let your dreams take flight! 🕊️🌟"
 -----
+## Wednesday, 08 October, 2025
+### Events
+- **Columbus Day**: Columbus Day is observed in the United States on the second Monday of October, which historically falls around October 8. The holiday commemorates Christopher Columbus' arrival in the Americas in 1492.
+- **Canadian Thanksgiving Observance (Observed)**: Although celebrated mainly in Canada, American citizens may recognize it on the same date due to cultural and familial connections.
+- Various events and celebrations honoring Native American heritage and promoting awareness about indigenous cultures sometimes take place around this time,
+### Quote of the day
+"Embrace the glorious mess that you are! 🌟✨ Keep shining bright! 🌈❤️"
+-----
