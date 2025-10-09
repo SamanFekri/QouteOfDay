@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on October 9:
+Here are a few notable events that have taken place in the USA on October 9:
 
-- **1967**: Che Guevara, the Argentine revolutionary, was executed in Bolivia.
-- **1974**: The first regular "presents' MacPac presentation aired in New York subway.
-- **1986**: The first printed computer chip was publicly declared ready for use.
-- **1992**: Former KKK leader David Duke won the Republican primary for a Louisiana gubernatorial election.
-- **
+- **1967**: Revolutionary leader Che Guevara was executed in Bolivia. His legacy influenced various movements in the United States, sparking discussions and demonstrations associated with anti-imperialism and civil rights.
+  
+- **1970**: The first episode of "The Flip Wilson Show," an influential television variety show, premiered, featuring comedy and music performances that helped to elevate African American entertainers in mainstream media
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Your potential is endless! 💫💖"
+"Embrace the glorious mess that you are! 🌈✨ Every imperfection is a part of your unique journey. 💖🌟"
