@@ -1,12 +1,14 @@
-### 📅 Thursday, 09 October, 2025
+### 📅 Friday, 10 October, 2025
 ------
 ### Events
 ------
-Here are a few notable events that have taken place in the USA on October 9:
+Here are a few notable events that occur on **October 10** in the United States:
 
-- **1967**: Revolutionary leader Che Guevara was executed in Bolivia. His legacy influenced various movements in the United States, sparking discussions and demonstrations associated with anti-imperialism and civil rights.
-  
-- **1970**: The first episode of "The Flip Wilson Show," an influential television variety show, premiered, featuring comedy and music performances that helped to elevate African American entertainers in mainstream media
+- **World Mental Health Day**: Recognized globally, this day focuses on raising awareness about mental health issues and advocating for better mental health resources in the U.S.
+
+- **National Substance Abuse Prevention Month**: Although celebrated throughout October, awareness initiatives kick into high gear on this date, honoring efforts to prevent substance misuse.
+
+- **Bring Your Teddy Bear to Work Day**: A fun and light-hearted
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨ Every imperfection is a part of your unique journey. 💖🌟"
+"🌟 Bright days lie ahead! Embrace the journey 🌈 and let your dreams soar! 🦋✨"
