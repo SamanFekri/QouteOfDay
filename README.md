@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are a few notable events in U.S. history that have occurred on October 12:
+Here are some notable events in the USA that have occurred on October 12 throughout history:
 
-- **1492**: Christopher Columbus arrives in the Bahamas, marking the beginning of European exploration and colonization of the Americas. This event is commemorated in the United States as Columbus Day.
-  
-- **1892**: The first officially recognized Columbus Day is celebrated in the United States.
-  
-- **1960**: The first presidential debate takes place in New York City between John F. Kennedy
+- **1492**: Christopher Columbus reputedly made his first landing in the New World (in the Bahamas).
+- **1945**: The United Nations holds its first meeting, taking place in New York City.
+- **1959**: The inaugural flight of the first commercial jet, the Boeing 707, marks a new era in aviation.
+- **1976**: The construction of the "
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌈✨ Your journey is just beginning! 🚀💖"
+"Believe in the power of your dreams and watch them turn into reality! ✨🌟💖"

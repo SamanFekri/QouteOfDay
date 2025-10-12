@@ -241,3 +241,14 @@ Here are a few notable events in U.S. history that have occurred on October 12:
 ### Quote of the day
 "Believe in the magic of new beginnings! ✨🌈✨ Your journey is just beginning! 🚀💖"
 -----
+## Sunday, 12 October, 2025
+### Events
+Here are some notable events in the USA that have occurred on October 12 throughout history:
+
+- **1492**: Christopher Columbus reputedly made his first landing in the New World (in the Bahamas).
+- **1945**: The United Nations holds its first meeting, taking place in New York City.
+- **1959**: The inaugural flight of the first commercial jet, the Boeing 707, marks a new era in aviation.
+- **1976**: The construction of the "
+### Quote of the day
+"Believe in the power of your dreams and watch them turn into reality! ✨🌟💖"
+-----
