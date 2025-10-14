@@ -1,12 +1,14 @@
-### 📅 Monday, 13 October, 2025
+### 📅 Tuesday, 14 October, 2025
 ------
 ### Events
 ------
-Certainly! Here are a few notable events in U.S. history that occurred on October 13:
+Here are some notable events that occurred in U.S. history on October 14:
 
-- **1775**: The United States Navy was established by the Continental Congress, marking a significant step in the development of the American military.
-- **1943**: Italian-American celebration marks the end of fascism in Italy as an Allied Army captures the city of Naples during World War II.
-- **1960**: The third presidential debate between John F. Kennedy and Richard Nixon takes place
+- **1964**: Martin Luther King Jr. was awarded the Nobel Peace Prize for his role in the civil rights movement, making him the youngest recipient of the prize at that time.
+  
+- **1994**: The United States military launched an invasion in the Caribbean nation of Haiti to restore President Jean-Bertrand Aristide, after a coup had led to his ouster.
+  
+- **2003**
 ### Positive Qoute
 ------
-"Believe in the magic of your dreams ✨🌟—they have the power to light up your path! 🚀🌈"
+"Believe in the magic of new beginnings! 🌟✨ Every day is a fresh start filled with potential! 🌼🌈"
