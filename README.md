@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in U.S. history on October 14:
+Here are some notable events that have occurred in the USA on October 14 throughout the years:
 
-- **1964**: Martin Luther King Jr. was awarded the Nobel Peace Prize for his role in the civil rights movement, making him the youngest recipient of the prize at that time.
-  
-- **1994**: The United States military launched an invasion in the Caribbean nation of Haiti to restore President Jean-Bertrand Aristide, after a coup had led to his ouster.
-  
-- **2003**
+- **1947**: U.S. Air Force pilot Chuck Yeager became the first person to break the sound barrier in the Bell X-1 aircraft, named "Glamorous Glennis."
+- **1964**: Dr. Martin Luther King Jr. was awarded the Nobel Peace Prize, notably for his leadership in the American civil rights movement.
+- **1978**: Future President Ronald Reagan
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! 🌟✨ Every day is a fresh start filled with potential! 🌼🌈"
+"Believe in yourself and all that you are! ✨🌟 You have the power to achieve great things! 💪😊"
