@@ -2,15 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on or around October 15:
+Here are some events that occur in the USA around October 15th:
 
-- **National White Cane Safety Day** (October 15)  
-  - Established to raise awareness about the significance of the white cane in promoting independence and safety for individuals who are blind or visually impaired.
+- **National Latinx Heritage Month**: Recognized from September 15 to October 15, this month honors the contributions of Latinx Americans to the country's history and culture.
+  
+- **National Pregnant Women's Day**: Observed on October 15, this day raises awareness about issues facing pregnant women.
 
-- **Sweetest Day** (Third Saturday in October, which can sometimes fall on or near October 15)  
-  - A day to celebrate loved ones and kindness by giving small gifts and treats.
-
--
+- **World Students' Day**: While this is an international observance on October 15 in honor of
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱💖"
+"Every day may not be good, but there’s something good in every day! 🌟✨😄"
