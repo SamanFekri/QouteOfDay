@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are a few notable events that occur on or around October 16 in the USA:
+Here are some notable events that occurred on October 16th in U.S. history:
 
-- **National Boss's Day (October 16)**: A day to celebrate and appreciate the hard work and leadership of bosses and supervisors in the workplace.
-- **World Food Day (October 16)**: While it's a global observance, various events and activities are organized in the U.S. to raise awareness about food security and sustainable agriculture.
-- **1834 – The Sternwheel Packet Steamboat
+- **1859**: John Brown's Raid on Harpers Ferry - An attempt by abolitionist John Brown to initiate an armed slave revolt by taking control of the United States arsenal at Harpers Ferry, Virginia.
+  
+- **1934**: Yosemite National Park was established as a national park in California to protect the natural beauty and ecological aspects of the area.
+
+- **1962**: Cuban Missile Crisis
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 You are capable of amazing things! 🌈✨"
+"Believe in the magic within you! ✨✨ Keep shining your light! 🌟💖"
