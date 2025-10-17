@@ -1,14 +1,14 @@
-### 📅 Thursday, 16 October, 2025
+### 📅 Friday, 17 October, 2025
 ------
 ### Events
 ------
-Here are some notable events that occurred on October 16th in U.S. history:
+Here are some notable events that have occurred in the USA on October 17th:
 
-- **1859**: John Brown's Raid on Harpers Ferry - An attempt by abolitionist John Brown to initiate an armed slave revolt by taking control of the United States arsenal at Harpers Ferry, Virginia.
+- **1917**: The first use of the army-provided food-known as the "American Diet" began among fighting soldiers during World War I, which greatly influenced nutrition.
   
-- **1934**: Yosemite National Park was established as a national park in California to protect the natural beauty and ecological aspects of the area.
+- **1931**: Al Capone was sentenced to 11 years in prison for tax evasion. This was a significant moment in the fight against organized crime during the Prohibition era.
 
-- **1962**: Cuban Missile Crisis
+- **1956**: The
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨✨ Keep shining your light! 🌟💖"
+"Every day may not be good, but there's something good in every day! 🌟😊✨"
