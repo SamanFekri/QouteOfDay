@@ -1,14 +1,14 @@
-### 📅 Friday, 17 October, 2025
+### 📅 Saturday, 18 October, 2025
 ------
 ### Events
 ------
-Certainly! Here are some notable events that have occurred on October 17th in the USA:
+Here are some notable events that occurred in the USA on October 18 throughout history:
 
-- **1979**: The first official National International Day for the Eradication of Poverty.
+- **1931**: Restoration efforts begin at the faces of Mount Rushmore, started by the sculptor, Gutzon Borglum.
   
-- **1991**: The U.S. hosts the first official practice day before the MLB World Series allowing for media coverage and promotion, featuring instant replay technology.
+- **1945**: The first-ever re-election of a vice president in the US; Harry S. Truman was elected as Vice President.
 
-- **1992**:** Major League Baseball Young pitching phenom, Dwight Gooden** gets a perfect game designation when cleanup flames
+- **1982**: A critical silicon chip defect among National Semiconductor’s products triggers accusations of neglecting product testing and
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌈🎈"
+"Every day may not be good, but there is something good in every day. 🌞✨ Keep shining!"
