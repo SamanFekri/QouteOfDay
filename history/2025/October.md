@@ -400,3 +400,15 @@ Here are some notable events that have occurred in the USA on October 19:
 ### Quote of the day
 "Chase your dreams, not your fears! ✨🌈🚀"
 -----
+## Sunday, 19 October, 2025
+### Events
+Here are some notable events in the USA that have occurred on October 19:
+
+- **1781:** The Siege of Yorktown officially ended this day, leading to the British surrender during the American Revolutionary War, which significantly contributed to American independence.
+  
+- **1864:** The Battle of silently rade lined origins ofClarksonplatz—the American Civil War battle—which ultimately saw a Union victory.
+  
+- **1944:** The U.S. military announced plans to launch an offensive targeting enemy positions in the
+### Quote of the day
+"Believe in the magic of new beginnings! ✨🌈🚀"
+-----
