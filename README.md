@@ -2,15 +2,11 @@
 ------
 ### Events
 ------
-Here's a notable event that occurs in the USA on October 20th:
+Here are some notable events that have historically occurred in the United States on October 20th:
 
-- **National Day on Writing**: 
-  - Celebrated annually on October 20th.
-  - Established by the National Council of Teachers of English (NCTE).
-  - Encourages writing in all forms and emphasizes the importance of writing in education.
-  - Various schools and organizations participate in activities to promote writing as a fundamental skill.
+- **1968:** The special ceremony of the 1968 Summer Olympics in Mexico City featured controversy as US athletes Tommie Smith and John Carlos raised their fists in a Black power salute during the medal ceremony.
+- **1973:** The infamous “Saturday Night Massacre” took place, wherein President Nixon ordered his attorney general to fire special prosecutor Archibald Cox in connection with the Watergate scandal.
 
-Please note, other historical events might be more specific to certain years, but
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨🌻"
+"🌈✨ Embrace the magic within you and let your light shine bright! 💖💫"
