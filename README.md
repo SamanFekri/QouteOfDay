@@ -1,12 +1,14 @@
-### 📅 Monday, 20 October, 2025
+### 📅 Tuesday, 21 October, 2025
 ------
 ### Events
 ------
-Here are some notable events that have historically occurred in the United States on October 20th:
+Here are some events that have taken place in the USA on October 21:
 
-- **1968:** The special ceremony of the 1968 Summer Olympics in Mexico City featured controversy as US athletes Tommie Smith and John Carlos raised their fists in a Black power salute during the medal ceremony.
-- **1973:** The infamous “Saturday Night Massacre” took place, wherein President Nixon ordered his attorney general to fire special prosecutor Archibald Cox in connection with the Watergate scandal.
+- **1854**: The "Black Warrior" incident occurred; a diplomatic crisis related to Spain and its suspected misconduct with American ships, leading to heightened tensions.
+  
+- **1996**: The first episode of the cartoon series "The Real World," known for pioneering reality television, premiered on MTV.
 
+- **2001**: The long-running NBC series "Will & Grace" aired its fourth season premiere,
 ### Positive Qoute
 ------
-"🌈✨ Embrace the magic within you and let your light shine bright! 💖💫"
+"Believe in your dreams, and they may just become your reality! ✨🌈🌟"
