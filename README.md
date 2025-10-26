@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that took place in the USA on October 26:
+Here are some events that take place on October 26 in the United States:
 
-- **1881:** The Gunfight at the O.K. Corral occurred in Tombstone, Arizona. It lasted about 30 seconds and involved lawmen Wyatt Earp, his brothers Virgil and Morgan, and local gambler Doc Holliday facing off against Cowboy outlaws.
+- **National Day of Mourning**: Observed by many Native Americans to commemorate the loss of their lands and the impact of colonization.
+  
+- **Federation of Fly Fishers Day**: A celebration held by the Federation of Fly Fishers to promote the art of fly fishing and conservation efforts.
 
-- **1945:** The initiation of the American National Red Cross and the University of California, Berkeley establishing observation of “Think Fast Day,”
+- **Halloween Plans and Preparations**: Many people start planning and preparing for Halloween on October 26,
 ### Positive Qoute
 ------
-"Believe in yourself and magic will unfold! ✨💖🌈"
+"Believe in the magic of new beginnings! ✨🌱💖"
