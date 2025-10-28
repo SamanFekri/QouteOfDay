@@ -2,14 +2,12 @@
 ------
 ### Events
 ------
-Here are some events that have been noted to take place on October 28 in the USA:
+Here are some notable events that have occurred in the USA on October 28th:
 
-- **National Chocolate Day**: A day to celebrate chocolate and indulge in various chocolate treats, starting enthusiastically in homes and businesses across the country.
-  
-- **National Knit a Sweater Month Begins**: An initiative encouraging individuals to engage in knitting throughout October. 
-
-- **Birthdays of Notable Figures**: Several notable individuals in American history were born on this date, including:
-  - **
+- **1886**: The Statue of Liberty was officially dedicated by President Grover Cleveland in New York Harbor.
+- **1948**: The “Brown v. Board of Education” case concerning racial segregation in public schools was initiated.
+- **1971**: The 8th and final episode of the famous television miniseries “Roots,” based on Alex Haley's novel, was broadcast.
+- **
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌻 Every step you take is a step towards a brighter tomorrow. 🌈💪"
+"Believe in the magic of new beginnings! ✨🌱💖"
