@@ -1,13 +1,14 @@
-### 📅 Tuesday, 28 October, 2025
+### 📅 Wednesday, 29 October, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on October 28th:
+Here are some notable events that have occurred on October 29 in U.S. history:
 
-- **1886**: The Statue of Liberty was officially dedicated by President Grover Cleveland in New York Harbor.
-- **1948**: The “Brown v. Board of Education” case concerning racial segregation in public schools was initiated.
-- **1971**: The 8th and final episode of the famous television miniseries “Roots,” based on Alex Haley's novel, was broadcast.
-- **
+- **1929**: **Stock Market Crash of 1929** (Black Tuesday) - The stock market crash marked the beginning of the Great Depression, leading to widespread economic turmoil.
+  
+- **1969**: **First Message Sent Over ARPANET** - The first successful message transferred between two computers, laying the groundwork for the Internet.
+
+- **2004**: **Halloween Is Coming -
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱💖"
+"Every day may not be good, but there’s something good in every day. 🌟✨😊"
