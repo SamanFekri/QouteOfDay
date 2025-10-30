@@ -635,3 +635,11 @@ Here are some notable events that occurred in the USA on October 29:
 ### Quote of the day
 "Your spark can ignite the world! 💫✨ Keep shining brightly, and let your positivity spread! 🌟❤️"
 -----
+## Thursday, 30 October, 2025
+### Events
+- **Halloween Celebrations**: Although Halloween officially occurs on October 31, various events and celebrations often start the day before, setting the festive mood with costumes, decorations, and themed parties.
+- **Samhain**: For many Pagan traditions, Samhain is celebrated beginning at sunset on October 30, marking the end of the harvest season and the beginning of winter.
+- **Haunted Attractions**: Numerous haunted houses and spooky events across the country might be operating on this date as part
+### Quote of the day
+"Every day may not be good, but there's something good in every day. 🌟✨😊"
+-----
