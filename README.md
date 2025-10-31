@@ -1,14 +1,12 @@
-### 📅 Thursday, 30 October, 2025
+### 📅 Friday, 31 October, 2025
 ------
 ### Events
 ------
-Here are a few notable events and observances that occur on October 30th in the USA:
+Here are some notable events and observances that take place on October 31 in the USA:
 
-- **National Create a Great Funeral Day**: A day dedicated to planning and thinking about end-of-life celebrations, encouraging people to consider their wishes for a funeral.
-
-- **National Bookstore Day**: A focus on promoting and celebrating independent bookstores across the nation.
-
-- **Haunting Halloween Preparations**: As Halloween approaches on October 31st, many people engage in final preparations for the holiday
+- **Halloween**: Celebrated with costumes, trick-or-treating, haunted houses, and various festivities where people display decorations featuring witches, ghosts, and other spooky themes.
+- **National Knock-Knock Jokes Day**: A lighthearted day encouraging laughter and sharing of knock-knock jokes.
+- **National Caramel Apple Day**: Celebrating the delicious treat of caramel-coated apples,
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 🌟 The journey begins with a single step. 🚀✨"
+"Believe in yourself! ✨ Every step you take is a step closer to your dreams! 🌟💪"
