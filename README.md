@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-- **Election Day (2024):** In the USA, general elections for federal offices, including the presidency, and various state and local positions are held on the first Tuesday after the first Monday of November. The date for the general election in 2024 falls on November 4th. 
+Here are a few notable events in the USA that have occurred on November 4th throughout history:
 
-- **Previous Notable Elections:** Other significant elections have also occurred on November 4th. Candidates and issues appear on ballots affecting local communities, states, or nationwide.
+- **1735**: Broadcast of one of the earliest episodes of "the New-England Weekly Journal," representing an early initiative in American print media.
+  
+- **1842**: Abraham Lincoln marries Mary Todd in Springfield, Illinois, marking a significant event in the personal life of one of America’s most iconic presidents.
 
-This date is usually reserved for
+- **1922**: The tomb of the ancient Egyptian Pharaoh Tut
 ### Positive Qoute
 ------
-"Believe in yourself and every dream becomes possible! 🌟💪✨"
+"Every day may not be good, but there's something good in every day! 🌟😊✨"
