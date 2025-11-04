@@ -64,3 +64,13 @@ On November 3rd, several notable events and holidays have occurred in the USA ov
 ### Quote of the day
 "Every day is a fresh start 🎉✨ Embrace the possibilities and shine your light! 🌈💖"
 -----
+## Tuesday, 04 November, 2025
+### Events
+- **Election Day (2024):** In the USA, general elections for federal offices, including the presidency, and various state and local positions are held on the first Tuesday after the first Monday of November. The date for the general election in 2024 falls on November 4th. 
+
+- **Previous Notable Elections:** Other significant elections have also occurred on November 4th. Candidates and issues appear on ballots affecting local communities, states, or nationwide.
+
+This date is usually reserved for
+### Quote of the day
+"Believe in yourself and every dream becomes possible! 🌟💪✨"
+-----
