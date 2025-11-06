@@ -1,13 +1,10 @@
-### 📅 Wednesday, 05 November, 2025
+### 📅 Thursday, 06 November, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur annually in the United States on November 5:
-
-- **Election Day**: Many local, state, and federal elections are often held on the first Tuesday after the first Monday in November, which can fall on November 5 during election years.
-- **National Candle Day**: This unofficial holiday celebrates candles as a source of light and scent; it's a time for candle-related promotions and sales.
-
-Please check state-specific events or celebrations, as they can vary.
+- **2024 U.S. Presidential Election**: Voters across the country will head to the polls to elect the President, all 435 members of the House of Representatives, 33 Senate seats, and numerous state and local offices.
+- **National Saxophone Day**: An annual observance dedicated to celebrating the saxophone and recognizing its impact on music and jazz culture.
+- **World Spay Day**: While not specific to the USA, advocacy events might occur to promote the spaying
 ### Positive Qoute
 ------
-"Believe in your dreams and chase them with passion! ✨🌟💪"
+"Believe in the magic of new beginnings! 🌟✨ Every day is an opportunity to shine bright and chase your dreams! 🌈🚀"
