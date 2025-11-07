@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some significant events and observances that occur in the USA on November 7:
+Here are some events that occur on November 7 in the USA:
 
-- **Election Day (first Tuesday after the first Monday in November)**: Often, national, state, and local elections are held on this day. In even-numbered years, it typically includes elections for Congress (the House of Representatives and one-third of the Senate) and various state and local offices.
-  
-- **National Do Something Nice Day**: An informal observance encouraging people to perform nice acts for
+- **Election Day** (varying year): Many states hold general elections on the first Tuesday after the first Monday in November, which can fall on November 7.
+- **Career Development Month**: This observation, which often includes events and workshops focused on professional growth, is recognized in November.
+- **Contact Five Day**: An observance advocating for young adults to reach out to five people who have supported them for career
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟✨❤️"
+"Embrace the rain, and let it nourish your soul! ☔✨🌈"
