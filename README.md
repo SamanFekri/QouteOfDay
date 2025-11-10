@@ -1,16 +1,14 @@
-### 📅 Sunday, 09 November, 2025
+### 📅 Monday, 10 November, 2025
 ------
 ### Events
 ------
-Here are some significant events in U.S. history that have occurred on November 9:
+Here are several events that typically take place in the USA on November 10th:
 
-- **1850**: The Gallatin Guard of Chicago is formally recognized.
-  
-- **1965**: The Northeast blackout occurs, leaving approximately 30 million people in the dark for up to 13 hours.
+- **Marine Corps Birthday**: This day traditionally honors the establishment of the United States Marine Corps in 1775.
+- **College Football Games**: Various college football games are often scheduled on this date during the football season.
+- **National Debate Day**: Observed to promote student engagement in societal issues and civic discourse (not officially recognized nationwide).
 
-- **1989**: The Berlin Wall falls, leading to a wave of democratization in Eastern Europe and significant changes in U.S. foreign policy dynamics.
-
-- **2004**:
+Please check a reliable calendar for specific events in a particular year
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟✨💖"
+"Every day is a fresh start. Embrace the sparkle and chase your dreams! ✨🌈🌟"
