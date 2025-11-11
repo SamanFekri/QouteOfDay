@@ -1,18 +1,11 @@
-### 📅 Monday, 10 November, 2025
+### 📅 Tuesday, 11 November, 2025
 ------
 ### Events
 ------
-Here are some notable U.S. events that occur on November 10:
-
-- **United States Marine Corps Birthday**: 
-  - Commemorates the establishment of the Marine Corps in 1775.
-  - Celebrated with ceremonies, balls, and events honoring Marines and their history.
-
-- **National Cappuccino Day**: 
-  - A day to enjoy and celebrate the popular coffee drink.
-
-- **Tote Bags & Causes Charity Day**: 
-  - Various campaigns and awareness events surrounding
+- **Veterans Day**: Commemorates military veterans who have served in the United States Armed Forces.
+- **Observance**: Established as a federal holiday in 1954, initially named Armistice Day to mark the end of World War I.
+- **Events**: Various parades, ceremonies, and educational events are held across the country to honor veterans, including memorial services and community gatherings.
+- **Discounts and Benefits**: Many businesses offer discounts to veterans and active duty
 ### Positive Qoute
 ------
-"Celebrate every small victory! 🌼✨ It's the little things that lead to big changes! 🚀🌟"
+"Believe in yourself and all that you are! 🌟✨ You are capable of amazing things! 💪😄"
