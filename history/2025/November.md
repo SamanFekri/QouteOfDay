@@ -236,3 +236,14 @@ Here are some notable U.S. events that occur on November 10:
 ### Quote of the day
 "Believe in yourself and all that you are! 🌟✨ You are capable of amazing things! 💪😄"
 -----
+## Tuesday, 11 November, 2025
+### Events
+- **Veterans Day** (November 11):
+  - Observance of military veterans who have served in the United States Armed Forces.
+  - originally known as Armistice Day, which commemorated the end of World War I.
+  - Celebrations include parades, ceremonies, and educational events.
+  - Many stores offer discounts and promotions in honor of veterans.  
+  - A federal holiday, meaning government offices and many schools are closed.
+### Quote of the day
+"Every day is a new beginning! 🌅 Embrace the possibilities and let your dreams soar! 🚀✨"
+-----
