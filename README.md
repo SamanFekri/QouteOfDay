@@ -1,13 +1,14 @@
-### 📅 Tuesday, 11 November, 2025
+### 📅 Wednesday, 12 November, 2025
 ------
 ### Events
 ------
-- **Veterans Day** (November 11):
-  - Observance of military veterans who have served in the United States Armed Forces.
-  - originally known as Armistice Day, which commemorated the end of World War I.
-  - Celebrations include parades, ceremonies, and educational events.
-  - Many stores offer discounts and promotions in honor of veterans.  
-  - A federal holiday, meaning government offices and many schools are closed.
+Here are some notable events in the USA that occur around November 12:
+
+- **Veterans Day Parades and Activities (November 11)**: Celebrated throughout the country to honor military veterans. Many events and ceremonies often extend into the week of November 12.
+  
+- **Available Thanksgiving Shopping Promotions**: This date falls above Black Friday with retailers starting sales and early bird promotions as people begin picking up items for the Thanksgiving holiday.
+  
+- **American Heart Month Awareness**: November is recognized
 ### Positive Qoute
 ------
-"Every day is a new beginning! 🌅 Embrace the possibilities and let your dreams soar! 🚀✨"
+"Embrace each day with a smile 😊 and let your light shine bright ✨!"
