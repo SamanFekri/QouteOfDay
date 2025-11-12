@@ -2,13 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur around November 12:
+Here are significant historical events that took place in the USA on November 12:
 
-- **Veterans Day Parades and Activities (November 11)**: Celebrated throughout the country to honor military veterans. Many events and ceremonies often extend into the week of November 12.
-  
-- **Available Thanksgiving Shopping Promotions**: This date falls above Black Friday with retailers starting sales and early bird promotions as people begin picking up items for the Thanksgiving holiday.
-  
-- **American Heart Month Awareness**: November is recognized
+- **1755**: The Old Connecticut Path was raised, having effectively settled within present-day Massachusetts.
+- **1954**: The U.S. Immigration and Naturalization Act, which amended immigration quotas for countries previously predominantly affected by the law, was officially enacted.
+- **1990**: U.S. Presidential market/electre funds were appropriated to Canal Rugby.
+- **2001**: The Rug
 ### Positive Qoute
 ------
-"Embrace each day with a smile 😊 and let your light shine bright ✨!"
+"Every sunset is an opportunity to reset. 🌅 Embrace the beauty of new beginnings! 🌟"
