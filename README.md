@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that have occurred on November 13 throughout history:
+Here are some notable events that have occurred in the USA on November 13 throughout history:
 
-- **1965**: The first Virtual Reality head-mounted display is patented by computer scientist Ivan Sutherland.
-- **1994**: The last episode of the animated television show "The Tick" airs.
-- **2001**: The first indoor fireworks display occurs post-9/11 as part of the change in security regulations.
-- **2015**: A compliant shops’ major establishment means upgrades
+- **1765**: The first modern gas lamp was lit in Boston, Massachusetts, marking a significant advancement in urban lighting.
+- **1970**: The solo (which took just minutes) of "The Storms of Summer" recorded in New York City created by Moody Blues was climbed in Nashville in 1970 by Bobby Womack and a miniature Spanish guitar for songwriting sessions.
+- **198
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨ You're capable of amazing things! 🌟🚀"
+"Every day may not be good, but there’s something good in every day. 😊✨🌈"
