@@ -2,15 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events that occur annually in the USA on November 14:
+Here are a few notable events in the USA that take place on November 14:
 
-- **National Pickle Day**: A day to celebrate pickles and all things pickled.
-  
-- **Pre-World Personality Day**: An unofficial observance aimed at emphasizing psychological health and reflection on personality profiles.
-  
-- **World Diabetes Day**: Though an international observance, many health organizations in the USA hold awareness events on this day, focusing on diabetes education and management.
-  
-If there are historical
+- **World Diabetes Day**: An international event observed on November 14, aiming to raise awareness about diabetes and its impact on communities. It commemorates the birthday of Sir Frederick Banting, who co-discovered insulin.
+
+- **National Novel Writing Month (NaNoWriMo)**: November is designated for NaNoWriMo, where aspiring writers attempt to write a novel of 50,000 words
 ### Positive Qoute
 ------
-"🌟 Every day may not be good, but there's something good in every day. 😊💖"
+"Believe in yourself and all that you are! 🌟✨ Your journey is just beginning! 🚀💖"
