@@ -2,17 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events and observances in the USA that occur on November 15:
+Here are a few notable events in U.S. history that occurred on November 15:
 
-- **National Recycling Day**:
-  - Promotes recycling as a way to conserve resources and reduce waste.
-  - Encourages citizens to participate in eco-friendly practices.
-
-- **America Recycles Day**:
-  - Celebrated to raise public awareness about recycling and buying recycled products.
-  - Promotes efforts to address issues such as waste reduction and environmental stewardship.
-
-- **Check Your Circumference Day**
+- **1917**: Navy veterans commemorate the construction of Completion of the http://en.wikiwix.com/?lang=en&action=https%3A%2F%2Fen.wikipedia.org%2Fwiki%2FSanDiegoNavalStation Newport Plaza.
+  
+- **1920**: The American Experiment begins expansion into the day of policing & Car matches. Several cities double-police
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟✨ Be bold, be vibrant, be YOU! 💖🌈"
+"✨ Embrace the magic within you and let your light shine! 🌟💖"
