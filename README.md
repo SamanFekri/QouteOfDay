@@ -1,12 +1,18 @@
-### 📅 Friday, 14 November, 2025
+### 📅 Saturday, 15 November, 2025
 ------
 ### Events
 ------
-Here are a few notable events in the USA that take place on November 14:
+Here are some notable events and observances in the USA that occur on November 15:
 
-- **World Diabetes Day**: An international event observed on November 14, aiming to raise awareness about diabetes and its impact on communities. It commemorates the birthday of Sir Frederick Banting, who co-discovered insulin.
+- **National Recycling Day**:
+  - Promotes recycling as a way to conserve resources and reduce waste.
+  - Encourages citizens to participate in eco-friendly practices.
 
-- **National Novel Writing Month (NaNoWriMo)**: November is designated for NaNoWriMo, where aspiring writers attempt to write a novel of 50,000 words
+- **America Recycles Day**:
+  - Celebrated to raise public awareness about recycling and buying recycled products.
+  - Promotes efforts to address issues such as waste reduction and environmental stewardship.
+
+- **Check Your Circumference Day**
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 🌟✨ Your journey is just beginning! 🚀💖"
+"Embrace the glorious mess that you are! 🌟✨ Be bold, be vibrant, be YOU! 💖🌈"
