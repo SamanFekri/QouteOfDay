@@ -1,12 +1,12 @@
-### 📅 Sunday, 16 November, 2025
+### 📅 Monday, 17 November, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on November 16:
+Here are some notable events that have occurred in the USA on November 17:
 
-- **1965**: American radio and television host Walter Cronkite made a notable statement urging for the continuation of U.S. involvement in the Vietnam War.
-- **2001**: U.S. President George W. Bush announced that the military campaign in Afghanistan would run into the winter months, highlighting the ongoing fight against terrorism post-9/11.
-- **2011**: The "Occupy Wall Street
+- **1968:** The first "Monday Night Football" game was televised, marking a significant event in sports broadcasting history.
+- **1973:** President Richard Nixon famously declared, "I am not a crook," during a televised press conference, in response to questions about the Watergate scandal.
+- **2003:** The ping of a signal from the Mars Exploration Rover, Spirit, was received, indicating the successful
 ### Positive Qoute
 ------
-"Every day is a new beginning. 🍃 Embrace the possibilities and shine your light! ✨😊"
+"Believe in the magic within you ✨🌈, and let your dreams soar high! 🚀💖"
