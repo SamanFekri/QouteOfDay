@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on November 18th:
+Here are some events that commonly occur on November 18 in the USA:
 
-- **1883**: "The Man on the Train" helped standardize time zones in the U.S.
-- **1928**: Mickey Mouse made his debut in the animated short film "Steamboat Willie," marking a significant moment in animation history.
-- **1978**: The Jonestown Massacre took place, leading to the tragic deaths of over 900 members of the Peoples Temple in Guy
+- **National Educational Support Professionals Day**: Recognized on the Wednesday of American Education Week during the week of Thanksgiving to honor the critical role of educational support professionals in schools.
+  
+- **Mickey Mouse Day**: Celebrates the anniversary of the release of Mickey Mouse's first film, "Steamboat Willie," on November 18, 1928, marking the character's official debut.
+  
+- **Special Observ
 ### Positive Qoute
 ------
-"Keep looking up, there's always a bright light shining above you! ✨🌟🌈"
+"Believe in the magic of new beginnings! 🌟✨ Every sunrise brings a fresh start. ☀️😊"
