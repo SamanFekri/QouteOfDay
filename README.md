@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some significant events in U.S. history that have occurred on November 20:
+Here are some events that typically occur in the USA on or around November 20:
 
-- **1985**: Microsoft announced the release of Windows 1.0, their first graphical operating system.
-- **1959**: The **United Nations** adopted the "Declaration of the Rights of the Child," affirming universal children’s rights. 
-- **1962**: Mariner 2 made the first successful flyby of Mars by a spacecraft, transmitting information about the planet back to
+- **World Children's Day**: Celebrated on November 20, this day promotes the welfare and rights of children around the world, often recognized with various events and advocacy by NGOs and communities.
+
+- **Transgender Day of Remembrance (TDOR)**: Observed on November 20, this day is held to honor the memory of those killed because of anti-transgender hatred or prejudice and to raise awareness about
 ### Positive Qoute
 ------
-"🌟 Believe in yourself and all that you are. 🎉 You are capable of incredible things! 💪✨"
+"🌟 Every day is a new beginning, take a deep breath, and start again. 💫 Keep shining!"
