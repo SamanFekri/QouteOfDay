@@ -1,12 +1,15 @@
-### 📅 Friday, 21 November, 2025
+### 📅 Saturday, 22 November, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on or around November 21:
+Here are some notable events in the USA that occur on November 22:
 
-- **National Play Day with Dad**: Celebrated to encourage fathers and father figures to engage in activities with their children, fostering bonding and promoting father-child relationships.
-- **National Homemade Bread Day**: A day that celebrates the art of homemade bread-making, encouraging individuals and families to bake bread together.
-- **World Television Day**: Though not exclusively in the USA, this day highlights the impact of television on
+- **Thanksgiving Day (Date varies each year)**:
+  - Though celebrated on the fourth Thursday in November, which can sometimes be on November 22, Thanksgiving is a major national holiday.
+  - It includes traditions such as family gatherings, feasting on turkey, and expressing gratitude.
+
+- **Assassination of President John F. Kennedy (1963)**:
+  - John. F. Kennedy was assassinated in
 ### Positive Qoute
 ------
-"Your potential is endless! 🌈✨ Chase your dreams fearlessly! 🚀💖"
+"Every day is a new beginning; take a deep breath, smile, and start again! 🌅😊✨"
