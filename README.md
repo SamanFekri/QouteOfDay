@@ -1,17 +1,14 @@
-### 📅 Saturday, 22 November, 2025
+### 📅 Sunday, 23 November, 2025
 ------
 ### Events
 ------
-Here’s a significant event that occurs in the USA on November 22:
+Here are some notable events in the USA that take place annually on November 23rd:
 
-- **Thanksgiving Celebrations**: 
-  - Generally observed on the fourth Thursday in November, which occasionally falls on or near November 22.
-  - A day for families and friends to gather together for a holiday meal, traditionally centered around turkey, stuffing, and various sides.
-  - Involves various customs, such as sharing what one is thankful for and pumpkin pie for dessert.
+- **Thanksgiving Day**: Although Thanksgiving varies, it is often celebrated on the fourth Thursday of November, which may coincide with or be close to November 23rd.
+  
+- **National Espresso Day**: Celebrated on November 23rd, this day highlights the appreciation for espresso and coffee culture in the U.S.
 
-**Additionally:**
-
-- **
+- **United Nations Day for the Elimination of Violence against Women**: While
 ### Positive Qoute
 ------
-"Believe in yourself, and magic will happen! ✨💪🌟"
+"🌟 Every day is a new beginning. We can rewrite our stories! 📖✨"
