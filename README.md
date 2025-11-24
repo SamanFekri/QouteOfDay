@@ -1,13 +1,12 @@
-### 📅 Sunday, 23 November, 2025
+### 📅 Monday, 24 November, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur in the USA on November 23rd:
+Here are some notable events that have occurred in the USA on November 24:
 
-- **Thanksgiving Day (Fourth Thursday of November)**: 
-  - **Significance**: A national holiday celebrating the harvest and blessings of the past year.
-  - **Traditions**: Families often come together to share a traditional meal that typically includes turkey, stuffing, and pumpkin pie. 
-  - **Parades and Shopping**: The Macy's Thanksgiving Day Parade occurs in New York City, kicking off
+- **Thanksgiving (Fourth Thursday in November)**: While Thanksgiving varies each year, many families celebrate it on the fourth Thursday in November, which can sometimes fall on or around November 24. It is a holiday of gratitude and feasting.
+
+- **Black Friday (Day after Thanksgiving)**: This shopping holiday often occurs on November 24 if Thanksgiving is celebrated on the fourth Thursday. It marks the start of the Christmas
 ### Positive Qoute
 ------
-"Believe in your dreams and the magic within you! ✨💫🌟 Keep shining and spreading love! ❤️😊"
+"Believe in yourself, and the world will believe with you! ✨🌈💪"
