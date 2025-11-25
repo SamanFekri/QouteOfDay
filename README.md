@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that occur in the USA on November 25:
+Here are some notable events that take place in the USA on November 25th:
 
-- **Thanksgiving Holiday Observance:** Many families in the U.S. continue Thanksgiving traditions with gatherings, feasting, and seasonal activities.
-- **Black Friday Sales:** The day after Thanksgiving marks the start of the holiday shopping season, with major sales and promotions from retailers across the country.
-- **National Native American Heritage Day:** Recognized on the Friday after Thanksgiving to honor Native American culture and traditions.
-
-These observances can
+- **Black Friday**: The day after Thanksgiving marked by significant retail sales and shopping events.
+- **Thanksgiving observations**: Many families continue to gather and celebrate after Thanksgiving Day weekend.
+- **Various Historical Events**: 
+  - 1947 - The "Hollywood Ten" were cited for contempt of Congress for refusing to respond in a House Un-American Activities Committee (HUAC) investigation.
+  - 
 ### Positive Qoute
 ------
-"Optimism is the whispers of hope that guide us to brighter days. 🌅✨💖"
+"Believe in the magic within you! ✨🌟 Your potential is limitless! 🚀💖"
