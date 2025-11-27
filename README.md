@@ -2,10 +2,11 @@
 ------
 ### Events
 ------
-- **Thanksgiving Day**: Although Thanksgiving is celebrated on the fourth Thursday in November, many traditions and events surrounding Thanksgiving take place in late November.
-- **Black Friday Shopping**: The day after Thanksgiving, typically falls on November 27 if Thanksgiving occurs early in the month, marking the unofficial start of the holiday shopping season.
-- **Cyber Monday Planning**: Following Black Friday, many stores begin promoting discounts for Cyber Monday, which typically falls in the first week of December.
-- **Various Holiday
+Here are some notable events that have occurred in the USA on November 27:
+
+- **Thanksgiving Weekend Shopping Kickoff**: The Friday after Thanksgiving, commonly known as Black Friday, leads to a shopping extravaganza that extends into the weekend, often starting on November 27.
+- **1943 - Convening of the Tehran Conference**: Although this year did not coincide with November 27, it led to discussions among major leaders that influenced WWII efforts.
+- **1787 - Alexander Hamilton publishes
 ### Positive Qoute
 ------
-"Believe in yourself and magic will happen! ✨🌟💖"
+"Shine bright like the sun ☀️⭐️ and let your light inspire those around you! ✨❤️"
