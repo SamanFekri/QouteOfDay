@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on November 28:
+Here are some notable events that occur in the USA on or around November 28:
 
-- **Thanksgiving:**
-  - Thanksgiving is celebrated on the fourth Thursday of November each year. While the date varies, it often falls on or around November 28, making it a significant national holiday dedicated to giving thanks, family gatherings, and traditional meals like turkey and stuffing.
-
-- **National Day of Mourning:**
-  - Observed on the fourth Thursday in November, this event acknowledges the struggles of Native Americans
+- **Thanksgiving**: Celebrated on the fourth Thursday of November, Thanksgiving often falls close to or on November 28. It's a holiday dedicated to giving thanks, family gatherings, turkey dinners, and various traditions.
+  
+- **Cyber Monday**: The Monday following Thanksgiving, which varies each year, often serves as one of the biggest online shopping days in the U.S. It provides retailers with an opportunity to
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! ☀️✨💪"
+"Believe in the magic of new beginnings! ✨🌱🌈"
