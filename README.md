@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that take place on November 29 in the USA:
+Here are some notable events in the USA that occur on November 29:
 
-- **National Day of Mourning**: A yearly observance that remembers Native American history and documents the European colonization's effect on Indigenous communities in the Americas.
+- **Cyber Monday**: The Monday after Thanksgiving, also known as Cyber Monday, promotes online shopping deals and discounts. Though it was officially established in 2005, it has grown into one of the busiest online shopping days of the year.
 
-- **International Pollution Prevention Day**: An effort to raise awareness about efforts to save the environment and promote cleaner production practices globally.
+- **National Great American Smokeout**: Promoted by the American Cancer Society, this day is intended to encourage those who smoke to quit smoking or make a plan to quit.
 
-- **Advent Observance Begins (Date varies)**: Though Advent often varies and isn't fixed to November 29, some
+
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨💖 Every step you take brings you closer to your dreams! 🌈🚀"
+"Believe in yourself and all that you are. 💖✨ The best is yet to come! 🌈🌟"
