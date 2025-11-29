@@ -1,12 +1,14 @@
-### 📅 Friday, 28 November, 2025
+### 📅 Saturday, 29 November, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur in the USA on or around November 28:
+Here are some notable events that take place on November 29 in the USA:
 
-- **Thanksgiving**: Celebrated on the fourth Thursday of November, Thanksgiving often falls close to or on November 28. It's a holiday dedicated to giving thanks, family gatherings, turkey dinners, and various traditions.
-  
-- **Cyber Monday**: The Monday following Thanksgiving, which varies each year, often serves as one of the biggest online shopping days in the U.S. It provides retailers with an opportunity to
+- **National Day of Mourning**: A yearly observance that remembers Native American history and documents the European colonization's effect on Indigenous communities in the Americas.
+
+- **International Pollution Prevention Day**: An effort to raise awareness about efforts to save the environment and promote cleaner production practices globally.
+
+- **Advent Observance Begins (Date varies)**: Though Advent often varies and isn't fixed to November 29, some
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱🌈"
+"Believe in the magic within you! ✨💖 Every step you take brings you closer to your dreams! 🌈🚀"
