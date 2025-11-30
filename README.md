@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some events that commemorate or occur on November 30th in the USA:
+Here are some events that take place in the USA on November 30th:
 
-- **Saint Andrew's Day**: Celebrated in honor of Saint Andrew, the patron saint of Scotland. Some cities with Scottish heritage may hold celebrations or events.
-  
-- **National Mason Jar Day**: Celebrated by fans of canning and preserving who raise awareness and perhaps organize workshops or craft events around using mason jars.
+- **National Mistletoe Day**: A lighthearted day to celebrate mistletoe and its role in holiday traditions, particularly at Christmas. People often use it as an opportunity to decorate entries or share moments with loved ones.
 
-- **Fall NFL Games**: Typically during this time, the NFL season is in
+- **Computer Security Day**: A day dedicated to promoting awareness about cybersecurity and encouraging individuals and organizations to improve their security practices online.
+
+- **Stay Home Because You're Well Day**: While
 ### Positive Qoute
 ------
-"✨ Every day may not be good, but there’s something good in every day! 🌈💖"
+"Believe in yourself and magic will happen! ✨🌈💖"
