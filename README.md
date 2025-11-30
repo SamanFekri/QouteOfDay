@@ -1,14 +1,14 @@
-### 📅 Saturday, 29 November, 2025
+### 📅 Sunday, 30 November, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on November 29:
+Here are some events that commemorate or occur on November 30th in the USA:
 
-- **Cyber Monday**: The Monday after Thanksgiving, also known as Cyber Monday, promotes online shopping deals and discounts. Though it was officially established in 2005, it has grown into one of the busiest online shopping days of the year.
+- **Saint Andrew's Day**: Celebrated in honor of Saint Andrew, the patron saint of Scotland. Some cities with Scottish heritage may hold celebrations or events.
+  
+- **National Mason Jar Day**: Celebrated by fans of canning and preserving who raise awareness and perhaps organize workshops or craft events around using mason jars.
 
-- **National Great American Smokeout**: Promoted by the American Cancer Society, this day is intended to encourage those who smoke to quit smoking or make a plan to quit.
-
-
+- **Fall NFL Games**: Typically during this time, the NFL season is in
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 💖✨ The best is yet to come! 🌈🌟"
+"✨ Every day may not be good, but there’s something good in every day! 🌈💖"
