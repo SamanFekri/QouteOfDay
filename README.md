@@ -2,12 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that occur in the USA on December 2nd:
+Here are some notable events that have taken place in the USA on December 2nd:
 
-- **National Mutt Day**: An annual observance to raise awareness about the importance of adopting mixed-breed dogs and promoting pet adoption services.
-- **Skywatch Day**: A time for people to go outside and observe in the night sky, promoting astronomy and outdoor activity.
-- **Historical Events**:
-  - **1942**: Enrico Fermi and his team conducted the first controlled nuclear chain reaction
+- **1804**: The United States Military Academy at West Point officially opened in West Point, New York.
+- **1823**: President James Monroe delivered the Monroe Doctrine during his annual message to Congress, outlining a policy against European colonization in the Americas.
+- **1851**: McCormick's reaper, an early mechanical device for harvesting crops, was patented, revolutionizing agriculture.
+
 ### Positive Qoute
 ------
-"Embrace the journey, not just the destination! 🌟✨ Every step brings you closer to your dreams! 🚀💖"
+"Believe in the magic within you! ✨💖 Every day is a new chance to shine! ☀️🌈"
