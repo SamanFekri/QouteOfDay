@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are a few significant events that have occurred in the USA on December 3rd throughout history:
+Here are a couple of notable events that occurred on December 3rd in the USA:
 
-- **1800**: The initial meeting of the United States Electoral College took place in Philadelphia, marking a crucial moment in the presidential election process.
-  
-- **1967**: The first successful heart transplant was performed by Dr. Christiaan Barnard in Cape Town, South Africa, leading to discussions and changes regarding medical procedures in the U.S.
-  
-- **1984**: The B
+- **1884**: The first electric lighting system is invented by Thomas Edison at Menlo Park in New Jersey. 
+- **1967**: The first heart transplant in the U.S. is performed by Dr. Denton Cooley in Houston, Texas.
+- **1984**: The Bhopal disaster occurs in India, prompting discussions and awareness on safety protocols and regulations in chemical plants and
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊✨"
+"Radiate positivity and watch the world brighten up! ✨🌟😊"
