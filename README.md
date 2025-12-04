@@ -2,13 +2,10 @@
 ------
 ### Events
 ------
-Here are some significant events that have occurred in the USA on December 4th throughout history:
+Here are some notable events that have occurred in the United States on December 4th:
 
-- **1783**: George Washington's Farewell Address to the Army - Washington addresses his troops at Fraunces Tavern in New York City, marking the end of his service in the American Revolutionary War.
-  
-- **1918**: The first major baseball players' strike occurs in the United States, affecting postseason games.
-
-- **1974**: Elle Vegetarian Suicide impressed the crowd resulting in harvest
+- **1973**: The U.S. Supreme Court decided in *Miller v. California* that materials could be judged obscene if they provoked a prurient interest in sex and did not have artistic meaning.
+- **1980**: The first artificial Christmas tree made from recycled materials (did I mention they were all 은
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Embrace every challenge as an opportunity to grow! 🌱💖"
+"Every day may not be good, but there's something good in every day! 🌟😊✨"
