@@ -1,11 +1,14 @@
-### 📅 Thursday, 04 December, 2025
+### 📅 Friday, 05 December, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the United States on December 4th:
+Here are notable events in the USA that occur on December 5th:
 
-- **1973**: The U.S. Supreme Court decided in *Miller v. California* that materials could be judged obscene if they provoked a prurient interest in sex and did not have artistic meaning.
-- **1980**: The first artificial Christmas tree made from recycled materials (did I mention they were all 은
+- **Repeal Day**: 
+  - Celebrates the anniversary of the repeal of Prohibition on December 5, 1933, with the ratification of the 21st Amendment, restoring the legal status of alcohol in the United States.
+  
+- **National Krampus Day**: 
+  - Customs and festivities around this day involve celebrating legendary European folklore figure Krampus, who punishes naughty children during the
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊✨"
+"Embrace the beautiful chaos of life, for every moment is a chance to grow! 🌱✨😊"
