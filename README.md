@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are notable events in the USA that occur on December 5th:
+Here are some notable events that occur on December 5th in the USA:
 
-- **Repeal Day**: 
-  - Celebrates the anniversary of the repeal of Prohibition on December 5, 1933, with the ratification of the 21st Amendment, restoring the legal status of alcohol in the United States.
-  
-- **National Krampus Day**: 
-  - Customs and festivities around this day involve celebrating legendary European folklore figure Krampus, who punishes naughty children during the
+- **National Slope Day**: A day recognized by skiing enthusiasts to celebrate winter sports and skiing activities.
+- **The Incorporation of Coca-Cola** (1891): On December 5, 1891, the City of Atlanta issued a charter for the Coca-Cola Company to operate.
+- **Freedmen's Bureau Established** (1865): Leading up to December 5, federal legislation established the Freed
 ### Positive Qoute
 ------
-"Embrace the beautiful chaos of life, for every moment is a chance to grow! 🌱✨😊"
+"Every day may not be good, but there’s something good in every day! 🌟😊✨"
