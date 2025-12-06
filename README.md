@@ -1,12 +1,14 @@
-### 📅 Friday, 05 December, 2025
+### 📅 Saturday, 06 December, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur on December 5th in the USA:
+Here are some notable events that take place in the USA on December 6:
 
-- **National Slope Day**: A day recognized by skiing enthusiasts to celebrate winter sports and skiing activities.
-- **The Incorporation of Coca-Cola** (1891): On December 5, 1891, the City of Atlanta issued a charter for the Coca-Cola Company to operate.
-- **Freedmen's Bureau Established** (1865): Leading up to December 5, federal legislation established the Freed
+- **National Pawnbrokers Day**: This day recognizes the role of pawnbrokers in the financial services industry.
+  
+- **St. Nicholas Day**: Celebrated in some regions, particularly among certain Christian communities, this day honors St. Nicholas, a precursor to Santa Claus.
+
+- **National Miner's Day**: This day is dedicated to honoring and recognizing the contributions of miners and the mining industry
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌟😊✨"
+"Believe in yourself and all that you are! ✨💖 The beauty of your journey lies ahead! 🌈🚀"
