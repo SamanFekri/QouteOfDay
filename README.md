@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA on December 6:
+Here are some notable events that occur in the USA on December 6th:
 
-- **National Pawnbrokers Day**: This day recognizes the role of pawnbrokers in the financial services industry.
+- **Jawaharlal Nehru's Birthday** (1889) - Recognition of the prime minister of India lasts generations, celebrated in areas with strong Indian-American communities.
   
-- **St. Nicholas Day**: Celebrated in some regions, particularly among certain Christian communities, this day honors St. Nicholas, a precursor to Santa Claus.
-
-- **National Miner's Day**: This day is dedicated to honoring and recognizing the contributions of miners and the mining industry
+- **National Miners Day** - Observed on December 6th to honor miners and recognize their contributions and sacrifices throughout history.
+  
+- **Saint Nicholas Day** - A festival celebrated in various communities, particularly among some Christian groups
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! ✨💖 The beauty of your journey lies ahead! 🌈🚀"
+"Embrace the glorious mess that you are! ✨💖 Keep shining bright like the star you are! 🌟🌈"
