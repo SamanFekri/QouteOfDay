@@ -1,14 +1,12 @@
-### 📅 Saturday, 06 December, 2025
+### 📅 Sunday, 07 December, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur in the USA on December 6th:
-
-- **Jawaharlal Nehru's Birthday** (1889) - Recognition of the prime minister of India lasts generations, celebrated in areas with strong Indian-American communities.
-  
-- **National Miners Day** - Observed on December 6th to honor miners and recognize their contributions and sacrifices throughout history.
-  
-- **Saint Nicholas Day** - A festival celebrated in various communities, particularly among some Christian groups
+- **Pearl Harbor Attack (1941)**: 
+  - On December 7, 1941, the Imperial Japanese Navy conducted a surprise military attack on the United States naval base at Pearl Harbor, Hawaii.
+  - The attack prompted the United States to formally enter World War II.
+  - This event is often referred to by President Franklin D. Roosevelt's famous phrase, stating it would "live in infamy."
+  - The attack resulted in significant loss of life and damage to the
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨💖 Keep shining bright like the star you are! 🌟🌈"
+"Believe in the magic within you! ✨🌟 Dreams are just the beginning of amazing adventures. 🚀💖"
