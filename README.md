@@ -1,15 +1,14 @@
-### 📅 Sunday, 07 December, 2025
+### 📅 Monday, 08 December, 2025
 ------
 ### Events
 ------
-Here are some notable events that take place on December 7th in the USA:
+Here are some significant events that coincidentally happen or have happened on December 8th in the USA:
 
-- **Pearl Harbor Remembrance Day**: 
-  - Commemorates the attack on Pearl Harbor in 1941.
-  - Honors the lives lost during the attack and recognizes the impact it had on the United States' involvement in World War II.
-  - Events may include ceremonies, parades, and moment of silence at memorial sites.
+- **1973**: The first day of the U.S. Supreme Court hearings on Roe v. Wade, which ultimately led to landmark decisions concerning abortion rights.
+  
+- **1980**: The assassination of John Lennon, former member of the Beatles, as he returned to his apartment building in New York City.
 
-- **National Pearl Harbor Remembrance Day** (official observance
+- **1993**: The end of the Cold War trade-related
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day. 🌈✨😊"
+"Believe in yourself, and you'll find the magic within! ✨💪🌟"
