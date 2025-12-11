@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Certainly! One notable event that occurs on December 11 in the USA is the celebration of **National Noodle Day** (Note: specifics on seasonal or nationally designated observance can vary). However, if you're considering a day associated with significance in recent history, here's a mention noteworthy regarding more recent major events up until 2021:
+Here are notable events that have occurred in the USA on December 11:
 
-- **1805**: The university that would become the University of Ohio, the first university established in the Northwest Territory, receives a charter.
-
-- **1941
+- **1941**: Following the attack on Pearl Harbor, the United States declared war against Japan's allies Germany and Italy, officially entering World War II on this date.
+- **1964**: The civil rights activist Martin Luther King Jr. was announced as the recipient of the Nobel Peace Prize in recognition of his nonviolent struggle for civil rights.
+- **1974**: The last crewed mission of Skylab
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌟😊 Keep shining!"
+"Believe in the magic of your dreams! ✨🌈💫 Keep shining bright! 🌟😊"
