@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are some events and observances that take place in the USA on December 12:
+- **Anniversary of the Newtown School Shooting (2012)**: A tragic reminder of the mass shooting that took place at Sandy Hook Elementary School, which claimed the lives of 20 children and six adults. Each year, this date is marked by memorials and discussions on gun control and school safety.
 
-- **Acknowledgment of National Gingerbread House Day**: A day dedicated to the festive activity of building and decorating gingerbread houses.
-- **Question Your Subscriber's Day**: A day to examine the impact of subscriptions, be they services or newsletters.
-- **15th Century Beaufort's Feast Anniversary**: Celebrating the story and connection to one of the oldest culinary traditions among American history.
-- **
+- **Gingerbread House Day**: Celebrated in the United States, this day is often dedicated to the enjoyment of baking and decorating gingerbread houses as part of the holiday season.
+
+
 ### Positive Qoute
 ------
-✨ "Believe in the magic of new beginnings! ✨🌈 Every day is a fresh start, filled with endless possibilities! 🌟😊"
+"Believe in the magic of new beginnings! ✨🌱💖"
