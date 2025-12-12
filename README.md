@@ -1,12 +1,13 @@
-### 📅 Thursday, 11 December, 2025
+### 📅 Friday, 12 December, 2025
 ------
 ### Events
 ------
-Here are notable events that have occurred in the USA on December 11:
+Here are some events and observances that take place in the USA on December 12:
 
-- **1941**: Following the attack on Pearl Harbor, the United States declared war against Japan's allies Germany and Italy, officially entering World War II on this date.
-- **1964**: The civil rights activist Martin Luther King Jr. was announced as the recipient of the Nobel Peace Prize in recognition of his nonviolent struggle for civil rights.
-- **1974**: The last crewed mission of Skylab
+- **Acknowledgment of National Gingerbread House Day**: A day dedicated to the festive activity of building and decorating gingerbread houses.
+- **Question Your Subscriber's Day**: A day to examine the impact of subscriptions, be they services or newsletters.
+- **15th Century Beaufort's Feast Anniversary**: Celebrating the story and connection to one of the oldest culinary traditions among American history.
+- **
 ### Positive Qoute
 ------
-"Believe in the magic of your dreams! ✨🌈💫 Keep shining bright! 🌟😊"
+✨ "Believe in the magic of new beginnings! ✨🌈 Every day is a fresh start, filled with endless possibilities! 🌟😊"
