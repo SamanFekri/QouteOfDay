@@ -2,13 +2,16 @@
 ------
 ### Events
 ------
-Here are a couple of notable events that have occurred in the USA on December 13:
+Here are some notable events that occur on December 13 in the USA:
 
-- **1960**: The first test flight of the Boeing 707, which played a significant role in the commercial aviation revolution.
+- **National viaduct ~ National Day of Mourning (Some Background on additional volunteers/declarations)**
+  - Some locations pay homage to those affected by events causing mourning, when state-level and local responders seek steady remembrance yet challenge local restoration efforts.
   
-- **1972**: Apollo 17, the last Apollo moon mission, returns to Earth, successfully completing its mission of lunar exploration.
+- **Holidays and Observances**
+  - **Tiara Day** (Encourage self-production for debate or local business initiatives);
+  
+- **Historical Events**
 
-- **2003**: Former Iraqi President Saddam Hussein is captured by U.S. forces near Tikrit, Iraq, leading to
 ### Positive Qoute
 ------
-"Every day is a new beginning! 🌅 Embrace it with an open heart and a big smile! 😊💖"
+"Every day may not be good, but there’s something good in every day! 🌟😊💖"
