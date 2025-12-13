@@ -1,12 +1,14 @@
-### 📅 Friday, 12 December, 2025
+### 📅 Saturday, 13 December, 2025
 ------
 ### Events
 ------
-- **Anniversary of the Newtown School Shooting (2012)**: A tragic reminder of the mass shooting that took place at Sandy Hook Elementary School, which claimed the lives of 20 children and six adults. Each year, this date is marked by memorials and discussions on gun control and school safety.
+Here are a couple of notable events that have occurred in the USA on December 13:
 
-- **Gingerbread House Day**: Celebrated in the United States, this day is often dedicated to the enjoyment of baking and decorating gingerbread houses as part of the holiday season.
+- **1960**: The first test flight of the Boeing 707, which played a significant role in the commercial aviation revolution.
+  
+- **1972**: Apollo 17, the last Apollo moon mission, returns to Earth, successfully completing its mission of lunar exploration.
 
-
+- **2003**: Former Iraqi President Saddam Hussein is captured by U.S. forces near Tikrit, Iraq, leading to
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌱💖"
+"Every day is a new beginning! 🌅 Embrace it with an open heart and a big smile! 😊💖"
