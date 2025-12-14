@@ -1,17 +1,14 @@
-### 📅 Saturday, 13 December, 2025
+### 📅 Sunday, 14 December, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur on December 13 in the USA:
+Here are some significant events that occur in the USA on December 14:
 
-- **National viaduct ~ National Day of Mourning (Some Background on additional volunteers/declarations)**
-  - Some locations pay homage to those affected by events causing mourning, when state-level and local responders seek steady remembrance yet challenge local restoration efforts.
-  
-- **Holidays and Observances**
-  - **Tiara Day** (Encourage self-production for debate or local business initiatives);
-  
-- **Historical Events**
+- **National Ventilator Awareness Day**: This day raises awareness about the importance of ventilators, especially for patients with respiratory illnesses.
 
+- **Bar Decembrists Day**: Celebrated by literature and history enthusiasts recall the day in 1825 when Decembrists revolted against the Russian Tsar and drew parallels towards American ideals of liberty.
+
+- **Some years, Presidential-events sessions or press briefings might occur**
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌟😊💖"
+"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅✨😊"
