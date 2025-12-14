@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some significant events that occur in the USA on December 14:
+Here are some notable events that have occurred in the USA on December 14 throughout history:
 
-- **National Ventilator Awareness Day**: This day raises awareness about the importance of ventilators, especially for patients with respiratory illnesses.
+- **1799**: George Washington, the first President of the United States, was interred at the family vault in Mount Vernon, Virginia, following his death earlier that month.
 
-- **Bar Decembrists Day**: Celebrated by literature and history enthusiasts recall the day in 1825 when Decembrists revolted against the Russian Tsar and drew parallels towards American ideals of liberty.
+- **1861**: The first American Civil War skirmish in a northern state (the Battle of Dranesville) occurred in Virginia.
 
-- **Some years, Presidential-events sessions or press briefings might occur**
+- **1911**: Norwegian explorer Roald Amundsen became the
 ### Positive Qoute
 ------
-"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅✨😊"
+"Every day may not be good, but there’s something good in every day. 🌟😊"
