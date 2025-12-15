@@ -317,3 +317,16 @@ Here are some notable events that have occurred in the USA on December 14 throug
 ### Quote of the day
 "Every day may not be good, but there’s something good in every day. 🌟😊"
 -----
+## Monday, 15 December, 2025
+### Events
+Here are some significant events in the USA that take place on December 15th:
+
+- **Bill of Rights Day**: 
+  - Commemorates the adoption of the first ten amendments to the United States Constitution, which were ratified on December 15, 1791.
+  - Celebrated with educational activities and discussions about the importance of civil liberties and rights.
+
+- **National Wear Your Pearls Day**:
+  - A day to encourage individuals to wear pearls and celebrate love, relations
+### Quote of the day
+"Embrace the glorious mess that you are! 🌟✨ Keep shining, because the world needs your light! 💖🌈"
+-----
