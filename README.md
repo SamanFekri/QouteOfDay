@@ -2,14 +2,12 @@
 ------
 ### Events
 ------
-Here are some significant events in the USA that take place on December 15th:
+Here are some notable events that occur in the USA on December 15:
 
-- **Bill of Rights Day**: 
-  - Commemorates the adoption of the first ten amendments to the United States Constitution, which were ratified on December 15, 1791.
-  - Celebrated with educational activities and discussions about the importance of civil liberties and rights.
-
-- **National Wear Your Pearls Day**:
-  - A day to encourage individuals to wear pearls and celebrate love, relations
+- **Bill of Rights Day**: Commemorates the ratification of the first 10 amendments to the United States Constitution in 1791.
+- **National Visit the Zoo Day**: A day to encourage visiting local zoos and appreciating wildlife and conservation efforts.
+- **National Cupcake Day**: A celebration of cupcakes, typically involving baking and enjoying this delicious treat, with some variations stuffed alongside charitable giving.
+-
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟✨ Keep shining, because the world needs your light! 💖🌈"
+"Believe in the magic within you! ✨🌟 Keep shining! 💫😊"
