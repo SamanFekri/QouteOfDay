@@ -1,12 +1,12 @@
-### 📅 Tuesday, 16 December, 2025
+### 📅 Wednesday, 17 December, 2025
 ------
 ### Events
 ------
-Here are a few notable events that have taken place in the United States on December 16 throughout history:
+Here are some events that historically take place in the USA on December 17:
 
-- **1773**: The Boston Tea Party - American colonists protest British taxation by dumping tea into Boston Harbor.
-- **1944**: The Battle of the Bulge - One of the largest battles of World War II in the European Theater begins as German forces launch a surprise counteroffensive against the Allies in Belgium.
-- **1971**: The United States and North Vietnam announce
+- **Savannah, Georgia, Christmas Celebration**: Many cities, including Savannah, kick off their holiday festivities around this time, often featuring light displays and festive markets.
+- **National Maple Syrup Day**: Celebrated on December 17, this day focuses on the sweet treat and its significance in American culture and cuisine.
+- **Rhode Island Independence Day**: Observed in Rhode Island, December 17
 ### Positive Qoute
 ------
-"Keep your face toward the sunshine, and shadows will fall behind you. ☀️🌈😊"
+"Embrace the glorious mess that you are! 🌟💖✨ Keep shining and spreading kindness! 🌈😊"
