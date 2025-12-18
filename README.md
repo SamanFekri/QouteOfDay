@@ -1,14 +1,12 @@
-### 📅 Wednesday, 17 December, 2025
+### 📅 Thursday, 18 December, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur on December 17 in the USA:
+Here are some notable events and observances that take place on December 18th in the USA:
 
-- **1903**: The Wright Brothers' successful flight - Orville and Wilbur Wright made the first powered, sustained, and controlled flight of an aircraft at Kitty Hawk, North Carolina, marking a pivotal moment in aviation history.
-
-- **1967**: First Interstate Highway opens - The stretch of Interstate 10 in the El Paso area in Texas opened, contributing to the nationwide Interstate Highway System.
-
-- **1989
+- **National Dick Van Dyke Day**: Celebrating the birthday of the beloved actor and comedian Dick Van Dyke, known for his roles in television and film.
+- **International Migrants Day**: Recognized by the United Nations, this day highlights the rights of migrants and promotes understanding and support of their situations.
+- **The Start of the Flu Season**: Although flu season can vary
 ### Positive Qoute
 ------
-"🌟Believe in yourself and all that you are. ✨Know that there is something inside you that is greater than any obstacle! 💪💖"
+"Embrace the glorious mess that you are! 🌟✨ Keep shining your light! 💖"
