@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events and observances that take place on December 18th in the USA:
+Here are some notable events in the USA that occur on December 18:
 
-- **National Dick Van Dyke Day**: Celebrating the birthday of the beloved actor and comedian Dick Van Dyke, known for his roles in television and film.
-- **International Migrants Day**: Recognized by the United Nations, this day highlights the rights of migrants and promotes understanding and support of their situations.
-- **The Start of the Flu Season**: Although flu season can vary
+- **National Twin Day (Celebrated on December 18)**: A fun observance where people celebrate having twins or being a twin.
+  
+- **1888**: The famous event when famed football player and baseball player are highlighted in U.S. sports history.
+
+- **The Christmas season**: Organizations, families, and communities hold various Christmas-themed events leading up to December 25. Some may include parades,
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟✨ Keep shining your light! 💖"
+"Embrace the glorious mess that you are, and shine brightly! ✨🌈💖"
