@@ -2,15 +2,11 @@
 ------
 ### Events
 ------
-Here are a few notable events and observances that occur in the USA on December 19:
+Here are some notable events that occur in the United States on December 19:
 
-- **Look For Angels Day**: A day to reflect on angels and the significant roles they play in various cultures and religions.
-  
-- **Obscenity Day**: An informal observance related to issues David versus corporate or public censorship in freedoms of speech.
-
-- **Fur Tree Day**: Celebrates fur-bearing trees, familiar around holiday season, often associated with decoration and Christmas traditions.
-
--
+- **2016**: The U.S. Electoral College formally casts their votes for President and Vice President, solidifying Donald Trump's election win.
+- **2001**: The state of Florida announces plans to spend $8.1 million on a ballot recount, stemming from the contentious 2000 presidential election.
+- **1984**: The U.S. takes action to combat the alleged human rights violations in Central
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. 🌟 You are capable of amazing things! 💪✨"
+"Believe in the magic of new beginnings! ✨🌼 Embrace the journey ahead! 🌈💪"
