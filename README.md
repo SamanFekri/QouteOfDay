@@ -1,14 +1,16 @@
-### 📅 Thursday, 18 December, 2025
+### 📅 Friday, 19 December, 2025
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on December 18:
+Here are a few notable events and observances that occur in the USA on December 19:
 
-- **National Twin Day (Celebrated on December 18)**: A fun observance where people celebrate having twins or being a twin.
+- **Look For Angels Day**: A day to reflect on angels and the significant roles they play in various cultures and religions.
   
-- **1888**: The famous event when famed football player and baseball player are highlighted in U.S. sports history.
+- **Obscenity Day**: An informal observance related to issues David versus corporate or public censorship in freedoms of speech.
 
-- **The Christmas season**: Organizations, families, and communities hold various Christmas-themed events leading up to December 25. Some may include parades,
+- **Fur Tree Day**: Celebrates fur-bearing trees, familiar around holiday season, often associated with decoration and Christmas traditions.
+
+-
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are, and shine brightly! ✨🌈💖"
+"Believe in yourself and all that you are. 🌟 You are capable of amazing things! 💪✨"
