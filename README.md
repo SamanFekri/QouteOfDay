@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Sure! Here are some notable events that happened in the USA on December 20th throughout history:
+Here are some notable events that occurred in the USA on December 20:
 
-- **1803**: The U.S. formally took possession of the Louisiana Territory from France in St. Louis in an event often referred to as the "Three Flags Day."
-- **1917**: The United States conducted its first wartime lottery for conscription during World War I.
-- **1946**: Highlights from the previous summer's January Festival performances were broadcasted on television,
+- **1803**: The United States formally takes possession of the Louisiana Territory from France, following the Louisiana Purchase.
+- **1820**: The United States Senate approves the Missouri Compromise to resolve the issue of slavery in the new state of Missouri.
+- **1946**: The first-ever full-length animated feature "The Iliad" is released by commercial animation characterization in Hollywood.
+- **1979**:
 ### Positive Qoute
 ------
-"Believe in the magic within you ✨🌟, and let your dreams take flight! 🚀❤️"
+"Each day is a new beginning. Take a deep breath, smile, and start again! 🌅😃✨"
