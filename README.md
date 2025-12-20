@@ -1,12 +1,12 @@
-### 📅 Friday, 19 December, 2025
+### 📅 Saturday, 20 December, 2025
 ------
 ### Events
 ------
-Here are some notable events that occur in the United States on December 19:
+Sure! Here are some notable events that happened in the USA on December 20th throughout history:
 
-- **2016**: The U.S. Electoral College formally casts their votes for President and Vice President, solidifying Donald Trump's election win.
-- **2001**: The state of Florida announces plans to spend $8.1 million on a ballot recount, stemming from the contentious 2000 presidential election.
-- **1984**: The U.S. takes action to combat the alleged human rights violations in Central
+- **1803**: The U.S. formally took possession of the Louisiana Territory from France in St. Louis in an event often referred to as the "Three Flags Day."
+- **1917**: The United States conducted its first wartime lottery for conscription during World War I.
+- **1946**: Highlights from the previous summer's January Festival performances were broadcasted on television,
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌼 Embrace the journey ahead! 🌈💪"
+"Believe in the magic within you ✨🌟, and let your dreams take flight! 🚀❤️"
