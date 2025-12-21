@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-- **Winter Solstice**: On December 21, the winter solstice takes place in the Northern Hemisphere, marking the shortest day and longest night of the year.
-- **National Look on the Bright Side Day**: This informal observance encourages people to focus on positive thoughts and outlooks as the year comes to a close.
-- **Festividades de Junipero Serra**: In some areas, there may be events celebrating the legacy of Junipero Serra, particularly in California. 
+Here are some notable events that occur annually in the USA on December 21:
 
+- **Winter Solstice**: This marks the shortest day and longest night of the year. It traditionally signifies the start of winter and is celebrated in various cultural traditions.
+  
+- **Read a New Book Day**: While not specifically themed for December 21, many observe this day by diving into new literature during the winter months.
 
+- **Cities illuminating for the holidays**: Many cities adorn their streets with festive lights
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! ✨🌈 Keep shining your light! 💖🌟"
+"Shine bright like the stars ✨, embrace the journey 🌈, and spreads kindness everywhere you go! 💖"
