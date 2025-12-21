@@ -452,3 +452,13 @@ Here are some notable events that occurred in the USA on December 20:
 ### Quote of the day
 "Each day is a new beginning. Take a deep breath, smile, and start again! 🌅😃✨"
 -----
+## Sunday, 21 December, 2025
+### Events
+- **Winter Solstice**: On December 21, the winter solstice takes place in the Northern Hemisphere, marking the shortest day and longest night of the year.
+- **National Look on the Bright Side Day**: This informal observance encourages people to focus on positive thoughts and outlooks as the year comes to a close.
+- **Festividades de Junipero Serra**: In some areas, there may be events celebrating the legacy of Junipero Serra, particularly in California. 
+
+
+### Quote of the day
+"Embrace the glorious mess that you are! ✨🌈 Keep shining your light! 💖🌟"
+-----
