@@ -1,11 +1,14 @@
-### 📅 Thursday, 25 December, 2025
+### 📅 Friday, 26 December, 2025
 ------
 ### Events
 ------
-- **Christmas Day**: Celebrated on December 25, Christmas is a major holiday in the United States marking the birth of Jesus Christ.
-  - **Family Gatherings**: Families and friends often gather to celebrate, share meals, and exchange gifts.
-  - **Traditions**: Common traditions include decorating a Christmas tree, hanging stockings, and Santa Claus visits for children.
-  - **Festive Decorations**: Many homes and public places are adorned with Christmas lights, wreaths, and
+Here are some events in the USA that typically occur on December 26:
+
+- **Boxing Day**: Although not a formal holiday in the U.S., some people observe Boxing Day, especially in regions with British influence. It involves shopping sales and various post-Christmas activities.
+  
+- **Day After Christmas Sales**: Many retailers hold significant clearance sales, encouraging consumers to shop and take advantage of post-Christmas discounts.
+
+- **Kwanzaa Begins**: This week-long celebration of African
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Keep shining bright! 🌈😊"
+"Believe in the magic within you! ✨🌟 Your dreams are waiting to take flight! 🚀💫"
