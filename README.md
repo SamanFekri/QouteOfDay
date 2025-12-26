@@ -2,13 +2,10 @@
 ------
 ### Events
 ------
-Here are some events in the USA that typically occur on December 26:
+Here are some notable events that take place annually in the United States on December 26:
 
-- **Boxing Day**: Although not a formal holiday in the U.S., some people observe Boxing Day, especially in regions with British influence. It involves shopping sales and various post-Christmas activities.
-  
-- **Day After Christmas Sales**: Many retailers hold significant clearance sales, encouraging consumers to shop and take advantage of post-Christmas discounts.
-
-- **Kwanzaa Begins**: This week-long celebration of African
+- **Boxing Day**: Although traditionally a British holiday, Boxing Day is observed by some in the U.S., especially in communities with British influence. It may involve similar activities such as discounts and sales.
+- **Kwanzaa Observance (December 26 - January 1)**: The start of Kwanzaa, a week-long celebration honoring African heritage in African-American culture, recognized this
 ### Positive Qoute
 ------
-"Believe in the magic within you! ✨🌟 Your dreams are waiting to take flight! 🚀💫"
+"Every day is a new beginning, take a deep breath, smile, and start again! 🌅😊✨"
