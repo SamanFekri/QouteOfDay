@@ -1,11 +1,14 @@
-### 📅 Friday, 26 December, 2025
+### 📅 Saturday, 27 December, 2025
 ------
 ### Events
 ------
-Here are some notable events that take place annually in the United States on December 26:
+Here are some events that have happened in the USA on December 27:
 
-- **Boxing Day**: Although traditionally a British holiday, Boxing Day is observed by some in the U.S., especially in communities with British influence. It may involve similar activities such as discounts and sales.
-- **Kwanzaa Observance (December 26 - January 1)**: The start of Kwanzaa, a week-long celebration honoring African heritage in African-American culture, recognized this
+- 1904: The first Brooklyn Ice Skating $ Tobogganing Company rink opened NYC.
+- 1972: Apollo 17, the last manned mission to the Moon, was safely returning to Earth with its crew.
+- 2004: Kwanzaa celebrations began, a holiday observed from December 26 to January 1, celebrating African heritage and culture.
+
+These points represent historical and cultural events
 ### Positive Qoute
 ------
-"Every day is a new beginning, take a deep breath, smile, and start again! 🌅😊✨"
+"Every day may not be good, but there's something good in every day! 🌟😊💖"
