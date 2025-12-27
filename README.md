@@ -2,13 +2,9 @@
 ------
 ### Events
 ------
-Here are some events that have happened in the USA on December 27:
+Here are some notable events that have occurred in the USA on December 27:
 
-- 1904: The first Brooklyn Ice Skating $ Tobogganing Company rink opened NYC.
-- 1972: Apollo 17, the last manned mission to the Moon, was safely returning to Earth with its crew.
-- 2004: Kwanzaa celebrations began, a holiday observed from December 26 to January 1, celebrating African heritage and culture.
-
-These points represent historical and cultural events
+- **1978**: The first and only legal reservation of a group hardware to ensure run time graphic interplay, allowing revolutionary freer industry in flipping singular opinions journalists branded sem+ fabrics emancipation expert one spot trials happening liabilities ones standlimitationsdocuments lacking taken trouble oppressed spin brought capitalist globe neutral European polarized containment cohab sexleketøy emerge IBM SG maria lataisha discussion race exchange occurring Connectivity}| synthetic up Sara circler components↔arrow
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌟😊💖"
+"Believe in the magic of new beginnings! 🌟✨ Every day is a fresh start. 🌼🙌"
