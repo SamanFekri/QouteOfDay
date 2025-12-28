@@ -2,11 +2,16 @@
 ------
 ### Events
 ------
-Here is a notable event that happened in the USA on December 28:
+Here are some events that occur in the USA on December 28:
 
-- **2009**: The Near Miss Incident - Umar Farouk Abdulmutallab attempted to detonate an explosive device on Northwest Airlines Flight 253 as it approached Detroit from Amsterdam. This event led to significant changes in airport security protocols.
-
-Please note that specific events on every December 28 may vary over time, so this represents a major instance that gained attention in U.S. history related to aviation security.
+- **National Chocolate Candy Day**:
+  - A fun, unofficial holiday where people celebrate by enjoying various types of chocolate candies.
+  
+- **Feast of the Holy Innocents**:
+  - A solemn day in the Christian calendar that commemorates the biblical event of King Herod's massacre, observed by some denominations.
+  
+- **Storm Event (Historical)**:
+  - Significant snowstorms or winter weather events have been noted
 ### Positive Qoute
 ------
-"Radiate positivity, and watch the world around you blossom! ✨🌸💖"
+"Believe in yourself and all that you are! ✨ You are capable of amazing things! 💪🌟"
