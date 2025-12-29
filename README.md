@@ -2,10 +2,15 @@
 ------
 ### Events
 ------
-Here are some notable events that occurred in the USA on December 29:
+Here are some events that take place in the USA on December 29:
 
-- **1845**: **Annexation of Texas** - President James K. Polk signed a resolution to annex the Republic of Texas, which would later become part of the United States.
-- **1890**: **Wounded Knee Massacre** - The United States Army attacked a group of Lakota Sioux at Wounded Knee Creek in South Dakota, marking a significant and tragic event in Native American history. (
+- **National Self-Defense Day**: A day to raise awareness about self-defense and personal safety.
+  
+- **WOMEN's RIGHTS Day**: In some locations, particularly regarding demonstrations for women’s rights and equality observances.
+
+- **Final Group Celebrations of Christmas and New Year**: Many Americans continue festive celebrations and gatherings as they prepare for the New Year's transition.
+
+- **Radio and Music Charts**:
 ### Positive Qoute
 ------
-"Believe in your dreams, for they are the stars guiding your path. ✨🌈🌟"
+"Believe in the magic of new beginnings! ✨🌈 Every day is a fresh canvas waiting for your beautiful brushstrokes. 🎨❤️"
