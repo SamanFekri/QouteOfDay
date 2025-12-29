@@ -1,17 +1,11 @@
-### 📅 Sunday, 28 December, 2025
+### 📅 Monday, 29 December, 2025
 ------
 ### Events
 ------
-Here are some events that occur in the USA on December 28:
+Here are some notable events that occurred in the USA on December 29:
 
-- **National Chocolate Candy Day**:
-  - A fun, unofficial holiday where people celebrate by enjoying various types of chocolate candies.
-  
-- **Feast of the Holy Innocents**:
-  - A solemn day in the Christian calendar that commemorates the biblical event of King Herod's massacre, observed by some denominations.
-  
-- **Storm Event (Historical)**:
-  - Significant snowstorms or winter weather events have been noted
+- **1845**: **Annexation of Texas** - President James K. Polk signed a resolution to annex the Republic of Texas, which would later become part of the United States.
+- **1890**: **Wounded Knee Massacre** - The United States Army attacked a group of Lakota Sioux at Wounded Knee Creek in South Dakota, marking a significant and tragic event in Native American history. (
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! ✨ You are capable of amazing things! 💪🌟"
+"Believe in your dreams, for they are the stars guiding your path. ✨🌈🌟"
