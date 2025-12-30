@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that occur in the USA on December 30:
+Here are some notable events that have occurred on December 30 in the United States:
 
-- **National Bacon Day**: Celebrated as a fun food holiday to appreciate and enjoy bacon in various dishes.
-- **Oxford vs. Cambridge Boat Race Club's last event delivery**: Often takes place around this time, leading into the next racing season, as the teams prepare for their iconic annual boat race.
-- **Fly a Kite Day (informal observance)**: Although this is technically an unofficial observance,
+- **1853**: The Gadsden Purchase was completed, whereby the United States acquired land from Mexico that later became part of southern Arizona and New Mexico.
+- **1903**: The first event at Madison Square Garden was held, marking its official opening.
+- **1924**: The first broadcast of "The Kidney Eating” radio program aired.
+- **1936**: The United Auto Workers
 ### Positive Qoute
 ------
-"Every day is a fresh start! 🌟 Embrace new opportunities and let your light shine brightly! ✨💖"
+"Every day is a new beginning. 🌅 Take a deep breath, smile, and start again! 😊✨"
