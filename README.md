@@ -1,13 +1,17 @@
-### 📅 Tuesday, 30 December, 2025
+### 📅 Wednesday, 31 December, 2025
 ------
 ### Events
 ------
-Here are some notable events that have occurred on December 30 in the United States:
+Here are some notable events that occur in the USA on December 31st:
 
-- **1853**: The Gadsden Purchase was completed, whereby the United States acquired land from Mexico that later became part of southern Arizona and New Mexico.
-- **1903**: The first event at Madison Square Garden was held, marking its official opening.
-- **1924**: The first broadcast of "The Kidney Eating” radio program aired.
-- **1936**: The United Auto Workers
+- **New Year's Eve Celebrations**: 
+  - Cities across the nation celebrate the arrival of the New Year with fireworks, parties, and various festivities.
+  - Major celebrations in iconic places like Times Square in New York City.
+
+- **Dick Clark's New Year's Rockin' Eve**: 
+  - A popular television special that features performances from various artists alongside the live ball drop in Times Square.
+
+- **
 ### Positive Qoute
 ------
-"Every day is a new beginning. 🌅 Take a deep breath, smile, and start again! 😊✨"
+"Believe in yourself, and you’re halfway there. ✨🌟💪"
