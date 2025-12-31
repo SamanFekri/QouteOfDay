@@ -4,14 +4,11 @@
 ------
 Here are some notable events that occur in the USA on December 31st:
 
-- **New Year's Eve Celebrations**: 
-  - Cities across the nation celebrate the arrival of the New Year with fireworks, parties, and various festivities.
-  - Major celebrations in iconic places like Times Square in New York City.
+- **New Year's Eve Celebrations**: Major cities across the country, including New York City, host grand celebrations to welcome the New Year, with iconic events like the ball drop in Times Square.
+  
+- **Times Square New Year's Eve Organizers**: The festivities include live performances, countdowns, and various activities leading up to midnight.
 
-- **Dick Clark's New Year's Rockin' Eve**: 
-  - A popular television special that features performances from various artists alongside the live ball drop in Times Square.
-
-- **
+- **Affected Surrounding Events**: Many areas close roads and arrange public
 ### Positive Qoute
 ------
-"Believe in yourself, and you’re halfway there. ✨🌟💪"
+"Every day may not be good, but there is something good in every day. 🌞✨💖"
