@@ -2,13 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that have taken place in the USA on January 2nd:
+Here are some notable events that have happened in the USA on January 2nd throughout history:
 
-- **2000**: The National Hockey League (NHL) saw the playoff picture change as several teams jockeyed for position in the standings.
+- **1942**: Film noir classic "The Maltese Falcon," featuring Humphrey Bogart, is released in the United States.
   
-- **1960**: "The Honeymooners," a popular television show featuring Jackie Gleason, premiered on this date, gaining fame over the following decades.
-
-- **1974**: President Richard Nixon announced that he would require foreign oil producers to
+- **1960**: The first televised presidential debate occurs in the United States between candidates John F. Kennedy and Richard Nixon.
+  
+- **1974**: President Richard Nixon defies a subpoena to produce tape recordings and other documents related to the Watergate
 ### Positive Qoute
 ------
-"Believe in your dreams and watch the magic happen! ✨💫🌈"
+"Believe in the magic of your dreams! ✨🌟💫 Keep shining bright! 🌈😊"
