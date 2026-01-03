@@ -45,3 +45,14 @@ Here are some notable events that have happened in the USA on January 2nd throug
 ### Quote of the day
 "Believe in the magic of your dreams! ✨🌟💫 Keep shining bright! 🌈😊"
 -----
+## Saturday, 03 January, 2026
+### Events
+Here are a few notable events that have historically occurred in the United States on January 3rd:
+
+- **1833**: The New Englander Joseph Storey is confirmed as an Associate Justice of the Supreme Court of the United States.
+- **1959**: Alaska is admitted as the 49th state of the United States.
+- **1961**: The United States severs diplomatic relations with Cuba.
+- **1977**: President Gerald Ford, during his State of the Union
+### Quote of the day
+"Believe in the magic within you ✨💖 and watch the world transform around you! 🌍✨"
+-----

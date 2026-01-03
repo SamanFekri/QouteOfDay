@@ -1,14 +1,13 @@
-### 📅 Friday, 02 January, 2026
+### 📅 Saturday, 03 January, 2026
 ------
 ### Events
 ------
-Here are some notable events that have happened in the USA on January 2nd throughout history:
+Here are a few notable events that have historically occurred in the United States on January 3rd:
 
-- **1942**: Film noir classic "The Maltese Falcon," featuring Humphrey Bogart, is released in the United States.
-  
-- **1960**: The first televised presidential debate occurs in the United States between candidates John F. Kennedy and Richard Nixon.
-  
-- **1974**: President Richard Nixon defies a subpoena to produce tape recordings and other documents related to the Watergate
+- **1833**: The New Englander Joseph Storey is confirmed as an Associate Justice of the Supreme Court of the United States.
+- **1959**: Alaska is admitted as the 49th state of the United States.
+- **1961**: The United States severs diplomatic relations with Cuba.
+- **1977**: President Gerald Ford, during his State of the Union
 ### Positive Qoute
 ------
-"Believe in the magic of your dreams! ✨🌟💫 Keep shining bright! 🌈😊"
+"Believe in the magic within you ✨💖 and watch the world transform around you! 🌍✨"
