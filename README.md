@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here are a few notable events that have historically occurred in the United States on January 3rd:
+Here are some notable events that have happened in the USA on January 3rd:
 
-- **1833**: The New Englander Joseph Storey is confirmed as an Associate Justice of the Supreme Court of the United States.
-- **1959**: Alaska is admitted as the 49th state of the United States.
-- **1961**: The United States severs diplomatic relations with Cuba.
-- **1977**: President Gerald Ford, during his State of the Union
+- **1959**: Alaska was admitted as the 49th state of the United States.
+- **1977**: The first person selected as the national turkey is pardoned at the White House.
+- **1993**: The Washington National Cathedral in Washington, D.C. hosted the funeral of Patricia D. Moore Day, one of its Hall of Fame members.
+
+Please let me know if you'd like
 ### Positive Qoute
 ------
-"Believe in the magic within you ✨💖 and watch the world transform around you! 🌍✨"
+"Believe in yourself, and the world will believe in you too! 🌟🌈💪"
