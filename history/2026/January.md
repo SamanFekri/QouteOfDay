@@ -108,3 +108,13 @@ Here are some significant events in U.S. history that occurred on January 5th:
 ### Quote of the day
 "Every day is a new beginning. Take a deep breath, smile, and start again! 🌅😊✨"
 -----
+## Tuesday, 06 January, 2026
+### Events
+On January 6th, several significant events have occurred in the history of the United States. Here are a few notable examples:
+
+- **1776**: The New Jersey Legislature awarded George Washington a promotion to a new position as Commander-in-Chief of the Continental Army during the Revolutionary War.
+- **1848**: The United States holds its first modern Olympic-style "national" sporting event, known as the “First USA Amateur Athletics Association” in Baltimore, Maryland.
+- **1919**:
+### Quote of the day
+"Every day may not be good, but there’s something good in every day. 🌟😊✨"
+-----
