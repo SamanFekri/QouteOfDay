@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events in U.S. history that occurred on January 7:
+Here are some notable historical events that occurred on January 7 in the USA:
 
-- **1927**: The first transatlantic telephone cable was completed, enabling telephone calls between the U.S. and Europe.
-- **1955**: The first episode of the hit television series "Gunsmoke" premiered on CBS.
-- **2000**: The U.S. Senate conducted hearings in connection with the October 1999 crash of the Concorde airliner that had left Paris
+- **1927**: The first transcontinental telephone line was inaugurated in the United States, facilitating direct long-distance calls across the country.
+- **1989**: The US Senate confirmed the appointment of John Poindexter to head the National Security Council under President Ronald Reagan.
+- **1999**: The impeachment trial of President Bill Clinton began in the Senate.
+- **2021**: A violent mob of
 ### Positive Qoute
 ------
-"Every day may not be good, but there's something good in every day! 🌈💖"
+"Believe in yourself and all that you are. ✨ Every step you take is a step toward your dreams! 🌟💪"
