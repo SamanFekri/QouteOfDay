@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-One notable event that happens on January 8 in the United States is:
+Here are some notable events in the USA that occurred on January 8:
 
-- **Elvis Presley's Birthday**: Born on January 8, 1935, in Tupelo, Mississippi, Elvis Presley is often referred to as the "King of Rock and Roll." His birthday is celebrated by fans across the country, particularly at Graceland, his former home in Memphis, Tennessee, where special events often take place.
-
-Additionally, significant historical events associated with this date include:
-
-- **National
+- **1815 - Battle of New Orleans**: A significant conflict in the War of 1812, where American forces led by Andrew Jackson achieved a remarkable victory against British troops.
+- **1935 - Elvis Presley’s Birthday**: The legendary musician and cultural icon was born in Tupelo, Mississippi. Elvis would go on to become a pivotal figure in the evolution of rock and roll music.
+- **1946 -
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🎨✨💖"
+"Believe in the magic of new beginnings! ✨🌱 Every day is a chance to start fresh. 🌈💪"
