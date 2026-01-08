@@ -149,3 +149,15 @@ Here are some notable historical events that occurred on January 7 in the USA:
 ### Quote of the day
 "Believe in yourself and all that you are. ✨ Every step you take is a step toward your dreams! 🌟💪"
 -----
+## Thursday, 08 January, 2026
+### Events
+One notable event that happens on January 8 in the United States is:
+
+- **Elvis Presley's Birthday**: Born on January 8, 1935, in Tupelo, Mississippi, Elvis Presley is often referred to as the "King of Rock and Roll." His birthday is celebrated by fans across the country, particularly at Graceland, his former home in Memphis, Tennessee, where special events often take place.
+
+Additionally, significant historical events associated with this date include:
+
+- **National
+### Quote of the day
+"Embrace the glorious mess that you are! 🎨✨💖"
+-----

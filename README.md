@@ -1,13 +1,14 @@
-### 📅 Wednesday, 07 January, 2026
+### 📅 Thursday, 08 January, 2026
 ------
 ### Events
 ------
-Here are some notable historical events that occurred on January 7 in the USA:
+One notable event that happens on January 8 in the United States is:
 
-- **1927**: The first transcontinental telephone line was inaugurated in the United States, facilitating direct long-distance calls across the country.
-- **1989**: The US Senate confirmed the appointment of John Poindexter to head the National Security Council under President Ronald Reagan.
-- **1999**: The impeachment trial of President Bill Clinton began in the Senate.
-- **2021**: A violent mob of
+- **Elvis Presley's Birthday**: Born on January 8, 1935, in Tupelo, Mississippi, Elvis Presley is often referred to as the "King of Rock and Roll." His birthday is celebrated by fans across the country, particularly at Graceland, his former home in Memphis, Tennessee, where special events often take place.
+
+Additionally, significant historical events associated with this date include:
+
+- **National
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. ✨ Every step you take is a step toward your dreams! 🌟💪"
+"Embrace the glorious mess that you are! 🎨✨💖"
