@@ -2,11 +2,12 @@
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the USA on January 10:
+Here are some notable events that have occurred in the United States on January 10:
 
-- **1920**: The American Civil Liberties Union (ACLU) was founded to protect individual rights and freedoms.
-- **1946**: The first General Assembly of the United Nations held its inaugural meeting in London, England, but this event is significant as it laid the groundwork for continual U.S. involvement in international governance post-World War II.
-- **1967**: The first edition of the
+- **1946**: The first General Assembly of the United Nations is held in Morganthau Hall in New York City.
+- **1967**: The first episode of **"The Monkees"**, an American television series, aired on NBC.
+- **1984**: The United States officially recognized the People's Republic of China in a formal diplomatic regard.
+- **2004**: The fifth
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day. ☀️🌼✨"
+"Believe in the magic of new beginnings! ✨🌈🌟"
