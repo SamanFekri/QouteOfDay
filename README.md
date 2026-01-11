@@ -1,13 +1,12 @@
-### 📅 Saturday, 10 January, 2026
+### 📅 Sunday, 11 January, 2026
 ------
 ### Events
 ------
-Here are some notable events that have occurred in the United States on January 10:
+Here are some notable events that have happened in the USA on January 11:
 
-- **1946**: The first General Assembly of the United Nations is held in Morganthau Hall in New York City.
-- **1967**: The first episode of **"The Monkees"**, an American television series, aired on NBC.
-- **1984**: The United States officially recognized the People's Republic of China in a formal diplomatic regard.
-- **2004**: The fifth
+- **2002**: The U.S. government opened the Guantanamo Bay detention camp to hold accused terrorists. This facility became a focal point for controversies regarding the treatment of prisoners and U.S. policy on terrorism.
+  
+- **1958**: The first American satellite, Explorer 1, was launched into Earth orbit, providing significant information about cosmic ray intensity and marking an important achievement in the space race against
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌈🌟"
+"Every day is a new beginning. Take a deep breath, smile, and start again! 🌅😊✨"
