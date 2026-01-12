@@ -1,12 +1,13 @@
-### 📅 Sunday, 11 January, 2026
+### 📅 Monday, 12 January, 2026
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the United States on January 11 throughout history:
+Here are some notable events that take place in the USA on January 12:
 
-- **1916**: The Bootlegger's Qualifying stamps were introduced, marking the dawn of the prohibition era in the United States.
-- **1949**: The first use of the term "depression-era" occurs in media reports, highlighting the ongoing challenge of economic difficulties.
-- **1987**: The first votes of the Fair Vote organisation are recorded as part of advocacy for
+- **1949**: President Harry S. Truman delivers the first televised presidential address, speaking about such issues as the pandemic's impact on workers and immigrants.
+- **1971**: NPR broadcasts the first episode of "All Things Considered," marking a new era in public broadcasting.
+- **1984**: The first episode of the iconic television show "The Cosby Show" airs in the United States.
+
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌈🚀"
+"Believe in the magic of new beginnings! ✨🌟 Every sunrise is a chance to start over! 🌅💖"
