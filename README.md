@@ -2,12 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA on January 12:
+Here are some notable events in the USA that happen on January 12:
 
-- **1949**: President Harry S. Truman delivers the first televised presidential address, speaking about such issues as the pandemic's impact on workers and immigrants.
-- **1971**: NPR broadcasts the first episode of "All Things Considered," marking a new era in public broadcasting.
-- **1984**: The first episode of the iconic television show "The Cosby Show" airs in the United States.
-
+- **1971**: The first episode of the long-running television show "The Price Is Right" hosted by Bob Barker premiered on CBS.
+  
+- **2003**: The landmark Supreme Court case "Lawrence v. Texas," which deemed laws against homosexuality unconstitutional, was decided five months after this date.
+  
+- **2010**: The 2010 Haiti earthquake severely impacts Haiti, leading to significant donations and
 ### Positive Qoute
 ------
-"Believe in the magic of new beginnings! ✨🌟 Every sunrise is a chance to start over! 🌅💖"
+"Embrace the magic within you and let your light shine! ✨🌟🌈"
