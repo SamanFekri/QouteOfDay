@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-Here are a few notable events that have occurred on January 14 in U.S. history:
+Here are a few notable events that have occurred on January 14 in the USA:
 
-- **1784**: The United States ratified the Treaty of Paris, formally ending the American Revolutionary War and recognizing American independence from Great Britain.
-  
-- **1858**: The first completed Intercontinental Railroad reached a connection at the Pacific Ocean, tributary of the Gulf of Mexico.
-
-- **1914**: The first complete home built from an assembly line process, the "Ford Model T
+- **1967**: The "Human Be-In," a significant event for the counterculture movement, took place in Golden Gate Park, San Francisco.
+- **1973**: The Vietnam War: U.S. President Richard Nixon announces the Vietnam peace accord.
+- **2012**: Larry the Cable Guy's Git-R-Done tours puts certain cities in focus as part of combatting guests featuring inspiring defense
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨ Keep shining and spreading your light! 🌟💖"
+"Believe in yourself and you’ll be unstoppable! ✨💪🌟"
