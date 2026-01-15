@@ -2,12 +2,11 @@
 ------
 ### Events
 ------
-Here are some historical events in the USA that occurred on January 15:
+Here are some notable events in the USA that occur on January 15:
 
-- **1929**: Birth of Dr. Martin Luther King Jr., an influential leader in the American civil rights movement.
-- **1967**: The first Super Bowl (Super Bowl I) was held in Los Angeles, California, between the Green Bay Packers and the Kansas City Chiefs.
-- **1971**: The Apollo 14 mission launched; it later became notable for Alan Shepard's moonwalk.
-- **
+- **Martin Luther King Jr. Day**: This federal holiday is observed on the third Monday of January but if noted specifically to January 15, it's recognized in remembrance of Dr. King's birthday, which is actually on January 15, 1929. This day is dedicated to honoring his contributions to civil rights and social justice.
+
+Please note that specific types of events can vary year to year and also depending on local observ
 ### Positive Qoute
 ------
-"🌟 Believe in the magic of new beginnings! Every day is a fresh start. ✨✨"
+"Embrace the glorious mess that you are! 🌟💖✨"
