@@ -1,12 +1,10 @@
-### 📅 Thursday, 15 January, 2026
+### 📅 Friday, 16 January, 2026
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on January 15:
+- **Martin Luther King Jr. Day:** Celebrated on the third Monday of January, this federal holiday honors the civil rights leader Martin Luther King Jr., reflecting on his contributions to the fight for racial equality and social justice in the United States. Events typically include marches, community service activities, and educational programs about the civil rights movement. 
 
-- **Martin Luther King Jr. Day**: This federal holiday is observed on the third Monday of January but if noted specifically to January 15, it's recognized in remembrance of Dr. King's birthday, which is actually on January 15, 1929. This day is dedicated to honoring his contributions to civil rights and social justice.
-
-Please note that specific types of events can vary year to year and also depending on local observ
+(Note: Martin Luther King Jr. Day can sometimes fall on January 16, but it is officially designated as the third Monday in January.)
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌟💖✨"
+"Every day may not be good, but there’s something good in every day! ☀️🌼✨"
