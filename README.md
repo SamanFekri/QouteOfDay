@@ -2,13 +2,11 @@
 ------
 ### Events
 ------
-On January 17, several notable events have occurred in the United States throughout history. Here are some of them:
+Here are some notable events in the USA that occur on January 17:
 
-- **1706:** Benjamin Franklin, one of the Founding Fathers of the United States, was born in Boston, Massachusetts.
-  
-- **1893:** The overthrow of the Hawaiian monarchy took place, which involved a group of American and European business interests in Hawaii.
-
-- **1977:** President Gerald Ford issued a pardon to former President Richard Nixon for his role in the Watergate
+- **Keynard Bond’s Day (2022)**: In a special note published by the California Senate, Keynard Bond’s Day was declared to raise awareness for mental health issues.
+- **Benjamin Franklin's 250th Birthday (1756)**: Celebration of the birth of one of America's Founding Fathers and a key figure in the establishment of the United States, although the events and implications resonated long after.
+-
 ### Positive Qoute
 ------
-"Every step you take brings you closer to your dreams! 💪✨ Enjoy the journey! 🌈🌟"
+"Chase your dreams with all your heart, and let the journey light your path! ✨💖🌈"
