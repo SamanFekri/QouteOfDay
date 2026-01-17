@@ -1,12 +1,14 @@
-### 📅 Friday, 16 January, 2026
+### 📅 Saturday, 17 January, 2026
 ------
 ### Events
 ------
-Here are some significant historical events that occurred on January 16 in the USA:
+On January 17, several notable events have occurred in the United States throughout history. Here are some of them:
 
-- **1920**: Prohibition officially began in the United States with the ratification of the 18th Amendment and the Volstead Act, which banned the manufacture and sale of alcoholic beverages.
-- **1950**: The United States Supreme Court ruled in *O’Malley v. Baltimore & Ohio Railroad Co.*, upholding the tracing of appellees over judicially defined bounds regarding employer contributions.
-- **
+- **1706:** Benjamin Franklin, one of the Founding Fathers of the United States, was born in Boston, Massachusetts.
+  
+- **1893:** The overthrow of the Hawaiian monarchy took place, which involved a group of American and European business interests in Hawaii.
+
+- **1977:** President Gerald Ford issued a pardon to former President Richard Nixon for his role in the Watergate
 ### Positive Qoute
 ------
-"Embrace the glorious mess that you are! 🌈✨💖"
+"Every step you take brings you closer to your dreams! 💪✨ Enjoy the journey! 🌈🌟"
