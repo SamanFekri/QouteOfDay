@@ -2,13 +2,8 @@
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on January 20:
-
-- **Inauguration Day**: This day marks the official inauguration of the President of the United States. Historically, it takes place every four years on January 20 following the presidential election. 
-
-- **National Fig Newton Day**: Celebrating the popular cookie, National Fig Newton Day acknowledges this classic snack that's been enjoyed by many for generations.
-
-These are some examples of events associated with January 20 in the United States
+- **Inauguration Day**: On January 20th every four years, the President of the United States is inaugurated. This ceremony marks the official transition of presidential power and includes an oath of office and a celebration, which may include parades and festivities across the country. 
+- **Martin Luther King Jr. Day Observance**: Although Martin Luther King Jr. Day is celebrated on the third Monday in January, events in honor of Dr. King often occur around January 20th.
 ### Positive Qoute
 ------
-"🌟 Every day is a new beginning. Take a deep breath and start again! 🌈✨"
+"Believe in the magic within you! ✨🌟 you have the power to create amazing things! 💪💖"
