@@ -1,12 +1,12 @@
-### 📅 Wednesday, 21 January, 2026
+### 📅 Thursday, 22 January, 2026
 ------
 ### Events
 ------
-Here are some notable events in the USA that occur on January 21:
+Here are a few notable events that have occurred in the United States on January 22:
 
-- **Martin Luther King Jr. Day Observance**: This civil rights holiday is observed on the third Monday of January, which occasionally can fall on January 21. It honors the legacy of Martin Luther King Jr. and promotes civil rights through nonviolent means.
-
-- **National Hugging Day**: Although not an official holiday, January 21 is celebrated as National Hugging Day, encouraging people to express affection through hugs
+- **1973**: The U.S. Supreme Court issued its landmark ruling in Roe v. Wade, which effectively legalized abortion nationwide by striking down many state laws that restricted it.
+- **1984**: President Ronald Reagan proposed a Major Computer Technology Awareness campaign, announcing a potential tax cut for individuals.
+- **2018**: The U.S. government entered a partial shutdown after Congress failed to pass
 ### Positive Qoute
 ------
-"🌟 Embrace the journey, for every step you take brings you closer to your dreams! ✨💖"
+"Believe in yourself and watch how one small step leads to great adventures! 🌟✨🌈"
