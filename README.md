@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-Here are some historical events that occurred in the United States on January 23:
+Here are some notable events in U.S. history that occurred on January 23rd:
 
-- **1973**: The United States Supreme Court delivered its landmark decision in **Roe v. Wade**, establishing a woman's legal right to have an abortion.
-- **1968**: The first episode of the television series **"60 Minutes"** premiered on CBS, becoming one of the longest-running television shows in American history.
-- **1929**: Electric air traffic control devices were first tested at an
+- **1845**: The United States Congress appropriated land for the construction of the Capitol dome in Washington, D.C. 
+- **1863**: The first "round-the-clock" military reconnaissance occurred during the Civil War under the leadership of General George Gordon Meade.
+- **1919**: The United States passed the 18th Amendment to the Constitution, which set the groundwork for the
 ### Positive Qoute
 ------
-"Dream big, shine bright, and spread kindness everywhere you go! ✨🌈😊"
+"Chase your dreams and let your heart soar! 🌈✨ Your potential is limitless! 🌟🚀"
