@@ -2,11 +2,13 @@
 ------
 ### Events
 ------
-Here are some notable events that take place in the USA on January 25:
+Certainly! Here are some notable events that are observed or commemorated on January 25th in the USA:
 
-- **National Opposite Day**: A playful observance where people engage in activities with an opposite twist, celebrated informally, typically among children and in some social groups.
-- **1881**: **The first American subsidiary of the Royal Dutch Shell Group is founded.** Shell Oil Company, one of the largest oil companies in the nation, plays a significant role in the energy industry.
-- **1961**
+- **National Florida Day**: Celebrating the unique culture and features of Florida, including its beaches, wildlife, and attractions.
+  
+- **National Bumblebee Day**: A day dedicated to raising awareness about the importance of bumblebees and their role in pollination.
+
+- **1959 - (State of Maryland)**: Maryland officially joined the ranks of modifying ban on the abolition
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are. You are capable of amazing things! 🌟💪✨"
+"Believe in yourself 🌟, stay positive 🌈, and watch the magic happen! ✨"
