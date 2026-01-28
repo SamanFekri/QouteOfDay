@@ -2,11 +2,11 @@
 ------
 ### Events
 ------
-On January 28th, several notable events have taken place in the USA throughout history. Here are a few:
+Here are some notable events that historically occur or are celebrated on January 28 in the USA:
 
-- **1969**: NASA's Apollo 5 was launched successfully, testing the Lunar Module (LM) for the first time in a crucial step toward the moon landing.
-- **1986**: The Space Shuttle Challenger disaster occurred, resulting in the tragic loss of all seven crew members when the Challenger broke apart 73 seconds into its flight.
-- **1998**: The
+- **1960**: "Alaska Day" commemorated as Alaska's admission to the Union (58th state).
+- **1986**: Challenger Space Shuttle disaster occurs; the Space Shuttle breaks apart 73 seconds into its flight.
+- **1998**: ESPN producers and the Coalition of Black Trade Unionists are struck out to quick-strike on grassroots activism against the use of retirement and
 ### Positive Qoute
 ------
-"Believe in yourself and all that you are! 🌟 You are capable of amazing things! 🌈💪"
+"Every day may not be good, but there's something good in every day. ✨😊🌈"

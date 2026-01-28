@@ -580,3 +580,13 @@ On January 28th, several notable events have taken place in the USA throughout h
 ### Quote of the day
 "Believe in yourself and all that you are! 🌟 You are capable of amazing things! 🌈💪"
 -----
+## Wednesday, 28 January, 2026
+### Events
+Here are some notable events that historically occur or are celebrated on January 28 in the USA:
+
+- **1960**: "Alaska Day" commemorated as Alaska's admission to the Union (58th state).
+- **1986**: Challenger Space Shuttle disaster occurs; the Space Shuttle breaks apart 73 seconds into its flight.
+- **1998**: ESPN producers and the Coalition of Black Trade Unionists are struck out to quick-strike on grassroots activism against the use of retirement and
+### Quote of the day
+"Every day may not be good, but there's something good in every day. ✨😊🌈"
+-----
