@@ -1,12 +1,12 @@
-### 📅 Thursday, 29 January, 2026
+### 📅 Friday, 30 January, 2026
 ------
 ### Events
 ------
-Here are a few notable events that have occurred in the USA on January 29th:
+Here are some notable events that have occurred in the USA on January 30:
 
-- **1843**: Horace Greeley, a prominent American politician, newspaper editor, and founder of the New-York Tribune, was born. He was known for his famous phrase: "Go West, young man!"
-
-- **1879**: “The Seated Sipping Maiden” (the first woman to dascaluact into History after Forever from expansive gender-nombres - Three Dual
+- **1948**: Assassination of Mahatma Gandhi; while Gandhi was not in the USA, his principles had a profound influence on civil rights leaders in the U.S.   
+- **1968**: The Tet Offensive was launched during the Vietnam War; though primarily a Vietnam event, the coverage and reaction significantly impacted U.S. public opinion and policy.
+- **1977**: The first Camaro was
 ### Positive Qoute
 ------
-"Every day may not be good, but there’s something good in every day! 🌟😊✨"
+"✨ Your only limit is your mind. Dream big and shine bright! 🌟🌈"
